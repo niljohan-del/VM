@@ -2,16 +2,14 @@ name: Generera dagligt blogginlägg
 
 on:
   schedule:
-    - cron: '0 6 * * *'  # 06:00 UTC = 08:00 svensk sommartid
-  workflow_dispatch:      # Möjliggör manuell körning via GitHub
+    - cron: '0 6 * * *'
+  workflow_dispatch:
 
 jobs:
   generate-post:
     runs-on: ubuntu-latest
-    
     permissions:
       contents: write
-
     steps:
       - name: Checka ut repot
         uses: actions/checkout@v4
@@ -30,9 +28,9 @@ jobs:
           ANTHROPIC_API_KEY: ${{ secrets.ANTHROPIC_API_KEY }}
         run: python scripts/generate_post.py
 
-     - name: Committa och pusha inlägget
+      - name: Committa och pusha inlägget
         run: |
           git config user.name "Blogg-boten"
           git config user.email "bot@github.com"
           git add -A
-          git diff --staged --quiet && echo "Inget nytt att committa" || git commit -m "Dagligt blogginlägg $(date +%Y-%m-%d)" && git push
+          git diff --staged --quiet && echo "Inget nytt att committa" || (git commit -m "Dagligt blogginlägg $(date +%Y-%m-%d)" && git push)
