@@ -41,33 +41,37 @@ def load_tips():
     wb = openpyxl.load_workbook("VM_tips_2026.xlsx", read_only=True, data_only=True)
     ws = wb["Tips"]
     rows = list(ws.iter_rows(values_only=True))
-    header_row = rows[2]
+    
+    # Deltagarnamnen finns på rad index 3
+    header_row = rows[3]
     participants = []
-    i = 8
-    while i < len(header_row):
-        name = header_row[i]
-        if name:
-            participants.append({"name": str(name), "col_index": i})
-        i += 2
+    for i, val in enumerate(header_row):
+        if isinstance(val, str) and val.strip() and i >= 8:
+            if val.strip() not in ("Rätt rad", "Torsdag 11 juni"):
+                participants.append({"name": val.strip(), "col_index": i})
+    
+    # Matchrader börjar på index 4
+    # Hoppa över rader som är datumrubriker (kolumn 0 är None eller inte ett tal)
     match_tips = []
-    for row in rows[3:]:
+    for row in rows[4:]:
+        match_num = row[0]
         match_name = row[2]
+        if not isinstance(match_num, (int, float)):
+            continue  # datumrad eller tom rad
         if not match_name or not str(match_name).strip():
-            continue
-        if not isinstance(row[0], (int, float)):
             continue
         tips_per_participant = {}
         for p in participants:
             tip = row[p["col_index"]]
             if tip in ("1", "X", "2", 1, 2):
-                tips_per_participant[p["name"]] = str(tip)
+                tips_per_participant[p["name"]] = str(int(tip)) if isinstance(tip, float) else str(tip)
         match_tips.append({
             "match": str(match_name).strip(),
             "tips": tips_per_participant
         })
+    
     wb.close()
     return participants, match_tips
-
 def calculate_scores(results, match_tips):
     scores = {}
     match_results = {}
