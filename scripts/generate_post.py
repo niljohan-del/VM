@@ -193,6 +193,7 @@ date: {today}
 def main():
     print("Hämtar färdigspelade matcher...")
     results = get_finished_matches()
+    print("Matcher:", [(r["match"], r["home_score"], r["away_score"]) for r in results])
     if not results:
         print("Inga färdigspelade matcher – inget inlägg genereras.")
         return
