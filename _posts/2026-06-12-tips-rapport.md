@@ -4,58 +4,54 @@ title: "VM-tips 2026-06-12"
 date: 2026-06-12
 ---
 
-# God morgon VM-vänner! – 12 juni 2026
+# Välkommen till Brittans VM-blogg – och god morgon från Farsta! 🌍⚽
 
-Kaffe nummer två är påhällt. Bosse katten har ockuperat min tidning. Ute i Farsta är det grått som en Djurgårds-tröja, men inuti brinner det av fotboll.
-
-För **VM har börjat på allvar**.
+**12 juni 2026**
 
 ---
 
-## Nattens match
+Nå, hej allihopa.
 
-**Mexico–Sydafrika 2–0.**
+Jag heter Britt-Marie Andersson, kallad Brittan av de flesta och "du-med-bajentröjan" av grannen på plan 3. Jag är pensionerad sportjournalist, bosatt i Farsta sedan evigheter, gift med Lasse som tycker att fotboll är "ganska kul ibland" (han har fel), och husdjursmamma till katten Bosse som har bättre fotbollsinstinkt än hälften av landets sportkommentatorer.
 
-Och vet ni vad? Det var precis så det skulle vara.
+I decennier bevakade jag svensk fotboll. Jag var där när Bajen led. Jag var där när Bajen triumferade. Och jag var där sommaren 1994 när Brolin, Dahlin och Kennet Andersson fick ett helt folk att glömma allt vad vardagsproblem heter.
 
-Mexico var vässade, hungriga och spelade med den där rykande känslan av att ha något att bevisa. Sydafrika försökte, hjärtat fanns där, men klassen skilde. Två mål, noll emot, tre poäng. Rent och snyggt.
+Nu är jag pensionär. Men fotboll slutar man inte älska.
 
-Jag har sett stökigare öppningsmatcher. Jag har sett tråkigare. Det här landade någonstans däremellan – inte poesi, men hederligt hantverk. Mexico-fansen jublade. Sydafrika-fansen applåderade ändå. Det är något vackert i det.
+Så när VM sparkade igång bestämde jag mig: varje morgon skriver jag en bloggpost. Jag går igenom nattens matcher, skådar in i tipskollegornas mer eller mindre upplysta gissningar – med extra kärleksfull blick på Johan – och delar med mig av mina tankar. Varma, syrliga, romantiska. Precis som fotboll ska vara.
 
-VM 1994 hade Mexiko med. Jag minns att de spelade vakker fotboll med en tajt försvarslinje. Trettio år senare ser de faktiskt fortfarande bekanta ut. En del saker håller.
+Välkommen hit. Kaffet är påsatt.
+
+---
+
+## Nattens matcher – 11 juni
+
+**Mexiko–Sydafrika 2–0**
+
+Mexiko kom, såg och conquererade. Två mål, noll insläppta och en matchbild som andades kontroll. Sydafrika försökte, men det var lite som att se ett ungdomslag möta sin tränares gamla a-lag. Det finns något respektingivande med mexikansk fotboll när den snurrar igång ordentligt. Passningsspel med hetta i. Det där hade Bajen gillat.
+
+**Sydkorea–Tjeckien 2–1**
+
+Den här matchen hade lite mer nerv. Tjeckien tryckte till, Sydkorea svarade med flit och intensitet. Asiatisk arbetsmoral möter centraleuropeisk teknik – och arbetsmoral vann. Det är därför vi älskar fotboll.
 
 ---
 
 ## Tipskollen
 
-En match. Ett utfall: **1**. Hemmavinst för Mexico.
+Eftersom det här är alldeles första blogginlägget och tipsställningen precis börjat byggas upp, kan jag ännu inte rangordna eller kora några vinnare med råge. Men det kommer. Poängställningen är som ett VM-slutspel – det avgörs inte i första omgången.
 
-Vi är i startgroparna, tipsligan är nyfött spädbarn och alla har en chans. Det vet vi alla hur det slutar. Men just nu – just denna morgon – är hoppet intakt hos samtliga.
+Det jag *kan* säga är att **båda matcherna slutade med hemmasegrar (utfall 1, 1)**. Den som vågade tro på Mexiko och Sydkorea har fått en flygande start.
 
----
-
-## Brittans fundering
-
-Det är något speciellt med ett VM:s allra första dygn.
-
-Inga lag har åkt hem ännu. Ingen har riktigt misslyckats. Alla fans är fortfarande optimister. Det är den enda stunden i hela turneringen då alla teorier ännu håller.
-
-Det påminner mig om en tidig Bajen-säsong. Den där känslan i mars när man fortfarande tror att det här kan bli *året*. Söderstadion i blommande hopp, Kenta på läktaren, och Lasse som mumlar att "det här ser faktiskt lovande ut."
-
-Sen kommer april.
-
-Men mars. Mars är helig.
+Johan – jag hoppas du var modig. Vi återkommer.
 
 ---
 
 ## Slutord från Farsta
 
-Tipsligastart är som seriepremiär – alla är lika bra tills beviset på motsatsen.
+Bosse katten satt i knät under båda matcherna. Det tolkar jag som ett gott omen.
 
-Vi ses imorgon när fler matcher spelats och fler drömmar antingen bekräftats eller krossats med välvillig brutalitet.
+Lasse frågade om inte "alla matcher ser likadana ut." Jag svarade inte. En del frågor förtjänar inte svar.
 
-Bosse katten sovar redan igen. Lasse frågar vad vi ska äta till middag.
+Vi ses imorgon bitti. ⚽
 
-Fotboll väntar.
-
-*// Brittan*
+*– Brittan*
