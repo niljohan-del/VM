@@ -50,10 +50,10 @@ def get_yesterdays_matches():
     matches = r.json().get("matches", [])
     results = []
     for m in matches:
-    home = översätt(m["homeTeam"]["shortName"] or m["homeTeam"]["name"])
-    away = översätt(m["awayTeam"]["shortName"] or m["awayTeam"]["name"])
-        home_score = m["score"]["fullTime"]["home"]
-        away_score = m["score"]["fullTime"]["away"]
+            home = översätt(m["homeTeam"]["shortName"] or m["homeTeam"]["name"])
+            away = översätt(m["awayTeam"]["shortName"] or m["awayTeam"]["name"])
+            home_score = m["score"]["fullTime"]["home"]
+            away_score = m["score"]["fullTime"]["away"]
         if home_score > away_score:
             outcome = "1"
         elif home_score < away_score:
