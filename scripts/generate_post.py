@@ -10,12 +10,13 @@ ANTHROPIC_API_KEY = os.environ["ANTHROPIC_API_KEY"]
 COMPETITION_CODE = "WC"  # VM 2026
 
 def get_yesterdays_matches():
-    yesterday = (datetime.date.today() - datetime.timedelta(days=1)).isoformat()
     url = f"https://api.football-data.org/v4/competitions/{COMPETITION_CODE}/matches"
     headers = {"X-Auth-Token": FOOTBALL_API_KEY}
-    params = {"dateFrom": yesterday, "dateTo": yesterday, "status": "FINISHED"}
+    params = {"status": "FINISHED"}
+    
     r = requests.get(url, headers=headers, params=params)
     r.raise_for_status()
+    
     matches = r.json().get("matches", [])
     results = []
     for m in matches:
