@@ -4,54 +4,62 @@ title: "VM-tips 2026-06-12"
 date: 2026-06-12
 ---
 
-# Välkommen till Brittans VM-blogg – och god morgon från Farsta! 🌍⚽
+# God morgon VM-vänner – 12 juni 2026
 
-**12 juni 2026**
-
----
-
-Nå, hej allihopa.
-
-Jag heter Britt-Marie Andersson, kallad Brittan av de flesta och "du-med-bajentröjan" av grannen på plan 3. Jag är pensionerad sportjournalist, bosatt i Farsta sedan evigheter, gift med Lasse som tycker att fotboll är "ganska kul ibland" (han har fel), och husdjursmamma till katten Bosse som har bättre fotbollsinstinkt än hälften av landets sportkommentatorer.
-
-I decennier bevakade jag svensk fotboll. Jag var där när Bajen led. Jag var där när Bajen triumferade. Och jag var där sommaren 1994 när Brolin, Dahlin och Kennet Andersson fick ett helt folk att glömma allt vad vardagsproblem heter.
-
-Nu är jag pensionär. Men fotboll slutar man inte älska.
-
-Så när VM sparkade igång bestämde jag mig: varje morgon skriver jag en bloggpost. Jag går igenom nattens matcher, skådar in i tipskollegornas mer eller mindre upplysta gissningar – med extra kärleksfull blick på Johan – och delar med mig av mina tankar. Varma, syrliga, romantiska. Precis som fotboll ska vara.
-
-Välkommen hit. Kaffet är påsatt.
+Kaffe på bordet, Bosse katten i knät och Lasse som fortfarande sover. Perfekt läge att summera nattens VM-action från Farsta.
 
 ---
 
-## Nattens matcher – 11 juni
+## Nattens matcher
 
-**Mexiko–Sydafrika 2–0**
+**Mexiko–Sydafrika 2–0** och **Sydkorea–Tjeckien 2–1**.
 
-Mexiko kom, såg och conquererade. Två mål, noll insläppta och en matchbild som andades kontroll. Sydafrika försökte, men det var lite som att se ett ungdomslag möta sin tränares gamla a-lag. Det finns något respektingivande med mexikansk fotboll när den snurrar igång ordentligt. Passningsspel med hetta i. Det där hade Bajen gillat.
+Mexiko visste vad de ville. Strukturerat, effektivt och utan en sekunds tvekan. Sydafrika kämpade, men mötte ett mexikanskt lag som tydligen bestämt sig i omklädningsrummet. Det är den sortens fotboll som värmer ett gammalt sporthjärta – inte vacker, men ärlig.
 
-**Sydkorea–Tjeckien 2–1**
-
-Den här matchen hade lite mer nerv. Tjeckien tryckte till, Sydkorea svarade med flit och intensitet. Asiatisk arbetsmoral möter centraleuropeisk teknik – och arbetsmoral vann. Det är därför vi älskar fotboll.
+Sydkorea mot Tjeckien var lite mer dramatiskt. Koreanerna jobbade sig till segern på det sätt asiater ibland gör – outtröttligt, organiserat och med en gnista av galenskap i slutfasen. Tjeckien såg ut att tro att ett kryss var tillräckligt. Det är det aldrig. Inte i ett VM. Det där hade inte hänt 1994. Då spelade alla på vinst.
 
 ---
 
 ## Tipskollen
 
-Eftersom det här är alldeles första blogginlägget och tipsställningen precis börjat byggas upp, kan jag ännu inte rangordna eller kora några vinnare med råge. Men det kommer. Poängställningen är som ett VM-slutspel – det avgörs inte i första omgången.
+I täten hittar vi inte mindre än **fem spelare på 4 rätt av 5**: Mats, Norman, Tommy, Klas och Heimbrand. Riktigt bra jobbat allesammans. Det krävs både huvud och lite magkänsla för att hänga med i ett VM som det här.
 
-Det jag *kan* säga är att **båda matcherna slutade med hemmasegrar (utfall 1, 1)**. Den som vågade tro på Mexiko och Sydkorea har fått en flygande start.
+En stor mittenpakt på 3 rätt trängs precis bakom – fjorton spelare i ett enda kluster. Fotboll är demokratiskt på det sättet.
 
-Johan – jag hoppas du var modig. Vi återkommer.
+Sedan har vi bottenskiktet. Och där... ja.
+
+---
+
+## Johans rad – en studie i optimism
+
+**J Nilsson: 1 rätt av 5.**
+
+En enda träff, Johan. En.
+
+Mexiko–Sydafrika fick du rätt. Bra. Resten? Fyra raka kryss i matcher som alla slutade med en etta. Det är inte otur. Det är en världsbild.
+
+Jag vill vara snäll, och Johan förtjänar snällhet. Men fyra kryss i rad i ett VM där alla vill vinna – det är som att gå till Söderstadion och hoppas på 0–0. Det händer. Men man *hoppas* inte på det.
+
+Tanken var säkert god. Försiktig. Balanserad. Lagom.
+
+Fotboll är inte lagom.
+
+---
+
+## Brittans fundering
+
+Det slår mig att kryssen har ett drag av... underkastelse. Som om man inte vågar tro på att någon faktiskt vinner. 1994 vågade vi tro. Brolin vågade. Dahlin vågade. Ravelli vågade, och han stod still i målet som en vägg av norrbottnisk granit.
+
+Våga tippa ettor, folk.
 
 ---
 
 ## Slutord från Farsta
 
-Bosse katten satt i knät under båda matcherna. Det tolkar jag som ett gott omen.
+Bosse katten jäser på fönsterbrädan. Lasse vaknade och frågade vem som leder tipset. Jag sa att det är tätt i toppen.
 
-Lasse frågade om inte "alla matcher ser likadana ut." Jag svarade inte. En del frågor förtjänar inte svar.
+Han nickade och gick och la sig igen.
 
-Vi ses imorgon bitti. ⚽
+Så gör man när man vet sitt.
 
-*– Brittan*
+Vi ses imorgon. 🟢⚫
