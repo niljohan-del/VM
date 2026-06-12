@@ -9,6 +9,36 @@ FOOTBALL_API_KEY = os.environ["FOOTBALL_API_KEY"]
 ANTHROPIC_API_KEY = os.environ["ANTHROPIC_API_KEY"]
 COMPETITION_CODE = "WC"  # VM 2026
 
+LAGNAMN = {
+    "Mexico": "Mexiko",
+    "South Africa": "Sydafrika",
+    "USA": "USA",
+    "Germany": "Tyskland",
+    "France": "Frankrike",
+    "Spain": "Spanien",
+    "Brazil": "Brasilien",
+    "Argentina": "Argentina",
+    "England": "England",
+    "Portugal": "Portugal",
+    "Netherlands": "Nederländerna",
+    "Morocco": "Marocko",
+    "Japan": "Japan",
+    "Australia": "Australien",
+    "Saudi Arabia": "Saudiarabien",
+    "South Korea": "Sydkorea",
+    "Cameroon": "Kamerun",
+    "Nigeria": "Nigeria",
+    "Ghana": "Ghana",
+    "Senegal": "Senegal",
+    "Ecuador": "Ecuador",
+    "Uruguay": "Uruguay",
+    "Colombia": "Colombia",
+    "Chile": "Chile",
+}
+
+def översätt(namn):
+    return LAGNAMN.get(namn, namn)
+
 def get_yesterdays_matches():
     url = f"https://api.football-data.org/v4/competitions/{COMPETITION_CODE}/matches"
     headers = {"X-Auth-Token": FOOTBALL_API_KEY}
@@ -20,8 +50,8 @@ def get_yesterdays_matches():
     matches = r.json().get("matches", [])
     results = []
     for m in matches:
-        home = m["homeTeam"]["shortName"] or m["homeTeam"]["name"]
-        away = m["awayTeam"]["shortName"] or m["awayTeam"]["name"]
+    home = översätt(m["homeTeam"]["shortName"] or m["homeTeam"]["name"])
+    away = översätt(m["awayTeam"]["shortName"] or m["awayTeam"]["name"])
         home_score = m["score"]["fullTime"]["home"]
         away_score = m["score"]["fullTime"]["away"]
         if home_score > away_score:
