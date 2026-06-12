@@ -6,60 +6,60 @@ date: 2026-06-12
 
 # God morgon VM-vänner – 12 juni 2026
 
-Kaffe på bordet, Bosse katten i knät och Lasse som fortfarande sover. Perfekt läge att summera nattens VM-action från Farsta.
+Kaffe på bordet. Bosse katten sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Och jag sitter här i Farsta med VM i magen och en hel del att säga.
 
 ---
 
 ## Nattens matcher
 
-**Mexiko–Sydafrika 2–0** och **Sydkorea–Tjeckien 2–1**.
+**Mexiko–Sydafrika 2–0.** Klart och tydligt. Mexiko gjorde jobbet utan att behöva charma någon. Sydafrika kämpade, men det räckte inte. Ibland är fotboll just så enkelt – ett lag vill mer, och det syns.
 
-Mexiko visste vad de ville. Strukturerat, effektivt och utan en sekunds tvekan. Sydafrika kämpade, men mötte ett mexikanskt lag som tydligen bestämt sig i omklädningsrummet. Det är den sortens fotboll som värmer ett gammalt sporthjärta – inte vacker, men ärlig.
-
-Sydkorea mot Tjeckien var lite mer dramatiskt. Koreanerna jobbade sig till segern på det sätt asiater ibland gör – outtröttligt, organiserat och med en gnista av galenskap i slutfasen. Tjeckien såg ut att tro att ett kryss var tillräckligt. Det är det aldrig. Inte i ett VM. Det där hade inte hänt 1994. Då spelade alla på vinst.
+**Korea Republic–Tjeckien 2–1.** Det här var roligare. Sydkorea med tajt organisation, snabba omställningar och ett mål som fick mig att luta mig framåt i soffan. Tjeckien försökte, hittade reducering, men hann inte mer. En match med hjärta. Det finns något vackert i det.
 
 ---
 
 ## Tipskollen
 
-I täten hittar vi inte mindre än **fem spelare på 4 rätt av 5**: Mats, Norman, Tommy, Klas och Heimbrand. Riktigt bra jobbat allesammans. Det krävs både huvud och lite magkänsla för att hänga med i ett VM som det här.
+I toppen hittar vi en hel liten skara – **Mats, Norman, Tommy, Klas och Heimbrand** – alla med 4 rätt av 5. Fem namn i kloss. Respekt. Det är solida rader, inte flummiga gissningar. Bra magkänsla, bra matchbild.
 
-En stor mittenpakt på 3 rätt trängs precis bakom – fjorton spelare i ett enda kluster. Fotboll är demokratiskt på det sättet.
+Sen har vi mittenskiktet med en lång rad tippare på 3 rätt. **Hammarberg, Linghall, Samuel L, Åsa, Lindsten, Andreas1, Anna, Wilma, Carola, Rasmus, Daniel** – ni håller er flytande. Godkänt, men vi vet att ni kan bättre.
 
-Sedan har vi bottenskiktet. Och där... ja.
+Och så botten. **Dannä, Magnus, Andreas2 och Jocke S** på 1 rätt av 5. Det är... modigt. Eller något.
 
 ---
 
-## Johans rad – en studie i optimism
+## Dagens ros
 
-**J Nilsson: 1 rätt av 5.**
+Fem på toppen, och det är svårt att välja. Men jag lyfter **Norman** den här gången – av en känsla. Hörde på tonen i hans tips att han menade allvar.
 
-En enda träff, Johan. En.
+---
 
-Mexiko–Sydafrika fick du rätt. Bra. Resten? Fyra raka kryss i matcher som alla slutade med en etta. Det är inte otur. Det är en världsbild.
+## Dagens stolleprov
 
-Jag vill vara snäll, och Johan förtjänar snällhet. Men fyra kryss i rad i ett VM där alla vill vinna – det är som att gå till Söderstadion och hoppas på 0–0. Det händer. Men man *hoppas* inte på det.
+**Johan Nilsson.** Käre, käre Johan.
 
-Tanken var säkert god. Försiktig. Balanserad. Lagom.
+En rätt på fem matcher. Mexiko–Sydafrika satt som en smäck – det var ett perfekt tips. Sedan tippade han kryss på *fyra* raka matcher, och alla slutade med hemmaseger.
 
-Fotboll är inte lagom.
+Johan. Älskling. Man behöver inte vara Einstein. Men man behöver inte heller vara så demokratisk mot krysset.
+
+Tanken var säkert rätt. Matcherna borde ha krånglat mer. Det är inte hans fel att fotbollen vägrade samarbeta.
 
 ---
 
 ## Brittans fundering
 
-Det slår mig att kryssen har ett drag av... underkastelse. Som om man inte vågar tro på att någon faktiskt vinner. 1994 vågade vi tro. Brolin vågade. Dahlin vågade. Ravelli vågade, och han stod still i målet som en vägg av norrbottnisk granit.
+Fyra kryss i rad. Det påminner mig faktiskt om den där sommaren 1994, när Sverige vann trots att ingen riktigt trodde på det. Alla förväntade sig det oväntade – och fick det rakt i ansiktet.
 
-Våga tippa ettor, folk.
+Den som alltid tippar kryss kommer ha rätt ibland. Men fotboll belönar dem som vågar ta ställning.
 
 ---
 
 ## Slutord från Farsta
 
-Bosse katten jäser på fönsterbrädan. Lasse vaknade och frågade vem som leder tipset. Jag sa att det är tätt i toppen.
+Ha det fint, allihopa. Mats och gänget i toppen – njut medan det varar. Johan – nästa omgång tar vi hem det.
 
-Han nickade och gick och la sig igen.
+Bosse katten är fortfarande kvar i fönstret. Duvan med.
 
-Så gör man när man vet sitt.
+Det är därför vi älskar fotboll.
 
-Vi ses imorgon. 🟢⚫
+*/Brittan*
