@@ -6,70 +6,62 @@ date: 2026-06-16
 
 # God morgon VM-vänner – 16 juni 2026
 
-Kaffe nummer två är påfyllt. Bosse katten sover på Lasses tidning. Solen tittar in genom kökets gardin och Sverige vann med 5–1 i natt.
+Kaffe nummer två är påfyllt. Bosse katten sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Och jag har suttit uppe för länge och kollat resultat som fick mig att skratta, gråta och skaka på huvudet – ibland i samma minut.
 
-Det är en bra morgon i Farsta.
+Det är VM. Det är därför vi älskar fotboll.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja?
+Sverige! Fem–ett mot Tunisien. Fem–ett. Jag fick gåshud, och det var inte bara för att jag glömt stänga balkongen. Det är den sortens resultat som gör att man drar paralleller till 1994 – fast då hade vi Brolin i håret och Dahlin i benen. Nu har vi ett Sverige som faktiskt vågar. Mer av det, tack.
 
-**Sverige–Tunisien 5–1.** Fem mål. Fem. Jag ringde inte upp någon för det var mitt i natten men Lasse fick ändå höra om det. Tre gånger. Han sov igenom alla tre. Det är hans förlust.
+Tyskland körde över Curaçao med 7–1. Respektingivande. Och precis lika osannolikt som det låter. Fotboll spelas av människor – men ibland spelar ena laget av en helt annan sort.
 
-**Tyskland–Curaçao 7–1** var det andra stora skrället uppåt. Lite brutalt. Men effektivt. Tysk effektivitet är som en gammal Volvo – inte vacker, men den kör.
+USA vann med 4–1 mot Paraguay. Amerikanerna börjar se ut som ett riktigt fotbollslag. Det hade aldrig hänt 1994. Eller jo. Fast det hade det inte.
 
-**USA–Paraguay 4–1** var oväntat övertygande. Amerikanerna spelar en fotboll som liknar deras filmer. Mycket ljud, stor budget, förmodligen ett lyckligt slut.
+Brasilien–Marocko slutade 1–1. Spanien–Kap Verde 0–0. Belgien–Egypten 1–1. Visst är det VM, men ibland undrar man om någon berättat det för lagen.
 
-**Brasilien–Marocko 1–1** var däremot lite av en besvikelse. Brasilien ska spela samba, inte kontraktsförhandlingar. Jag har sett tråkigare matcher. Inte många, men några.
-
-**Spanien–Kap Verde 0–0.** Spanjorerna tipplade runt utan att egentligen hota. Det finns ett ord för sånt. Feg fotboll. Jag säger inte att jag har lösningen. Men det börjar med att faktiskt försöka.
+Bajen hade gjort det snyggare.
 
 ---
 
 ## Tipskollen
 
-**Samuel L** leder med 21 rätt. Starkt. Väldigt starkt. Man kan inte annat än ta av sig hatten.
+Samuel L leder med 21 rätt av 50. Stabilt, metodiskt, respektabelt. Mats och Klas på 20 vardera – fint sällskap.
 
-**Mats** och **Klas** delar andraplats på 20 rätt. Solida herrar.
+Sedan har vi **Johan Nilsson** på 18 rätt. Och det är där det blir intressant.
 
-**Johan Nilsson** ligger på 18 rätt. Och hur ser hans rad ut egentligen? Jo, han fick rätt på Mexiko–Sydafrika, USA–Paraguay, Qatar–Schweiz, Brasilien–Marocko och Nederländerna–Japan. Han kände igen kryssen när de kom. Det är en underskattad konst.
+Johans rad är lite som ett Bajenmöte på 90-talet – full av hjärta, men med ett och annat kaos inblandat. Han prickade Mexiko, USA, Qatar-kryssen, Brasilien-kryssen, Nederländerna och ett gäng till. Bra fotbollskänsla.
 
-Sen tippade han Australien–Turkiet fel. Fel åt helt rätt håll, om man frågar mig. Han trodde på Turkiet. En modig tanke. Otur. Det händer de bästa.
+Men Australia–Turkiet tippade han 2. Det slutade 2–0 till Australien. Det var ett djärvt tips, Johan. Modet finns där. Riktningen var lite fel.
 
----
+Och Spanien–Kap Verde tippade han 1. Inte orimligt – men 0–0 är just den sortens resultat som påminner oss om att fotboll inte lyssnar på logik.
 
-## Dagens ros
-
-**Samuel L.** 21 rätt av 50 är inte en slump. Det är fotbollsförståelse.
+Tanken var rätt, Johan. Resultaten var orättvisa.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippade **Spanien–Kap Verde** till 1 utan att tveka på Spaniens offensiva kapacitet... ja. Spanien levererade 0–0. Lika tomt som Söderstadion en grå tisdagsmorgon i november. Fast Söderstadion har mer känsla.
+Dannä. Tio rätt av femtio. Jag säger inte att jag har lösningen. Men jag antyder att man kanske ska läsa lite mer och tippa lite mindre på känn.
+
+Kärleksfullt sagt, förstås.
 
 ---
 
 ## Brittans fundering
 
-Sverige vann med 5–1. Det är fint. Det är väldigt fint.
+Sverige vann med fem mål. Och ändå är det Brasilien 1–1 som fastnar i mig. Det stora laget som inte levererar. Det vackra spelet som aldrig riktigt tar av. Det påminner mig om varje säsong med Bajen då vi visste att det här *skulle* bli året.
 
-Men det påminner mig om sommaren 1994. Vi trodde vi kunde allt. Vi kände att fotbollen var vår. Brolin. Dahlin. Ravelli med de där handskarna. Det var magi.
-
-Den känslan vill jag ha tillbaka. Och kanske – kanske – är vi på väg dit.
+Ibland räcker kärleken inte hela vägen.
 
 ---
 
 ## Slutord från Farsta
 
-Ha en fin dag nu.
+Bosse katten är nöjd. Lasse vaknade och frågade hur det gick för Sverige. Jag sa fem–ett. Han log. Han vet bättre än att kommentera vidare.
 
-Sverige vann. Bosse sover. Lasse är fortfarande lite dåsig.
+Vi ses imorgon, VM-vänner. Ha det fint däremellan.
 
-Och någonstans i Nordamerika spelar de VM-fotboll.
-
-Det finns inget bättre.
-
-*– Brittan*
+*– Brittan, Farsta*
