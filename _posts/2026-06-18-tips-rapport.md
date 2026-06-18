@@ -6,48 +6,68 @@ date: 2026-06-18
 
 # God morgon VM-vänner – 18 juni 2026
 
-Kaffe. Morgonrock. Bosse katten på knäet och tjugofyra matcher att smälta.
+Kaffe är pådraget. Bosse katten sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Och jag har just scrollat igenom 24 matcher som spelades igår, och jag vet inte om jag ska skratta eller gråta.
 
-Lasse sov igenom halvtiden av Sverige–Tunisien. Jag förlät honom inte förrän efter det femte målet.
+Jo, faktiskt. Jag vet precis vad jag ska göra. Jag ska skriva om det.
 
 ---
 
 ## Nattens matcher
 
-Börjar vi med det viktigaste: **Sverige 5–1 mot Tunisien**. Fem mål. Fem. Jag grät lite. Det förtjänar jag att erkänna. Det var länge sedan vi fick se ett blågult lag som faktiskt vill ha bollen. Det finns något vackert i det.
+Sverige vann. **5–1 mot Tunisien.** Läs det en gång till. Fem – ett. Jag satt i soffan med händerna på kinderna som en gammal mormor på bio. Det är därför vi älskar fotboll.
 
-**Norge–Irak slutade 4–1**. Självklart. Håland och grabbarna rullade på med den där nordiska hänsynslösheten som jag genuint beundrar. Av rent fotbollsmässiga skäl, vill säga. Att pojken dessutom ser ut som han precis klev ur en saga är ju helt irrelevant. Lasse frågade varför jag hejade så högt. Jag sa att jag hejar på Norden. Han såg inte helt övertygad ut.
+Norge vann också. **4–1 mot Irak.** Håland spelade förmodligen bra. Det gör han ju alltid. Jag säger inte mer om det.
 
-**USA–Paraguay 4–1** var snyggare än det hade rätt att vara. **Tyskland–Curaçao 7–1** var det inte. Det var bokföring, inte fotboll.
+*(Jag säger inte mer om det.)*
 
-**Spanien–Kap Verde 0–0**. Spanjorerna tog kryss mot Kap Verde. Kap Verde! Jag har sett värre. Men inte ofta. **Brasilien–Marocko 1–1** likaså. Det är därför vi älskar fotboll – och ibland hatar det lite också.
+Tyskland körde över Curaçao med **7–1**, vilket var väntat men ändå lite roligt att se. England slog Kroatien **4–2** i en match som hade allt – mål, drama, och ett Kroatien som påminde om att de inte längre är vad de en gång var. Det finns något vackert i det. Och något sorgligt.
 
-**England–Kroatien 4–2** var dock underhållning på riktigt. Äntligen spelar engelsmännen som om de menar allvar.
+Brasilien–Marocko slutade **1–1**. Spanien–Kap Verde **0–0**. Belgien–Egypten **1–1**. Fotbollen slog bakut lite här och var. Jag har sett värre.
 
 ---
 
 ## Tipskollen
 
-Ledningen delas av **Mats och Samuel L** på 32 rätt av 76. Solida herrar, ska de ha. Tätt bakom kniper **Hammarberg, Klas, Mollie och Rasmus** med 31 vardera. Det är trångt i toppen och det ska bli intressant att se vem som knäcker.
+**Mats** och **Samuel L** leder med 32 rätt av 76. Solida herrar. Respekten är genuin.
 
-Längst ned i tabellen hittar vi **Dannä och Ruud** på 23 poäng. Modiga tips, säkert. Resultaten har ännu inte hängt med.
+Strax bakom lurar ett gäng på 31 poäng: Hammarberg, Klas, Mollie och Rasmus. Trångt i toppen. Bra fotboll, det.
 
----
-
-## Dagens ros
-
-**J Nilsson** – ja, vår Johan – sitter på 28 rätt. Inte i topp, men låt mig berätta varför det inte är hans fel. Hans rad för gårdagen var ett minfält av bra resonemang. Spanien tippade han till vinst mot Kap Verde. Det var rätt tanke. Fotbollen levererade fel svar. Johan hade fel på ett väldigt genomtänkt sätt.
-
-Han plockade dessutom hem **Uzbekistan–Colombia** som tvåa. Det kräver mod. Det kräver instinkt. Det är precis den sortens känsla som separerar en riktig fotbollsmänniska från en som bara fyller i formulär.
+Längst ner sitter **Dannä** och **Ruud** med 23 poäng. Jag säger ingenting. Men jag tänker det.
 
 ---
 
-## Dagens stolleprov
+## Johans rad
 
-Den som tippade **Haiti–Skottland** till X när Skottland spelar i VM förtjänar att sitta och fundera en stund. Skottland. Som faktiskt är med. Och vann. Med ett mål. Det är inte raketforskning, som Bosse katten hade förstått om han inte hade gått ut i köket lagom till avspark.
+Nu till **J Nilsson**, min kära Johan, som sitter på 28 poäng.
+
+Pojken hade en utmanande dag. Missade Frankrike–Senegal (tippade kryss, blev 3–1), trodde inte på Australien mot Turkiet, och hade en hel del otur i gruppen med Brasilien, Marocko och Skottland – ett virrvarr av kryss som ingen människa egentligen kunde genomskåda.
+
+Men: han träffade Argentina, England, Uzbekistan–Colombia och Nederländerna–Japan. Det är en man som *tänker* fotboll. Resultaten speglar inte hjärnan bakom dem.
+
+Johan hade fel. Men på ett väldigt genomtänkt sätt.
 
 ---
 
 ## Brittans fundering
 
-Sverige spelade vacker fotboll igår. Fem mål. Rakt, enkelt, hungert. Det påminner mig om sommaren 1994 när Brolin och Dahlin fick hela Sverige att stanna framför t
+Sverige vann med fem mål. Jag tänkte på 1994. På Brolin. På Dahlin. På hur det kändes att vara svensk och älska fotboll den sommaren.
+
+Det finns generationer som aldrig upplevde det. Det är lite synd.
+
+Men den här generationen spelar sin egen historia nu. Och den börjar rätt bra.
+
+---
+
+## Slutord från Farsta
+
+Bosse katten har nu lämnat fönstret. Duvan vann den matchen.
+
+Lasse vaknade och frågade vad som hänt i Norge-matchen. Jag sa att Norge vann med fyra mål och att det spelades bra fotboll.
+
+Han frågade om Håland hade gjort mål.
+
+Jag sa att jag inte mindes.
+
+Det var inte sant.
+
+Vi ses imorgon, VM-vänner. 🖤💚
