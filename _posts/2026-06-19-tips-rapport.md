@@ -6,64 +6,50 @@ date: 2026-06-19
 
 # God morgon VM-vänner – 19 juni 2026
 
-Kaffe nummer två. Bosse sitter i fönstret och stirrar på en duva med samma intensitet som jag stirrade på Sverige igår kväll. Lasse sov redan vid halvtid. Jag förstår honom inte.
+Kaffe. Farsta. Halvt fem på morgonen och Bosse katten sitter i fönstret och stirrar på något som inte finns. Lasse sover. Det regnar lite. Perfekt läge att sätta sig med en kopp och gå igenom gårdagens kaos.
+
+Och det var kaos.
 
 ---
 
-## Nattens matcher – vad hände egentligen?
+## Nattens matcher
 
-Var ska man börja.
+Låt oss börja med det viktigaste: **Sverige–Tunisien 5–1**. Fem mål. Fem stycken. Jag behövde kontrollera källan två gånger. Det här är inte Sverige som jag lärt mig att älska med knutna händer och hopknipen mage – det här är Sverige som faktiskt vill något. Det finns något vackert i det. Inte lika vackert som Brolin mot Rumänien 1994, men i närheten.
 
-**Sverige–Tunisien 5–1.** Fem mål. FEM. Jag grät lite. Det är tillåtet. Det finns inget vackrare än ett Sverige som faktiskt vill. 1994 var det här vi levde för – känslan av att ett litet land kan gå ut och spöa folk med stil. Nu är vi tillbaka, och jag lovar er att Kennet Andersson log någonstans.
+**Norge slog Irak 4–1.** Självklart gjorde de det. Nordisk arbetsmoral, raka löpningar och… ja. Håland. Pojken spelade igen, och jag tänker inte säga mer än så. Lasse frågade varför jag log åt telefonen. Jag sa att det var nyhetsappen. Han såg inte övertygad ut.
 
-**Norge–Irak 4–1.** Jag säger ingenting. Håland gjorde mål förstås. Det är han bra på. Pojken är... effektiv. Väldigt effektiv. Lasse frågade varför jag spolat om det tredje målet tre gånger. Jag sa att jag studerade pressingmönstret. Han lät inte övertygad.
+**Tyskland–Curaçao 7–1** är det man kallar en matchbild. Effektivt. Nästan tråkigt effektivt. **Brasilien–Marocko 1–1** däremot – det där var en match som bestämde sig för att vara intressant. Kryss mitt i stormatchen. Det är därför vi älskar fotboll.
 
-**Tyskland–Curaçao 7–1.** Det är inte fotboll, det är bokföring. Men Tyskland är Tyskland.
-
-**Spanien–Kap Verde 0–0.** Spanien. Noll mål. Mot Kap Verde. Jag har sett värre. Men inte mycket.
-
-**Brasilien–Marocko 1–1.** Brasilien kan inte vinna en match om de får betalt. Det finns något vackert i deras förtvivlan. Men inte mycket.
-
-**England–Kroatien 4–2.** Äntligen spelar England som om de faktiskt vill vinna turneringen. Det var länge sedan.
+**Spanien–Kap Verde 0–0.** Spanien. Noll mål. Mot Kap Verde. Jag säger inte att jag har lösningen. Men.
 
 ---
 
-## Tipskollen – som det ser ut nu
+## Tipskollen
 
-**Samuel L** toppar med 37 rätt av 85. Respekt. Det är kalla nerver.
+**Samuel L** leder med 37 rätt av 85. Bra jobbat, Samuel. Det luktar system och disciplin. Mollie och Rasmus kniper andraplatserna med 36 vardera. Hedervärt.
 
-**Mollie och Rasmus** delar andra med 36. Tajt i toppen.
+Och sen har vi **J Nilsson – Johan** – på 33 rätt. Hur gick det egentligen för honom igår?
 
-Och så till **Johan Nilsson** – vår J Nilsson – som sitter på 33 rätt. Mittenpacket. Inte fel, men Johan har kapacitet för toppen och det vet han. Gårdagens rad var en bergochdalbana. Han prickade Sverige, Norge och Argentina. Han missade Spaniens pinsamhet och Australiens segersiffra. Men tanken bakom tipsen är ofta rätt. Det är bara fotbollen som krånglar till det.
+Jo. Johan tippade **Sverige vann** – rätt. Han tog **Brasilien–Marocko X** – rätt. Han tog **Ivory Coast 1** – rätt. Han tog **Uzbekistan–Colombia 2** – rätt, och det var ett djärvt tips om man frågar mig.
+
+Men sen var det lite si och så med resten. Frankrike trodde han på kryss. Det blev 3–1. Australien-Turkiet tog han fel väg på. Och Norge... Johan, du tippade X mot Irak. Mot Irak. Med Håland på plan. Det förlåter jag dig den här gången, men bara för att du hade rätt på Brasilien–Marocko och det krävde mod.
 
 ---
 
 ## Dagens ros 🌹
 
-**Samuel L.** 37 rätt talar sitt tydliga språk. Välförtjänt ledning.
+**Samuel L**, 37 rätt. Lugnt, metodiskt, träffsäkert. Det är som att se ett defensivt mittfält som aldrig gör misstag. Inte alltid spektakulärt, men vinnande.
 
 ---
 
-## Dagens stolleprov 🤦
+## Dagens stolleprov 🃏
 
-Den som tippade Spanien vinna mot Kap Verde ber jag inte pika – det var vi nog ganska många. Men Curaçao att slå Elfenbenskusten? Vänner. Det finns djärva tips och det finns tips man gör för att det låter roligt.
+Den som tippade **Spanien att vinna mot Kap Verde**. Ni vet vilka ni är. Spanien är ett lag med femton sätt att bolla på och noll sätt att avsluta. Det hade Bajen förstått. Det är inte en åsikt. Det är ett grundvillkor.
 
 ---
 
 ## Brittans fundering
 
-Sverige vann med fem. Norge vann med tre. Det är en bra dag att vara nordboring.
+Sverige vann med 5–1. Norge vann med 4–1. Skandinavien visar tänderna i detta VM.
 
-Jag tänker på gamla Söderstadion. Pulsen. Känslan av att fotboll är något som görs av människor för människor. Det finns inga algoritmer som fångar det. Det är därför vi älskar fotboll.
-
----
-
-## Slutord från Farsta
-
-Bosse har fortfarande inte tagit blicken från duvan. Lasse dricker sitt morgonkaffe och frågar inte om Norge. Klokt.
-
-Sverige i VM. Håland i form. Det värsta som kan hända är att det fortsätter.
-
-*Heja Bajen. Och lite heja Sverige också.*
-
-**– Brittan,
+Jag tänker på 1994. Den sommaren. Värmen.
