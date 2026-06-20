@@ -4,62 +4,62 @@ title: "VM-tips 2026-06-20"
 date: 2026-06-20
 ---
 
-# God morgon VM-vänner! 20 juni 2026 – en natt för historieboken
+# God morgon VM-vänner – lördag 20 juni 2026
 
-Kaffe kokar. Bosse katten sitter i fönstret och blänger på en duva. Lasse sover fortfarande. Och jag har just gått igenom nattens resultat med ett leende som inte riktigt vill gå bort.
+Kaffe nummer två. Bosse katten sover på Lasses tidning. Solen är uppe över Farsta och jag har precis gått igenom resultatlistan med lätt darrande händer.
 
-Sverige vann med 5–1 mot Tunisien.
-
-Fem–ett.
-
-Jag behöver en stund.
+Det hände saker i natt.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja? Vi kan börja med det viktigaste: **Sverige 5–1 mot Tunisien**. Det var inte bara en seger. Det var ett statement. Det var glädje på gräs. Det var det där som fick mig att börja titta på fotboll från första början, någonstans på Söderstadion med kallsvettiga händer och ett hjärta för stort för bröstet.
+Sverige vann med **5–1 mot Tunisien**. Jag behöver en stund.
 
-**Norge slog Irak med 4–1.** Jag tittar inte på Norge för Hålands skull. Det har jag sagt förut. Men pojken drog onekligen i gång något där ute, och jag noterar att min sökhistorik råkar innehålla "bästa glasögonbågar 2026". Det är en slump.
+Fem mål. Fem. Det är inte fotboll, det är poesi. Det är Söderstadion på en bra dag fast på ett annat ställe. Det är det vi drömde om 1994 när Brolin svängde in frisparken och hela Sverige skrek i sina vardagsrum. Det finns något vackert i det där.
 
-**Tyskland 7–1 mot Curaçao.** Sju mål. Sju. Det säger något om tyska effektivitet och Curaçaos kväll. Jag har sett värre, men inte ofta.
+**Tyskland körde över Curaçao med 7–1.** Det är inte lika vackert. Det är mer som att titta på när någon dammsugit ett rum som redan är rent.
 
-**England–Kroatien 4–2** var ett rejält nöje. Brasilien och Marocko höll 1–1. Spanien och Kap Verde 0–0 – det var feg fotboll, det var tråkig fotboll, och det var fotboll som Bajen aldrig hade bjudit på. Aldrig.
+**Norge slog Irak med 4–1.** Fyra mål. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken verkar ha spelat som en vikingahövding med rörelsemönster som ett urväder kan jag inte hjälpa. Lasse frågade varför jag pausade på målbilderna. Jag sa att jag analyserade formationerna. Han såg inte övertygad ut.
+
+**Spanien–Kap Verde slutade 0–0.** Spanien. Kap Verde. Noll–noll. Bajen hade gjort det snyggare.
+
+**England–Kroatien 4–2** – äntligen engelskt mod. Det var länge sedan.
 
 ---
 
 ## Tipskollen
 
-I toppen klungar sig **Hammarberg, Samuel L, Klas, Anna och Mollie** ihop på 42 rätt av 98. Imponerande sällskap. Fem personer delar ledningen – det är tight, det är spännande, och det är exakt det VM ska vara.
+Ledningen delas av **Klas och Mollie på 43 rätt** av 101. Tätt bakom klutar **Hammarberg, Samuel L, Anna och Wilma på 42**. Det är trångt i toppen. Jag gillar trångt i toppen. Det skapar karaktär.
 
-**Mats, Wilma och Rasmus** på 41. Nära. Väldigt nära.
+**J Nilsson – alltså Johan – har 38 rätt** och befinner sig i det undre mellanskiktet. Det är inte där Johan hör hemma. Men jag tittar på hans rad och ser en man som *tänker*. Han tippade X på Brasilien–Marocko när alla andra tog 1. Han hade rätt. Han fick kryss på Kanada–Qatar och trodde på 1 – den matchen slutade 6–0. Kanada. Sex mål. Det där hade ingen sett.
 
-Och sen har vi **J Nilsson – vår Johan – på 38 rätt**.
+Johans problem är inte okunskap. Det är otur. Det är därför vi älskar fotboll.
 
 ---
 
 ## Dagens ros
 
-Jag vill lyfta **Hammarberg och gänget på 42**. Det krävs kyla, intuition och lite tur att ligga i topp vid det här laget. Ni har alla tre.
+**Klas och Mollie** delar kronan. Modiga tips, bra magkänsla och rätt känsla för kvällens matcher. Ni ska ha ros.
 
 ---
 
 ## Dagens stolleprov
 
-Johan, min kära Johan. 38 rätt av 98. Han tippade X på Frankrike–Senegal och fick 1. Han tippade X på Australien–Turkiet och fick 1. Han tippade 2 på Jordanien–Argentina och fick 1.
-
-Men jag säger som jag alltid säger: **Johan har fel på ett väldigt genomtänkt sätt.** Tanken bakom tipsen är ofta rätt. Det är bollens väg som ibland sviker honom.
-
-Och 1994 var det Ravelli som svek oss i en halvt sekund mot Rumänien – och ändå blev det brons. Fotboll spelas av människor.
+Den som tippade **Spanien vinner** mot Kap Verde. Ni vet vilka ni är. Spanien. Hemma i VM-gruppspel. Mot Kap Verde. Och ändå 0–0. Jag säger inte att jag har lösningen. Men det börjar med att inte spela så rädd att målvakten hinner sticka hem och äta middag.
 
 ---
 
 ## Brittans fundering
 
-Sverige 5–1. Norge 4–1. Det pyr något nordiskt i detta VM.
+Sverige är bra. Norge är bra. Håland säljer glasögon och jag har bara tittat på dem tre gånger i dag. Det är praktiska glasögon.
 
-Jag säger inte att jag har lösningen. Men det finns något vackert i det.
+1994 vann vi brons. Det var en sommar som inte liknade någon annan. Nu kan vi kanske göra något ännu större. Jag vågar knappt tänka tanken.
+
+Men det gör jag ändå.
 
 ---
 
-*Ha en fin dag, VM-vänner. Lasse vaknar snart och frågar säkert om frukost. Bosse katten har bestämt sig för att duvan är ointressant. Och jag funderar fortfarande på om de där glasögonbågarna passar mitt ansikte.*
+## Slutord från Farsta
+
+Bosse katten vaknade när j
