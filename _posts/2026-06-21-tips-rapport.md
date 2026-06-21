@@ -6,64 +6,62 @@ date: 2026-06-21
 
 # God morgon VM-vänner – 21 juni 2026
 
-Kaffe nummer två är pågjutet. Bosse katten sover på Lasses tidning. Solen är redan uppe över Farsta och jag har suttit här sedan halv sex och försökt förstå vad som hände igår.
+Kaffe nummer två är pådraget. Bosse katten sitter i fönstret och stirrar på en duva med den koncentration som jag önskar att vissa tippare hade visat inför gårdagens omgång. Lasse sover fortfarande. Klok man.
 
-Det var *mycket* fotboll. Riktigt mycket.
+Det var en hel del fotboll igår, mina vänner. En hel del.
 
 ---
 
 ## Nattens matcher
 
-Vi börjar med det viktigaste: **Sverige vann med 5–1 mot Tunisien**. Fem mål. Jag satt och grät lite. Inte för att det var vackert, även om det var det. Utan för att det *påminde* om något. Sommaren 1994. Brolin. Dahlin. Den där känslan av att Sverige faktiskt *kan*.
+Sverige vann med 5–1 mot Tunisien. Jag ska inte låtsas som att jag inte grät lite. Det är Sverige. Det är VM. Det luktar 1994 och sommar och Kennet Andersson och allt som är rätt i världen. Att sedan Nederländerna sedan körde över oss med 5–1 i nästa match är ett faktum jag väljer att bearbeta i stillhet.
 
-Bajen hade gjort det snyggare. Men fem mål är fem mål.
+Norge? Norge, säger jag. 4–1 mot Irak. Rakt, kraftfullt, nordiskt. Håland spelade som en viking med GPS. Jag säger inget mer om det. Lasse frågade varför jag applåderade åt TV:n. Jag sa att det var för det taktiska spelet.
 
-Sedan förstörde Nederländerna det lite genom att smälla in fem mot oss i nästa match. 5–1. Typiskt. Det finns något djupt orättvist i det. Lasse höll inte med. Han har haft fel förr.
+Han såg inte övertygad ut.
 
-**Norge körde över Irak med 4–1.** Jag säger inget om Håland specifikt. Jag säger bara att det var nordisk fotboll på sitt allra bästa. Målmedvetet, rakt, kraftfullt. Jag råkade läsa lite om de där glasögonen efteråt. Av helt andra skäl.
+Tyskland åkte på 7–1 mot Curaçao och Spanien mot Kap Verde slutade 0–0, vilket bevisar att fotboll är ett mysterium och att det är därför vi älskar det.
 
-**Tyskland–Curaçao slutade 7–1.** Det är inte fotboll. Det är husrannsakan.
-
-**Spanien–Kap Verde 0–0.** Spanien. 0–0. Mot Kap Verde. Det där hade aldrig hänt 1994.
+England slog Kroatien med 4–2. Brasilien och Marocko delade på poängen. Canada smällde in sex mål mot Qatar. Det var en omgång med allt – mål, strul, drama och ett par resultat som fick mig att klappa händerna och ett par som fick mig att sätta ner kaffekoppen hårt i bänken.
 
 ---
 
 ## Tipskollen
 
-**Wilma leder med 49 rätt av 112** och är just nu turneringens skarpaste öga. Respekt. Riktig respekt.
+Wilma leder med 51 rätt av 115. Jäklar i hatten, Wilma. Det är en fin siffra. Mollie tvåa på 49, Samuel L och Klas delar tredjeplatsen på 48. Det är tätt i toppen och det luktar spänning.
 
-Tätt bakom följer Samuel L, Klas och Mollie på 47 – ett kluster av duktiga tippare som alla väntar på att Wilma ska snubbla.
+**J Nilsson** – det vill säga Johan – sitter på 43 rätt. Det är inte toppen, det ska sägas. Men tittar man på Johans rad ser man en spelare som vågar. Han tippade rätt på Qatar–Schweiz (X), Brasilien–Marocko (X), Ned–Japan (X) och Uzbekistan–Colombia (2). Det är inte nybörjarlycka. Det är fotbollsblick.
 
-**Johan Nilsson (J Nilsson) ligger på 42 rätt.** Det är solitt mitt i fältet, och jag vill påpeka att Johans rad har *logik* i sig. Han såg Qatar–Schweiz rätt. Han såg Brasilien–Marocko rätt. Han hittade Uzbekistan–Colombia. Det är en man som tänker på fotboll, inte bara skriver siffror. Att Australien–Turkiet gick åt fel håll är fotbollens grymhet, inte Johans fel.
+Att han sedan trodde på kryss i Australien–Turkiet och fick se Australien vinna med 2–0, det är en annan historia. Fotboll spelas av människor, Johan. Inte av kalkylark.
 
 ---
 
 ## Dagens ros
 
-**Wilma.** Rakt upp och ner. 49 poäng. Imponerande.
+Wilma. 51 rätt. Ledaren ska ha sin krona och Wilma bär den med värdighet.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippade **1 på Spanien–Kap Verde**. Vi pratar om ett 0–0. Mot Kap Verde. Jag säger inte att jag har lösningen. Men det kanske är dags att sluta lita blint på stora namn.
+Andreas2 på 35 rätt av 115. Det är en siffra som säger något. Jag vet inte vad. Men något.
 
 ---
 
 ## Brittans fundering
 
-Norge spelar vacker, rak fotboll. Det finns något nordiskt och pålitligt i det. Som granit. Som fjäll. Som en välbyggd... viking.
+Norge vann. Sverige vann (och förlorade). Håland gjorde mål. Jag funderar fortfarande på de där glasögonen. De verkar praktiska i det norska fjällljuset.
 
-Jag tittar på Norge för fotbollens skull. Det har jag alltid gjort.
+Det finns inget mer att tillägga.
 
 ---
 
 ## Slutord från Farsta
 
-Sverige lever. Norge vinner. Tyskland krossar smålag. Spanien sover.
+Det är söndag. Det är VM. Sverige lever i turneringen och Norge likaså.
 
-Bosse katten gäspade åt Nederländerna–Sverige-resultatet. Det säger ändå något.
+Bajen hade spelat det hela lite snyggare. Men det är en annan diskussion.
 
-Vi ses imorgon.
+Ha en fin dag, allihopa. Drick vatten. Sov lagom. Och håll koll på Wilma – hon ser ut att mena allvar.
 
-*// Brittan*
+*// Brit
