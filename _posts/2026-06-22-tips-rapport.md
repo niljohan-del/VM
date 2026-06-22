@@ -6,52 +6,56 @@ date: 2026-06-22
 
 # God morgon VM-vänner – 22 juni 2026
 
-Kaffe nummer två. Bosse katten stirrar på mig med den där blicken som säger att någon i huset hade fel igår. Lasse sov igenom halvtid på England–Kroatien. Jag satt uppe och grät lite av tacksamhet när Sverige vann med **5–1 mot Tunisien**.
+Kaffe nummer två. Bosse ligger på fjärrkontrollen igen. Lasse läser om Djurgårdens transferfönster, vilket redan satt fel stämning i köket. Ute i Farsta är det grått och lite fuktigt, men inomhus är det VM och det räcker gott.
 
-Det är därför vi älskar fotboll.
+Nattens matcher bjöd på det mesta.
 
 ---
 
 ## Nattens matcher
 
-Sverige, mina vänner. **Sverige**. Fem mål. Ett mot Tunisien. Fotboll kan vara så oförskämt vacker ibland. Jag tänkte på sommaren 1994, på Brolin, på Dahlin, på hur hela Sverige stod stilla. Det där kändes lite likadant igår kväll.
+Sverige vann. 5–1 mot Tunisien. Jag ska inte låtsas som att jag inte log. Det finns något vackert i att ett litet land med järnvilja och ordentlig press på bollen slår sönder en motståndar med fem mål. Det är inte 1994 – det är 2026 – men vi tar det.
 
-Norge å sin sida? **Irak–Norge slutade 1–4**. Fyra mål. Håland spelade troligen med de där glasögonen på mentalt. Jag tittar inte på Norge för hans skull. Jag tittar för fotbollens skull. Att pojken råkar se ut som han gör kan jag inte hjälpa.
+Sen kom Nederländerna och slog oss 5–1. Ja. Det gör ont. Men fotboll spelas av människor, inte av sifferraden.
 
-England–Kroatien **4–2**. Roligt. Liv. Engelskt kaos som ändå leder till tre poäng – det är som att se en Bajenkrönika från 2004.
+Tyskland körde över Curaçao med 7–1. Okej. Vi fattar. Men jag undrar ibland vad det säger om turneringens struktur när en match slutar sju–ett.
 
-Spanien–Kap Verde **0–0**. Det hände ingenting. Absolut ingenting. Bosse katten lämnade rummet. Det säger ändå något.
+Spanien mot Kap Verde slutade 0–0. Det *hördes* att Lasse stirrade på mig från soffan. Jag sa ingenting. Men Bajen hade spelat sig ur det bättre.
 
-Brasilien–Marocko **1–1**. Det är ett kryss som luktar defensiv feghet från båda hållen. Bajen hade gjort det snyggare.
+Norge–Irak: 4–1. Jag ska inte överdriva. Men Håland var... han var... han spelade bra. Tekniskt. Starkt. Nordisk pålitlighet. Lasse frågade varför jag satt och log. Jag sa att det var för att det var offside-fällan som fungerade. Han köpte det inte.
 
 ---
 
 ## Tipskollen
 
-Tabellen i dag: **Wilma leder med 57 rätt** av 128 spelade. Sedan Mollie på 55, Samuel L och Klas på 53. Stark klass på toppen.
+Wilma leder med 57 rätt av 128 och det är välförtjänt. Mollie kniper silver på 55. Samuel L och Klas delar brons på 53. Stabilt, modigt, proffsigt.
 
-**J Nilsson – det vill säga Johan – har 47 rätt.** Mitt i mitten. Nu ska jag vara ärlig: Johans rad ser rörig ut om man mäter i antal rätt, men han har haft en del matchbilder som stämt – bara utfallen som strulat. Mexiko–Sydafrika fick han rätt på första gången. USA–Paraguay: rätt. Uzbekistan–Colombia: rätt. Det är en man som tänker rätt, han har bara otur med kryssarna.
-
-Fotboll spelas av människor. Och kryssar gör livet svårt för oss alla.
+Längst ner hittar vi Andreas2 på 38. Det är inte ett resultat, det är ett projekt.
 
 ---
 
-## Dagens ros
+## Johans rad
 
-**Wilma på 57 poäng.** Respekt. Det är inte slump – det är läsning av fotboll.
+J Nilsson landar på 47 rätt, och det är hederligt – men inte hela historien. Johan tippade rätt på Argentina, England, Tyskland och Uzbekistan. Han *såg* matcherna. Problemet är att han och kryssen inte är riktigt sams. Qatar–Schweiz: rätt. Brasilien–Marocko: rätt. Men Spanien–Kap Verde och Norge-matcherna trickade honom. 
 
----
-
-## Dagens stolleprov
-
-Den som tippade Spanien vinna mot Kap Verde och fick ett magert 0–0. Jag säger inte vem. Men vi vet alla att det finns en fara i att tro för mycket på storlag mot liten nation. Det vet varenda en av oss som sett ett derby.
+Johan hade fel. Men på ett väldigt genomtänkt sätt.
 
 ---
 
 ## Brittans fundering
 
-Sverige vann med fem mål. Norge vann med fyra. Det är en nordisk söndag jag kan leva med. Jag behöver inte vara Einstein för att konstatera att det finns ett mönster här. Arbetsmoral. Nordisk pålitlighet. Och möjligen bra glasögon.
+Det är något speciellt med ett VM där Sverige faktiskt vinner matcher. 1994 levde vi på det i trettio år. Om vi klarar oss vidare nu kanske barnbarnen slipper höra om Kennet Anderssons nick *lika* ofta.
+
+Kanske.
 
 ---
 
-**Hej då från Farsta. Lasse skämtar om att börja tippa själv. Jag sa att 38 rätt är ett tak man kan nå utan träning. Han såg inte övertygad ut. Bosse katten höll med mig.**
+## Slutord från Farsta
+
+Håland gör reklam för nya glasögon igen. Jag läste om dem en stund. Av rent praktiska skäl, förstås. Bågarna verkar hållbara.
+
+Bosse katten lämnade rummet. Det säger ändå något.
+
+Ha en fin dag. Och kom ihåg: det finns större nationer. Det finns rikare nationer. Men det finns bara ett Bajen.
+
+*– Brittan*
