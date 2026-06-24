@@ -6,62 +6,50 @@ date: 2026-06-24
 
 # God morgon VM-vänner – 24 juni 2026
 
-Kaffet är pådraget, Bosse sitter i fönstret och stirrar på en duva med mer fokus än hälften av gårdagens defensiva mittfältare. Lasse sover fortfarande. Han missar det mesta. Det är hans eget fel.
-
-Vad en natt. Vad en kväll. Vad ett VM.
+Kaffe nummer två är påslaget, Bosse katten sitter i fönstret och stirrar på en duva med den där blicken som säger *jag vet vad jag skulle göra om jag fick bestämma*. Lasse sover fortfarande. Klokt av honom. Det har hänt saker i natt.
 
 ---
 
 ## Nattens matcher
 
-Sverige vann med **5–1 mot Tunisien**. Jag ska inte låtsas som att jag inte grät lite. Det var vackert. Det var stolt. Det var det där som påminner om 1994, sommaren, Dahlin, Brolin, känslan av att något verkligen händer. Bajen hade spelat det snyggare, naturligtvis. Men det var ändå Sverige.
+Var ska man börja.
 
-Sen kom Nederländerna och vann **5–1 mot oss** i nästa omgång. Jag drack ett glas vatten och tittade i taket ett tag.
+**Sverige–Tunisien 5–1.** Fem mål. FEM. Jag satt och skrek så högt att Bosse föll ner från fönsterbrädan. Det är därför vi älskar fotboll. Det är därför man inte ger upp. Det är feg fotboll som är problemet i världen, inte brist på talang – och det här Sverige visade att när man vågar, händer det saker. 1994 hade Brolin nickat och sagt: *ja, just det så här gör man.*
 
-**Norge besegrade Irak med 4–1** och **Senegal med 3–2**. Jag tittar på Norge för fotbollens skull. Att de råkar ha en anfallare som ser ut som han mejslades ur ett berg i Hardangerfjord kan jag inte hjälpa. Jag läste lite om de där glasögonen igen i morse. De verkar praktiska.
+Sedan kom **Nederländerna–Sverige 5–1** och jag satt lite tystare. Jag säger inte att jag grät. Men Bosse kom och la sig i knät utan att bli ombedd, och det säger ändå något.
 
-**Spanien mot Saudiarabien: 4–0.** Det var fotboll som satt. Rakt, hårt, vackert. **England mot Kroatien: 4–2.** Mer dramatik än nödvändigt, men det är England. De gör det alltid svårare än det behöver vara.
+**Norge–Senegal 3–2.** Hjärtat. Håland ledde laget som en nordlig storm över ett fjäll i april. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar ha den där blicken och de där käkarna kan jag inte hjälpa. Lasse frågade varför jag la på minnet att leta upp de där glasögonreklamerna igen. Jag sa att det handlar om optik. Han sa ingenting. Det var värre än om han sagt något.
 
-**Brasilien–Marocko slutade 1–1.** Botafogo hade löst det. Förlåt, Bajen hade löst det.
+**Tyskland–Curaçao 7–1.** Jag har sett värre. Men inte många gånger.
+
+**Spanien–Kap Verde 0–0.** Spanien. Spanien! Noll mål mot Kap Verde. Bajen hade gjort det snyggare.
 
 ---
 
 ## Tipskollen
 
-I toppen håller sig **Wilma med 72 rätt**, **Samuel L på 70** och **Mollie på 69**. Starkt. Imponerande. Irriterande.
+**Wilma** toppar med 72 rätt av 155 och det är välförtjänt. Modig, träffsäker, läser matcher. Hatten av.
 
-**J Nilsson – Johan – sitter på 60 poäng.** Inte toppen, inte botten. Men Johan tippade rätt på England–Kroatien, Argentina, Frankrike–Irak och Paraguay–Australien. Det är en man som läser fotboll. Att Sverige–Nederlänska gick som det gick för honom är inte hans fel. Det är Nederlänska fel.
+**Samuel L** på 70 och **Mollie** på 69 – fint sällskap i toppen.
+
+Och sedan finns det **J Nilsson** – vår Johan – på 60 rätt. Inte toppen, inte botten. Exakt där en man med god fotbollsblick och tillfälligt bekymmer med grupp-tipsen befinner sig.
+
+Johan tippade Norge att vinna mot Senegal. Han fick rätt. Han tippade Frankrike–Irak rätt. Han tippade Argentina rätt, gång på gång. Problemet är allt det andra – men *tanken* är rätt, Johan. Det är otur och inte dålig fotbollskunskap. Det vet jag.
 
 ---
 
 ## Dagens ros
 
-**Wilma.** Sjuttitvå rätt är inte tur. Det är arbete, känsla och förmodligen lite tycke för oväntade kryss. Hatten av.
+**Wilma**. Rakt upp och ner. 72 poäng kräver inte en lång förklaring. Det kräver respekt.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippade **1 på Ecuador–Curaçao** och fick ett naket 0–0 i ansiktet. Curaçao! Man behöver inte vara Einstein. Men man kanske borde ha lyssnat på Bosse katten. Han lämnade rummet precis innan avspark.
+Den som tippade **Spanien** att slå **Kap Verde** rakt av – ja, alla vi som gjorde det – borde skämmas lite lagom. Inte för att det var ett dumt tips. Men 0–0 mot Kap Verde är ett resultat som borde omöjliggöras i regelboken. Jag säger inte att jag har lösningen. Men.
 
 ---
 
 ## Brittans fundering
 
-Sverige förlorade mot Nederländerna med fem mål. Det gör ont. Men vi slog Tunisien med fem mål samma dag. Det är fotboll. Det ger och det tar. Precis som 1994 gav oss brons och tog bort oss från toppen.
-
-Det finns något vackert i det ändå.
-
-Eller så är det kaffet som pratar.
-
----
-
-## Slutord från Farsta
-
-Håll er varma, VM-vänner. Bosse jagar fortfarande duvan. Norge är vidare. Wilma leder. Johan kämpar.
-
-Och Bajen är fortfarande bäst.
-
-Det är inte en åsikt. Det är ett grundvillkor.
-
-*– Brittan, Farsta*
+Det finns något vackert i att ett litet öland kan hålla Spanien till noll. Det påminner mig om gamla derbyn på Söderstadion – när Bajen mötte de stora och vägrade böja sig
