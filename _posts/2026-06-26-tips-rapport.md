@@ -6,54 +6,62 @@ date: 2026-06-26
 
 # God morgon VM-vänner – 26 juni 2026
 
-Kaffe nummer två är pågjutet. Bosse katten sitter i fönstret och stirrar på en duva med den koncentration som jag önskar att vissa tipsare hade lagt på sina spelkuponger. Lasse sover fortfarande. Det är hans förlust.
+Kaffe nummer två är pådraget. Lasse sover fortfarande. Bosse katten ligger på fjärrkontrollen och ser nöjd ut med sig själv. Det är sommar i Farsta, fåglarna sjunger och Sverige har spelat fotboll på natten.
 
-Det har hänt mycket i natt.
+Det är inte dåligt att vara vid liv.
 
 ---
 
 ## Nattens matcher
 
-Sverige vann! 5–1 mot Tunisien, herregud vad roligt det var att skriva. Det pirrar lite i gamla VM-minnen – 1994 kändes det ungefär så här, fast med bättre frisyrer. Sedan jagade Japan in 1–1 i sista matchen mot Sverige, vilket var lite surt, men gruppspelets drama är oförlåtligt vackert på det sättet.
+Låt oss börja med det viktigaste: **Sverige–Tunisien 5–1**. Fem mål. Fem. Det där är en åttiotalssiffra på ett nittiotalslag med tvåtusentalets speluppfattning. Jag fick gåshud. Sedan fick jag se **Japan–Sverige 1–1** och kom ner på jorden igen. Det är VM. Det svänger.
 
-Norge slog Senegal 3–2. Jag tittar inte på Norge för Hålands skull, det har jag aldrig gjort. Men pojken levererar och det är svårt att blunda för. Lasse frågade varför jag hade norsk matchstatistik uppfäktet på skärmen klockan elva i går kväll. Jag sa att jag kollade gruppställningen. Han såg inte övertygad ut.
+**Norge vann mot Irak med 4–1** och sedan **3–2 mot Senegal**. Håland spelade förstås. Pojken rör sig som om marken är hans. Jag tittar på Norge för fotbollens skull. Att det råkar vara underhållande kan jag inte hjälpa.
 
-Spanien som inte kunde slå Kap Verde. Brasilien som kryssade mot Marocko. Ecuador som slog ut Tyskland. Det är därför vi älskar fotboll.
+Lasse frågade om jag sett de där glasögonreklamen igen. Jag sa att jag jämförde linsstyrkor. Han trodde mig inte.
+
+**Tyskland–Curaçao 7–1** är det man kallar effektivitet. **Spanien–Saudiarabien 4–0** likaså. Och så **Ecuador–Tyskland 2–1** som ett litet fotbollsunder som påminner om varför man aldrig ska gå och lägga sig vid halvtid.
 
 ---
 
 ## Tipskollen
 
-Samuel L leder med 88 poäng av 194 och det är en fin prestation. Wilma på 85, sedan ett tätt klunger. Längst ner hittar vi Andreas2 på 61 poäng – det är inte en siffra, det är ett ärr.
+**Samuel L leder med 88 rätt** av 194. Det är en hyfsad siffra. Respekt, även om jag inte vet vem han är.
 
-**Johan Nilsson** (J Nilsson) ligger på 75 poäng. Det ser inte lysande ut på pappret, men jag har läst hans rad och jag ser vad han försökte göra. Han tippade kryss på Frankrike–Senegal och det hade faktiskt känts logiskt om Senegal var Senegal. Tanken var rätt. Fotbollen var tyvärr inte det.
+**Wilma på 85**, **Andreas1 och Mollie på 83**. Fint sällskap i toppen.
 
----
+Och sen har vi **J Nilsson på 75 poäng**.
 
-## Dagens ros
+Johan. Min Johan.
 
-Samuel L. Sitter på toppen med 88 rätt och verkar ha en magkänsla som fungerar bättre än de flesta andras hjärnor. Hatten av.
+Jag ska vara ärlig. Raden har inte hängt med riktigt som vi hoppats. Ecuador–Tyskland tippad X, utfall 1. Norge–Senegal tippad X, utfall 1. Det är som att stå utanför Söderstadion och höra jublet inifrån utan att ha biljett.
+
+Men tanken bakom tipsen är ofta rätt. Det är bara fotbollen som struntar i logik ibland. Det är inte Johans fel. Det är fotbollens fel.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippade Paraguay att slå Australien. Och sedan fick 0–0. Det finns ett slags mod i det. Ett felriktat, lättvindigt mod – men ändå.
+**Andreas2 med 61 poäng**. Tjugosju poäng efter ledaren. Det är inte ett tippningsfel, det är en livsstil. Jag hoppas han åtminstone äter gott.
 
 ---
 
 ## Brittans fundering
 
-Sverige 5–1. Norge 3–2. Frankrike 3–1. Det är fotboll med ryggrad. Det är matcher som Kenta hade nickat gillande åt uppe på Söderstadion. Det finns något vackert i ett VM där underdog och stormakt växlar om att förvåna en.
+1994 vann Sverige brons. Vi spelade fotboll med hjärta, frisyrer och Tomas Brolin som fortfarande trodde att han var oslagbar. Ibland när Sverige vinner med 5–1 känner jag att något av den sommaren lever kvar.
 
-Bajen hade förstås gjort det snyggare.
+Japan–Sverige slutade 1–1. Det hade aldrig hänt 1994.
+
+Eller jo. Men då hade det åtminstone hänt med bättre frisyrer.
 
 ---
 
 ## Slutord från Farsta
 
-Ha en fin dag, VM-vänner. Håll ögonen på tabellen. Håll Johan om ryggen – han hittar rätt snart. Och Andreas2: det är aldrig för sent att börja om.
+Bosse katten har vaknat och vill ha frukost. Lasse är uppe och muttrar om väderleksrapporten. Allt är som det ska.
 
-Bosse katten fick sin frukost. Ordning och reda.
+Sverige lever i VM. Norge vinner matcher. Håland finns till.
+
+Det finns något vackert i det.
 
 *– Brittan, Farsta*
