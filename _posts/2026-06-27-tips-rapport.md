@@ -4,62 +4,54 @@ title: "VM-tips 2026-06-27"
 date: 2026-06-27
 ---
 
-# God morgon VM-vänner – 27 juni 2026
+# God morgon VM-vänner – lördag 27 juni 2026
 
-Kaffe nummer två. Lasse sover fortfarande. Bosse katten sitter och stirrar på väggen som om han också försöker förstå hur Spanien kunde krångla ihop 0–0 mot Kap Verde.
+Kaffet är påsatt. Bosse katten ligger i fönstret och stirrar på en duva. Lasse sover fortfarande. Och jag har suttit uppe för länge och tittat på matcher som gett mig lika många känslor som ett klassiskt Bajenderby.
 
-Det är VM. Det är midsommarens efterdyningar. Och det är morgon i Farsta.
+Det är det är det här som är livet.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja?
+Börjar med det viktigaste: **Sverige vann med 5–1 mot Tunisien**. Fem mål! Jag satt och grinade som om det vore 1994 igen. Brolin är borta men känslan är densamma. Sedan krånglade det till sig – Japan och Sverige spelade 1–1 i gruppens sista omgång, vilket smakade lite surt. Men vi är vidare och det är det som räknas.
 
-**Sverige–Japan** slutade 1–1, och det river lite i hjärtat. Vi hade 5–1 mot Tunisien i bagaget, vi var på G – och sedan kom Japan och påminde oss om att fotboll är orättvist och fint på samma gång. Det finns något vackert i det. Men inte just nu.
+**Norge slog Irak med 4–1.** Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Men pojken spelade bra. Väldigt bra. Lasse frågade varför jag log åt Hålands närbild på TV. Jag sa att jag tänkte på en taktisk detalj. Han såg inte övertygad ut.
 
-**Norge–Frankrike** slutade 1–4. Det gör ont. Erling och grabbarna kämpade, men Les Bleus var för starka den natten. Jag säger inte att jag har lösningen. Men jag tittar ändå på norska turneringen med ett öga som inte är helt objektivt. Kan inte hjälpa det.
+**Tyskland körde över Curaçao med 7–1**, vilket var ungefär lika förutsägbart som att Göteborgare berättar om Allsvenskan. **England slog Kroatien med 4–2** – lite slarvig defensiv men med ett hjärta på rätt ställe. **Frankrike vann mot Senegal med 3–1** och ser farliga ut.
 
-**England–Ghana** 0–0. Feg fotboll av ett lag som borde bättre. Det där hade aldrig hänt 1994.
-
-**Ecuador–Tyskland** 2–1 var kväll turnerings överraskning. Ecuador som körde över det tyska maskineriet. Hade Ravelli stått i mål för Ecuador hade han nog ändå hållit nollan, men nu alltså.
-
-**Kanada–Qatar** 6–0. Ja. Sex. Det är många mål.
+Sen finns det en del frågetecken. **Spanien-Kap Verde slutade 0–0.** Noll–noll. Mot Kap Verde. Bajen hade gjort det snyggare.
 
 ---
 
 ## Tipskollen
 
-Wilma leder med 94 poäng och Mollie haknar i häl på 93. Samuel L på 92. Det är tätt i toppen och det är som det ska vara.
+**Wilma leder med 90 rätt** och hon förtjänar all heder. Sharp huvud, den Wilma.
 
-Längst ner hittar vi **Andreas2 på 66 poäng av 213 möjliga**. Det är… modigt av en annan sort.
+**Samuel L:a på 89** och **Mollie på 87** – dessa tre håller tätt i toppen. Respekt.
+
+Och så **J Nilsson. Johan.** Min hjärtans favorit med sina 78 poäng. Johan, Johan, Johan. Du hade rätt om Mexiko–Sydafrika, USA–Paraguay, Qatar–Schweiz och Brasilien–Marocko. Bra känsla för det stora. Det är bara Australien–Turkiet, ett halvt dussin kryssar och hela Norge-spåret som saboterade. Men tanken var rätt. Den var det.
 
 ---
 
 ## Dagens ros
 
-**J Nilsson – vår Johan** – 80 poäng totalt. Inte toppen av ligan, men mannen har en röd tråd i sitt tänk. Han hade rätt på Mexiko–Sydafrika, USA–Paraguay, Qatar–Schweiz, Brasilien–Marocko och ett antal andra. När Johan har rätt har han *rätt på rätt sätt*. Han ser matchbilden. Han förstår fotboll. Resultaten ger honom inte alltid rättvisa.
+**Wilma.** Klart. Hon leder VM-tippningen som om hon har en hemlig förbindning med tränarbänkarna.
 
 ---
 
 ## Dagens stolleprov
 
-Johan tippade **Australien–Turkiet** till 2 (dvs Turkiet-seger) – det blev 2–0 till Australien. Det är att ha rätt tanke i fel kropp. Hände oss alla 1994 när vi trodde att Brasilien skulle vinna enkelt och de höll på att åka ut mot Sverige.
+Den som tippade att **Spanien skulle krossa Kap Verde** och fick se en 0–0-fiasko. Ni vet vilka ni är. Jag säger inte att jag har lösningen. Men det börjar med att sluta tro att storlag automatiskt levererar.
 
 ---
 
 ## Brittans fundering
 
-Spanien 0–0 mot Kap Verde. Jag har sett värre. Men inte ofta. Det är ett av de där resultaten som påminner mig om att fotboll spelas av människor, inte av rankinglistor. Bajen hade spelat med mer hjärta. Det är inte en åsikt. Det är ett grundvillkor.
+Det finns något vackert i att fotboll ständigt visar oss hur fel vi kan ha. Spanien mot Kap Verde. Det är därför vi älskar fotboll. Och det är därför jag inte slutar titta – varken på VM, på Bajen, eller på Hålands brillor på Instagram.
+
+Det sistnämnda är ren bågjämförelse. Inget annat.
 
 ---
 
-## Slutord från Farsta
-
-Norge förlorade mot Frankrike. Men de vann mot Senegal 3–2 och mot Irak 4–1. Det är ett Norge som kämpar. Det är ett Norge med en anfallare som… spelar bra fotboll. Ja. Det är vad jag sa.
-
-Lasse frågade igår varför jag googlade "bågbyte glasögon Håland". Jag sa att det var för synen. Han såg inte övertygad ut.
-
-Ha en fortsatt fin VM-lördag.
-
-*// Brittan, Farsta
+*Puss från Farsta. Bosse katten hälsar. Lasse med, tror jag.*
