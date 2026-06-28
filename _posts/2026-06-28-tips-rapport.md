@@ -4,54 +4,62 @@ title: "VM-tips 2026-06-28"
 date: 2026-06-28
 ---
 
-# God morgon VM-vänner – söndag 28 juni 2026
+# God morgon VM-vänner – 28 juni 2026
 
-Kaffe nummer två är pågjutet, Bosse sitter i fönstret och stirrar på en duva med en intensitet som påminner mig om hur Ravelli brukade läsa straffar. Lasse sover fortfarande. Det finns en logik i det.
+Solen är uppe tidigt i Farsta. Kaffe är gjort. Bosse katten har redan vandrat iväg från TV-soffan, troligtvis i protest mot gårdagens resultat. Lasse sitter och läser tidningen och låtsas inte bry sig. Men jag såg att han kollade slutresultaten ändå.
+
+Det är ett VM som håller oss vakna. Och jag har sett värre.
 
 ---
 
 ## Nattens matcher
 
-Sverige vann med 5–1 mot Tunisien. Jag läste det tre gånger. Sedan log jag så att kinderna värkte. Det är inte 1994, det är inte Brolin mot Kamerun – men det finns något vackert i det. Sverige spelar fotboll igen, ordentlig fotboll, och det värmer en gammal Farstagudmor i hjärtat.
+Sverige! Sverige, Sverige, Sverige. 5–1 mot Tunisien. Fyra mål mot Japan i nästa match, fast där slutade det 1–1. Och sedan... 5–1 förlust mot Nederländerna. Det är VM-fotboll. Det givande och det tagande i samma sittning.
 
-Sedan tog Nederländerna och krossade oss med 5–1. Japan kryssade med oss. Det är VM. Fotboll spelas av människor, och ibland gör de oss ödmjuka.
+Norge slog Irak med 4–1. Självklart. Håland och grabbarna rullar på. Jag säger inte att det är Erlings förtjänst specifikt. Det är lagets förtjänst. Att pojken råkar se ut som en vikingahövding och göra mål i drivor är en annan sak. Lasse frågade varför jag hade Norges matcher inzoomade på skärmen. Jag sa att det var för att bildkvaliteten var bättre på den kanalen. Han såg inte övertygad ut.
 
-Norge slaktade Irak med 4–1 och vann sedan mot Senegal med 3–2. Det är nordisk arbetsmoral när den är som bäst. Rakryggad, rättfram och effektiv. Att Håland ser ut som en vikingahövding när han lyfter blicken mot mål är ju irrelevant för fotbollsanalysen. Helt irrelevant. Lasse behöver inte kommentera det.
+Ecuador slog sedan Tyskland med 2–1. Det där hade aldrig hänt 1994. Eller jo, kanske. Men då med bättre hårfärg på alla inblandade.
 
-Tyskland mot Ecuador slutade 2–1 till Ecuador. Det där hade aldrig hänt 1994. Eller jo – men då hade det åtminstone hänt med bättre frisyrer.
-
-England kryssade mot Ghana. Spanien kryssade mot Kap Verde. Brasilien kryssade med Marocko. Det är mycket kryss i det här VM:et. Ibland känns det som att hälften av lagen är rädda för att förlora istället för hungriga på att vinna. Feg fotboll. Bajen hade spelat på att ta tre poäng.
+Spanien vann 4–0 mot Saudiarabien. Frankrike 3–1 mot Senegal. Fotboll kan vara vacker när den vill. Det är därför vi älskar den.
 
 ---
 
 ## Tipskollen
 
-Samuel L och Wilma leder med 102 rätt av 234. Imponerade. Riktigt imponerade.
+Samuel L och Wilma toppar tillsammans med 102 rätt av 234. Det är respektingivande. Hatten av.
 
-**J Nilsson** – vår Johan – sitter på 89 rätt. Det ser modest ut, men jag har granskat hans rad. Han tippade rätt på Sverige–Tunisien, rätt på Norge–Irak, rätt på Argentina. Det är inte en dum rad. Det är en rad med hjärta och en och annan olycklig kryss som inte föll ut. Fotbollen var med honom. Resultatet var det inte alltid. Det är skillnad.
+Mollie på tredje med 101. Andreas1 och Anna på 99. Fin tätgrupp.
+
+Och så Johan. **J Nilsson: 89 rätt av 234.**
+
+Jag ska inte ljuga. Det är inte toppskiktet. Men Johan har det svårt av precis rätt anledningar – han tänker för mycket. Han tippade X på Norge–Senegal. Hjärtat ville säga 1, men förnuftet vek sig. Förnuftet har så ofta fel i fotboll, Johan. Det vet vi båda.
 
 ---
 
 ## Dagens ros
 
-Samuel L och Wilma delar topplatsen och det förtjänar en riktig applåd. Stark matchbild, träffsäkra utfall. Ingen slump.
+**Samuel L och Wilma**, hand i hand i toppen. Starka som en mittback-duo på Söderstadion. Det finns något vackert i det.
 
 ---
 
 ## Dagens stolleprov
 
-Andreas2 på 74 rätt av 234. Käre Andreas. Jag vill inte vara hård. Men 74 av 234 är... det är ett eget facit. Det finns mod i att fortsätta lämna in tips. Det finns nästan något rörande i det. Nästan.
+**Andreas2: 74 rätt av 234.**
+
+Inte syrligt menat. Ärligt menat. Det är ett resultat som kräver viss konst att åstadkomma. Jag säger inte att jag har lösningen. Men... kanske titta mer och tippa mindre?
 
 ---
 
 ## Brittans fundering
 
-Sverige vann med 5–1 och förlorade med 1–5. Samma turnering, samma lag, helt olika kvällar. Det är fotboll. Det är livet i Farsta också, om man tänker efter. En dag är allt sol och Bajens tre poäng. Nästa dag regnar det och Lasse har ätit upp sista knäckebrödet.
-
-Det finns något viktigt i den ojämnheten. Det håller oss vakna.
+Sverige spelar som ett lag som inte riktigt vet vad det vill bli. Starka mot Tunisien. Oavgjort mot Japan. Krossade av Nederländerna. Det påminner om Bajen på ett dåligt år – alla möjligheter i världen, men ändå lite för mycket hjärta och lite för lite struktur. Det finns något vackert i det också, faktiskt.
 
 ---
 
 ## Slutord från Farsta
 
-Norway–Frankrike slutade 1–4 till Frankrike. Det gör ont. Men Norge vann mot Senegal och det räcker länge. Håland kämp
+Bosse katten är tillbaka. Han lade sig på Norge-tidningen. Jag tolkar det som ett gott tecken.
+
+Ha en fin söndag allihop. Även du, Andreas2.
+
+*– Brittan, Farsta*
