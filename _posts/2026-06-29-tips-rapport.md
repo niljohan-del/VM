@@ -4,54 +4,63 @@ title: "VM-tips 2026-06-29"
 date: 2026-06-29
 ---
 
-# God morgon VM-vänner – 29 juni 2026
+# God morgon VM-vänner! | 29 juni 2026
 
-Det regnar i Farsta. Bosse katten sitter i fönstret och stirrar på vattnet som rinner utmed glasrutan med en min som säger att han förväntade sig bättre. Jag håller med. Lasse sover fortfarande. Kaffet är klart. Vi kör.
+Kaffet är på. Bosse katten ligger och maler på tidningen. Lasse sover fortfarande – han stannade uppe för att se Norge mot Frankrike och tog det inte bra. Mer om det senare.
+
+Det händer saker nu, kära VM-vänner. Det händer riktiga saker.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Japan slutade 1–1. Det är okej. Det är inte bra, men det är okej. Jag har sett värre. Jag har också sett bättre, framför allt sommaren 1994 när Brolin och Dahlin fick hela Farsta att dansa i regnet. Men det var en annan tid med bättre frisyrer.
+Låt oss börja med det självklara: **Sverige–Japan slutade 1–1**. Jag har sett värre. Jag har också sett bättre. Det var en match som liksom inte riktigt visste vad den ville vara. Sverige hade tagit 5–1 mot Tunisien tidigare i gruppen, det var vackert det. Men Japan är ett annat djur. Tekniska, disciplinerade, tålmodiga. Krysset kändes ärligt.
 
-Norge vann mot Senegal med 3–2. Norge! Det är det nordiska blodet, det är fjällen, det är den raka, pålitliga fotbollen. Att en viss lång pojke med utmärkt bentäckning och, vad ska man säga, klassiska vikingadrag var med och ställde till det för Senegal är naturligtvis helt ointressant för mig. Jag tittar på fotboll, inte på spelare. Det vet Lasse.
+**Norge vann mot Senegal, 3–2.** Och mot Frankrike? Jo, förlust 1–4, men de kämpade med nordisk stolthet och raka rör. Det finns något vackert i det. Lasse påstod att Norge saknar klass. Lasse har haft fel förr.
 
-England slog Kroatien 4–2. Frankrike körde över Senegal 3–1. Spanien demolerade Saudiarabien 4–0. Kort sagt: de stora lagen levererade. Det finns något vackert i det – även om Spanien ibland spelar som om de hyrt ut halva passningsspelet till ett redovisningsbolag.
+**Tyskland åkte ut efter 2–1 mot Ecuador.** Sju mål mot Curaçao räcker tydligen inte för att köpa dig resten av turneringen. Det där hade aldrig hänt 1994. Eller jo, men då hade det åtminstone hänt med bättre frisyrer.
 
-Ecuador slog Tyskland 2–1. Det var storvullet. Bajen hade gjort det snyggare, men ännu modigare? Knappast möjligt.
+**England–Ghana slutade 0–0.** Feg fotboll. Bajen hade gjort det snyggare.
 
 ---
 
 ## Tipskollen
 
-Wilma leder med 104 rätt av 237. Stark. Samuel L och Mollie hänger på med 102 vardera. Det är ett tätt sällskap där uppe och det är befogat beröm till alla tre.
+Topplistan just nu:
 
-Vår Johan – J Nilsson – sitter på 89 rätt. Det är inte tabelltoppen, kära vänner, men det är inte Johan som är problemet. Det är fotbollens oberäknelighet. Mannen tippade rätt på Uzbekistan–Colombia. Vem annan vågade det? Ingen. Det är därför vi älskar Johan.
+🥇 **Wilma** – 104 rätt. Suverän. Oförskämt bra faktiskt.
+🥈 **Samuel L och Mollie** – 102 rätt. Tight i toppen.
+
+Och **J Nilsson** – vår Johan alltså – sitter på **89 rätt av 237**. Det är inte tabelltoppen, det ska jag inte låtsas om. Men Johan tippade rätt på *känslan* i många matcher. Ibland är det ödet och inte läsningen det är fel på.
 
 ---
 
 ## Dagens ros
 
-Wilma. 104 poäng och hon ser inte ens ut att anstränga sig. Respekt.
+**Wilma** tar rosetten idag. Hårt, konsekvent, träffsäkert. Respekt.
 
 ---
 
 ## Dagens stolleprov
 
-Andreas2. 76 rätt av 237. Det är inte lätt att säga det, men siffrorna ljuger inte. Jag säger inte att jag har lösningen. Men jag antyder att man kanske ska sluta tippa med hjärtat och börja tippa med hjärnan.
+Varje gång **Spanien** spelar och någon tippar 1 och det blir X. Det har hänt upprepade gånger nu. Spanska gruppen verkar ha orsakat kollektiva spelteoretiska sammanbrott i tipset. Man behöver inte vara Einstein – men lite extra ödmjukhet inför Saudiarabien hade inte skadat.
 
 ---
 
 ## Brittans fundering
 
-Norge vann. Sverige spelade oavgjort. Håland levererar. Världen är hyfsat begriplig i morse.
+Norge förlorade mot Frankrike. 1–4. Jag satt ändå kvar vid teven. Det är svårt att förklara varför. Håland kämpade. Han springer som om han bär hela Skandinavien på axlarna. Enormt. Lasse frågade varför jag hade tagit fram mina glasögon mitt i natten. Jag sa att jag hade svårt att se planen ordentligt.
 
-Jag kollade upp de där glasögonen igen förresten. Det är verkligen praktiska bågar.
-
-Lasse frågade varför. Jag sa att jag jämförde optik.
-
-Han trodde mig inte. Han har haft fel förr.
+Han såg inte övertygad ut.
 
 ---
 
-*Puss och kram från Farsta. Det finns bara ett Bajen.*
+## Slutord från Farsta
+
+Sverige är kvar. Norge är kvar. Det är en bra måndag.
+
+Bosse katten godkände kvällens matcher med ett halvt öga. Det är mer än han brukar ge.
+
+Ha det fint, allihopa. Vi ses imorgon bitti – med kaffe, kärlek och ett nytt omgång VM-fotboll.
+
+*// Brittan, Farsta*
