@@ -6,9 +6,7 @@ date: 2026-07-02
 
 # God morgon VM-vänner – 2 juli 2026
 
-Kaffe. Morgonrock. Farsta i dimma.
-
-Bosse satt och stirrade på mig när jag satte mig vid datorn vid halv sex. Som om han visste vad som hänt i natt. Som om han hade sett matcherna. Katten har bättre fotbollssinne än hälften av tipskompaniet, ska jag säga.
+Kaffe nummer två är pådraget, Bosse katten sitter i fönstret och stirrar på en duva med mer fokus än vad många tipspanelister verkar ha ägnat åt sina kryss i natt. Lasse sover fortfarande. Han missar dramatiken, som vanligt.
 
 ---
 
@@ -16,54 +14,36 @@ Bosse satt och stirrade på mig när jag satte mig vid datorn vid halv sex. Som 
 
 Var ska man börja?
 
-**Sverige–Japan slutade 1–1.** Jag andas. Jag dricker kaffe. Jag andas igen. Vi har alltså ett landslag som kan ta poäng mot Japan, men inte vinna. Bajen hade stängt av dem i halvtid. Men det är vad det är.
+**Sverige–Tunisien 5–1.** Jag grät lite. Det förtjänar jag att erkänna. Fem mål! I ett VM! Det har inte känts så här sedan Kennet Andersson prickade in det mot Rumänien 1994 och hela Farsta exploderade. Sverige spelade framåt, snabbt och med hunger. Brolin hade gillat det.
 
-**Nederländerna–Marocko** blev 3–4. Jag läste det tre gånger. Marocko vann på Nederländerna. Det finns något vackert i det.
+Sen kom **Nederländerna–Sverige 5–1** och tog en del av glansen. Javisst. Men Japan–Sverige slutade 1–1, och gruppen bjöd på mer drama än en lördagskväll på Söderstadion under ett kvalderby. Det är därför vi älskar fotboll.
 
-**Norge–Senegal** slutade 3–2. Hjärtat. Jag säger inte att jag hoppade upp från soffan. Men Lasse kom in och frågade vad det var för ljud. Norge kämpade, Norge vann. Som det ska vara. Håland med glasögon hade nog gjort skillnad där också, men det är en annan historia.
+**Norge slog Irak 4–1** och Frankrike 4–1 vann mot Norge senare i gruppen. Håland och grabbarna gav allt. Det är något med norsk arbetsmoral – rak, enkel, effektiv. Fjällen fostrar karaktär. Att Håland springer som en frigjord naturkraft har förstås ingenting med saken att göra. Ingenting alls.
 
-**Ecuador slog Tyskland 2–1.** Det där hade aldrig hänt 1994. Eller jo. Men inte med lika förvånade tyskar.
-
-**Turkey–USA 3–2.** Paraguay slog Australien 0–0. Fotboll är ett konstigt och fantastiskt spel.
+**Ecuador slog Tyskland 2–1.** Jag har sett värre. Men sällan av Tyskland. Bosse lämnade rummet när jag försökte förklara det för Lasse. Det säger ändå något.
 
 ---
 
 ## Tipskollen
 
-Ledningen ser ut så här: **Wilma på 124**, **Mollie på 123**, **Samuel L på 122**. Tätt i toppen. Hårt tryck.
+**Wilma leder med 124 rätt av 276.** Starkt. Riktigt starkt. Mollie andas henne i nacken på 123, och Samuel L håller sig tätt på 122. Det är ett jämnt race i toppen och jag respekterar alla tre.
 
-**J Nilsson – 103 poäng.** Johan. Min Johan. Jag tittar på hans rad och jag ser en människa som har *funderat*. Djupt. Ibland för djupt. Han missade Norge–Senegal, tippade kryss. Tanken var rätt – det är en jämn grupp. Resultatet var fel. Det är inte Johans fel att Norge bestämde sig för att spela fotboll just den kvällen.
+**J Nilsson – alltså Johan – har 103 rätt.** Och med den här raden förstår man varför. Norgetripparna gav inget, flera kryssiga grupper slog tillbaka, och Australien vann när Johan trodde de skulle förlora. Men tanken var rätt, Johan. Australien *borde* ha förlorat mot Turkiet. Fotboll är orättvis ibland.
 
-Johan hade fel. Men på ett väldigt genomtänkt sätt.
-
----
-
-## Dagens ros
-
-**Wilma** håller toppen med 124 rätt av 276. Det är lugnt, det är stabilt, det är bra fotbollsförstånd. Hattips.
-
----
-
-## Dagens stolleprov
-
-Den som tippade Paraguay vinna över Australien i gruppen och sen förlorade på att Australien faktiskt vann – ja, ni vet vilka ni är. Fotboll spelas av människor. Inte av kalkylblad.
+**Andreas2 ligger sist med 90 rätt.** Av 276. Jag säger inte att jag har lösningen. Men jag anar att han behöver fundera på om det är tipsstrategi eller lag han bör byta.
 
 ---
 
 ## Brittans fundering
 
-Norge vann mot Senegal. 3–2. Med hjärta och nordisk envishet.
-
-Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar se ut som en vikingahövding kan jag inte hjälpa.
-
-Lasse frågade varför jag hade hans Wikipedia-sida öppen. Jag sa att jag kollade statistik. Han såg inte övertygad ut.
+Sverige är kvar i turneringen med ryggen mot väggen. Det gillar jag. Bajen har lärt mig att man aldrig ger upp, även när allt känns hopplöst. Söderstadion har sett mörkare stunder. Det finns något vackert i ett lag som reser sig.
 
 ---
 
 ## Slutord från Farsta
 
-Bosse katten sov hela andra halvlek av Sverige–Japan. Det säger ändå något.
+Ha en fin torsdag, allihopa. Kom tillbaka imorgon – det är **fredag** och då bjuder jag på en längre genomgång och ett ordentligt ölstips.
 
-Ha en fin dag, allihopa. Även ni göteborgare.
+Johan – håll ut. Fotboll spelas av människor. Även av norrmän med bra glasögon.
 
 *// Brittan*
