@@ -4,46 +4,46 @@ title: "VM-tips 2026-07-03"
 date: 2026-07-03
 ---
 
-# God morgon VM-vänner – 3 juli 2026
+# God morgon VM-vänner – 3 juli 2026!
 
-Kaffe nummer två är på. Lasse sover fortfarande. Bosse katten sitter i fönstret och tittar ut på Farstaregnet som om han funderar på livets mening. Jag sitter här med en hel natt av fotboll i kroppen och vet inte riktigt var jag ska börja.
+Kaffe. Halvt kallt. Bosse sitter och stirrar på mig som om han visste något jag inte vet. Lasse snarkar fortfarande. Det är halv åtta på morgonen och jag har redan hunnit bli både glad, upprörd och lite rörd av gårdagens fotboll.
 
-Det är fredag förresten. **FREDAG.** Och det är skäl nog att ta en bärs ikväll. Jag rekommenderar Norrlands Guld Export. Enkel, pålitlig, rak. Precis som god fotboll ska vara.
+Välkommen till Brittans VM-blogg, förresten. Jag borde ha presenterat mig ordentligt från dag ett, men ni får ta mig som jag är. Jag heter Britt-Marie Andersson, kallas Brittan, bor i Farsta, är pensionerad sportjournalist och har sett mer fotboll än vad som är hälsosamt. Jag håller på Bajen. Det är inte en åsikt. Det är ett grundvillkor.
 
 ---
 
-## Nattens matcher – ett batteri av mål och kaos
+## Nattens matcher
 
-Vad var det som hände egentligen? Sverige åkte på en stryk mot Nederländerna, 5–1. Det gör ont. Det ska göra ont. Men Japan kvittade sedan mot Sverige, 1–1, och det lindrar lite. Norge slog Senegal 3–2 i en match som fick hjärtat att rusa. Håland var givetvis inblandad. Han springer som en vikingahövding som missat sista båten hem. Jag tittar inte för hans skull. Det är fotbollen. Men glasögonreklamen kollade jag på igen i morse. Lasse frågade varför. Jag sa att jag jämförde bågar.
+Sverige mot Japan slutade 1–1. Helt okej, men jag vill ha mer. Vi slog Tunisien med 5–1 tidigare, vilket var en fröjd, men Frankrike körde sedan över oss med 3–0. Fransmännen är bra. Det är irriterande.
 
-Tyskland åkte på en chock mot Ecuador – 2–1 – och Paraguay smällde dit fem mot tyskarnas fyra i en annan match. Det är därför vi älskar fotboll.
+Norge vann mot Irak 4–1 och mot Senegal 3–2. Pojkarna från norr levererar. Det finns något rakt och pålitligt med det norska spelet. Som fjäll. Lasse frågade varför jag log när Haaland dök upp på skärmen. Jag sa att jag tänkte på offside-regeln.
+
+Tyskland fick 7–1 mot Curaçao men sedan 2–1 mot Elfenbenskusten och förlorade sensationellt 1–2 mot Ecuador. Det är därför vi älskar fotboll. Schweiz körde sedan 4–1 mot Bosnien och 2–0 mot Algeriet och verkar ha mer kvar i tanken. Spanien gubade sig till ett hyfsat facit men fick 0–0 mot Kap Verde vilket är lite pinsamt. Det hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone sett bättre ut.
 
 ---
 
 ## Tipskollen
 
-I toppen solar sig **Wilma** med 128 rätt av 282. Grattis, även om det smärtar lite att säga det. Tätt bakom följer **Mollie** och **Samuel L**. Fint. Riktigt fint.
+I toppen tronar **Wilma** med 128 rätt, **Mollie** med 127 och **Samuel L** med 126. Stark leverans, allihopa. Wilma håller i ledartröjan med klass.
 
-Sedan har vi **J Nilsson** – det vill säga Johan – på 107 rätt. Det ser tufft ut i tabellen, och jag ska inte ljuga om siffrorna. Men jag har följt Johans rad och det finns en logik där som inte alltid belönas. Han tippade Brasilien–Marocko rätt vid ett tillfälle. Han såg saker andra missade. Fotboll spelas av människor, och ibland är det olyckorna som avgör, inte tanken.
+Vår käre **J Nilsson** – det vill säga Johan – ligger på 107 rätt. Det är inte tabelltoppsnivå, men Johan tippar med hjärta och fotbollsförståelse. Han missade Norges riktning rätt genomgående – tippade kryss när pojkarna körde hem vinster. Tanken var rätt, magkänslan lite fel. Otur är också en förklaring. Fotboll spelas av människor.
 
-Johan hade rätt på ett väldigt genomtänkt sätt. Det är bara inte alltid tabellen förstår det.
+**Andreas2** landar på 93 rätt av 282. Jag säger ingenting. Jag behöver inte säga någonting. Siffrorna säger det åt mig.
+
+---
+
+## Dagens ros
+
+**Wilma** får roset idag. 128 rätt är inte en slump. Det är disciplin, fotbollsblick och förmodligen ett välorganiserat Excel-ark.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2** med 93 rätt av 282. Det är ett snitt som kräver viss talang för att uppnå. Jag säger inget mer. Jo, en sak – det är ett djärvt projekt.
+Den som tippade Paraguay att slå Australien – och fick 0–0 – vet själv. Jag säger inte mer. Bosse katten lämnade rummet. Det säger ändå något.
 
 ---
 
-## Brittans fredagsfundering
+## Brittans fundering
 
-Norge är vidare. Håland springer. Jag dricker kaffe. Lasse sover.
-
-Det finns något vackert i det.
-
-Bajen hade spelat det hela snyggare. Men det är en annan historia.
-
-Ha en fin fredag, allihopa. Ta en bärs ikväll. Det har ni förtjänat.
-
-*– Brittan, Farsta*
+Norge vann mot Senegal 3–2 igår. Det var dramatiskt och vackert och lite kaotiskt. Det påminde mig om Hammarby mot Djurgården på Söderstadion en sen oktoberkväll. Publiken som vägrar ge upp. Spelarna som
