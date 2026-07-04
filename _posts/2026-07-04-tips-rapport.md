@@ -6,54 +6,54 @@ date: 2026-07-04
 
 # God morgon VM-vänner – 4 juli 2026!
 
-Kaffe nummer två är hällt. Bosse katten har redan tagit sin plats i soffan och vägrar flytta på sig. Lasse sover fortfarande. Det regnar i Farsta. Fotboll-VM dundrar vidare.
+Kaffet är på. Bosse katten sitter i fönstret och stirrar på en duva med samma intensitet som Håland stirrar på ett tomt mål. Lasse sov genom halvtiden av Norge–Frankrike men vaknade lagom till att missa allt. Det är ett slags talang, det också.
 
 ---
 
 ## Nattens matcher
 
-Vad ska man säga. Det var en natt som gav en gammal sportjournalist hopp och hjärtklappning i ungefär samma proportion.
+Sverige spelade 1–1 mot Japan. Jag vet inte om det är bra eller dåligt. Jag vet att 1994 hade vi inte nöjt oss med ett kryss. Men vi hade också Brolin. Det är en variabel man inte kan bortse från.
 
-**Sverige 5–1 mot Tunisien.** Jag behöver en stund med det där. FEM mål. I ett VM. Pojkarna spelade med en glöd jag knappt sett sedan... ja, ni vet. 1994. Brolin hade gråtit av glädje. Sedan satte **Japan** dit oss 1–1 i nästa omgång och **Frankrike** körde över oss 3–0. Och **Nederländerna** vann med 5–1 mot oss. Fotboll är ett slags organiserad hjärtekross, det är vad det är.
+Norge vann mot Ivory Coast med 2–1. Pojkarna från norr levererar. Inte alltid vackert. Men pålitligt, rakt och nordiskt. Det finns något vackert i det. Jag ska inte påstå att Håland var avgörande – men han var på planen, och det räcker som förklaring ibland.
 
-**Norge slog Irak 4–1.** Jag tittar inte för någon speciell spelares skull. Jag tittar för nordisk karaktär. Rak, ärlig fotboll. Att det råkar vara vackert att se är en annan sak. Lasse frågade vem jag vinkade åt i TV:n. Jag sa att det var ett generellt glädjeutbrott.
+Frankrike körde över Norge med 4–1 sedan. Det gör ont. Men man kan inte hålla på underdogen hela vägen. Ibland vinner Frankrike. Det är livets hårda villkor.
 
-**Tyskland 7–1 mot Curaçao.** Ordning och reda. Eller som vi sa i Bajen-sammanhang på Söderstadion en gång: det kallas inte dominans, det kallas respekt för spelet.
+Spanien kryssade mot Kap Verde (0–0). Spanien. Noll mål. Mot Kap Verde. Det hade inte hänt 1994. Eller jo, möjligen. Men då med bättre frisyrer.
 
-**Ecuador 2–1 mot Tyskland** däremot – det där var vackert. Underdogen som knäcker det stora maskineriet. Det finns något vackert i det. Det är därför vi älskar fotboll.
+Ecuador slog Tyskland med 2–1. Det är VM. Det är därför vi älskar fotboll.
 
 ---
 
 ## Tipskollen
 
-Tabellen ser ut så här i dag:
+Wilma leder med 136 rätt. Mollie andraetta med 135. Samuel L och Andreas1 delar tredje med 134. Stark tippning, allihopa. Wilma – hatt av.
 
-**Wilma** leder med 136 poäng. Starkt, stabilt, imponerande. **Mollie** på 135 och **Samuel L** på 134 hänger på tätt. Det är en tätgrupp som inte skänker någon nåd.
+Och så har vi **J Nilsson** med sina 115 poäng på 297 matcher.
 
-Och sedan har vi **J Nilsson** på 115 poäng.
-
-Johan. Käre Johan.
-
-Jag tittade på hans rad. Han tippade rätt på Mexiko–Sydafrika. Han tippade rätt på USA–Paraguay, Qatar–Schweiz, Brasilien–Marocko. Bra magkänsla på flera ställen. Men sedan – och jag säger detta med ömhet – tappade han greppet om Australien, Turkiet, Skottland, Uruguay och halva Latinamerika på en och samma gång.
-
-**Johan hade fel på ganska många matcher. Men på ett väldigt genomtänkt sätt.**
-
-Tanken var rätt. Universum samarbetade inte.
+Johan. Älskade Johan. Mannen tippade Norge att krossa Frankrike och fick 1 av Frankrike istället. Han tippade X mot Sydkorea och fick 1. Han tippade Paraguay att hålla USA och fick 4–1 i ansiktet. Men – och det här är viktigt – varje gång Johan tippar fel gör han det med en viss *dignitet*. Tanken är alltid rätt. Bollen är orättvis.
 
 ---
 
 ## Dagens ros
 
-**Wilma** tar dagens ros. Konsekvent, träffsäker, oberäknelig på rätt sätt. Det är den sortens tippande som påminner om bra fotboll: enkelt i grunden, men svårt att kopiera.
+Wilma toppar. Men hedern denna dag går till den som vågade tro på Ecuador mot Tyskland. Det är ett modigt tips. Det är fotboll med hjärta.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippade att **Brasilien–Marocko** var en given ettavinst men sedan ändrade sig tre gånger beroende på vilken sinnesstämning de befann sig i – ni vet vilka ni är. Det är inte magkänsla. Det är magproblem.
+Den som tippade Spanien att vinna mot Kap Verde med trygg marginal. Du vet vem du är. Kap Verde är inte ett semestermål. Det är ett fotbollslag. Lär dig det.
 
 ---
 
 ## Brittans fundering
 
-Sverige 5–1. Och ändå slutade vi med ett X mot Japan och en stryk av Frankrike. Det är VM. Det är fotboll. Det är livet i koncentrat
+Det här VM ger mig känslor jag inte känt sedan 1994. Inte för att det är lika bra. Men för att fotboll fortfarande kan överraska. Ecuador slår Tyskland. Kap Verde stoppar Spanien. Haiti hänger med tills det inte går längre.
+
+Bajen hade spelat med mer hjärta. Det är inte en åsikt. Det är ett faktum.
+
+---
+
+Puss och kram från Farsta. Bosse katten nickade precis till. Det tolkar jag som ett godkännande.
+
+*– Brittan*
