@@ -4,56 +4,42 @@ title: "VM-tips 2026-07-04"
 date: 2026-07-04
 ---
 
-# God morgon VM-vänner – 4 juli 2026!
+# God morgon VM-vänner – 4 juli 2026, och fotbollen sover aldrig
 
-Kaffet är på. Bosse katten sitter i fönstret och stirrar på en duva med samma intensitet som Håland stirrar på ett tomt mål. Lasse sov genom halvtiden av Norge–Frankrike men vaknade lagom till att missa allt. Det är ett slags talang, det också.
+Kaffe är hällt. Bosse katten sitter i fönstret och stirrar misstänksamt på grannens hund. Lasse snarkar fortfarande. Och jag? Jag har suttit uppe och följt matcher sedan i natt som om jag vore tjugofem igen.
 
----
+Det är det som fotboll gör med en.
 
 ## Nattens matcher
 
-Sverige spelade 1–1 mot Japan. Jag vet inte om det är bra eller dåligt. Jag vet att 1994 hade vi inte nöjt oss med ett kryss. Men vi hade också Brolin. Det är en variabel man inte kan bortse från.
+Låt oss börja med det självklara: **Sverige–Frankrike 0–3.** Jag säger inte att det var oväntat. Frankrike är Frankrike. Men det gör inte mindre ont. Det finns något vackert i att lida för sitt landslag. Lite Bajen-känsla över det hela.
 
-Norge vann mot Ivory Coast med 2–1. Pojkarna från norr levererar. Inte alltid vackert. Men pålitligt, rakt och nordiskt. Det finns något vackert i det. Jag ska inte påstå att Håland var avgörande – men han var på planen, och det räcker som förklaring ibland.
+Sen har vi **Norge–Senegal 3–2** – och förlåt mig, men jag tittade på den matchen med ett leende som Lasse tyckte var lite väl brett. Håland var inte med i kvällen, men pojkarna kämpade som om fjällen stod på spel. Det är därför vi älskar Norge. Eller, fotbollen med Norge. Man behöver inte blanda in några andra faktorer.
 
-Frankrike körde över Norge med 4–1 sedan. Det gör ont. Men man kan inte hålla på underdogen hela vägen. Ibland vinner Frankrike. Det är livets hårda villkor.
+**Nederländerna–Marocko 3–4** var kvällens stora chock. Marocko vann! Med 4–3! Mot Nederländerna! Det där hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone hänt med bättre frisyrer.
 
-Spanien kryssade mot Kap Verde (0–0). Spanien. Noll mål. Mot Kap Verde. Det hade inte hänt 1994. Eller jo, möjligen. Men då med bättre frisyrer.
-
-Ecuador slog Tyskland med 2–1. Det är VM. Det är därför vi älskar fotboll.
-
----
+**Paraguay–Australien 0–0** och **Ecuador–Curaçao 0–0** – feg fotboll, båda två. Bajen hade gjort det snyggare.
 
 ## Tipskollen
 
-Wilma leder med 136 rätt. Mollie andraetta med 135. Samuel L och Andreas1 delar tredje med 134. Stark tippning, allihopa. Wilma – hatt av.
+I toppen hittar vi **Wilma** på 136 rätt, **Mollie** på 135 och **Samuel L** samt **Andreas1** på 134. Stark, stark tipsprestanda. Wilma håller fortfarande i rodret och hon gör det med en rakhet som imponerar.
 
-Och så har vi **J Nilsson** med sina 115 poäng på 297 matcher.
-
-Johan. Älskade Johan. Mannen tippade Norge att krossa Frankrike och fick 1 av Frankrike istället. Han tippade X mot Sydkorea och fick 1. Han tippade Paraguay att hålla USA och fick 4–1 i ansiktet. Men – och det här är viktigt – varje gång Johan tippar fel gör han det med en viss *dignitet*. Tanken är alltid rätt. Bollen är orättvis.
-
----
+Och så har vi **J Nilsson** – det vill säga Johan – på 115 rätt av 297. Nu vet vi ju vad Johan gör: han tänker djupt. Han väger odds. Han resonerar. Och sedan tippade han X på Frankrike–Senegal när det blev 1, X på Norge–Senegal när det blev 1, och X på Norge–Frankrike när det också blev 1. Johan, älskling, Norge är inte ett kryss-lag just nu. Det är ett vinnarlags. Resultatet blev inte som Johan trodde. Matcherna borde däremot ha blivit det.
 
 ## Dagens ros
 
-Wilma toppar. Men hedern denna dag går till den som vågade tro på Ecuador mot Tyskland. Det är ett modigt tips. Det är fotboll med hjärta.
-
----
+**Wilma** på toppen, 136 rätt. Lugn, träffsäker och konsekvent. Hatten av.
 
 ## Dagens stolleprov
 
-Den som tippade Spanien att vinna mot Kap Verde med trygg marginal. Du vet vem du är. Kap Verde är inte ett semestermål. Det är ett fotbollslag. Lär dig det.
-
----
+**Andreas2** på 98 rätt av 297. Det är under ett tredje av matcherna. Jag säger inte att jag har lösningen. Men jag anar att det finns en.
 
 ## Brittans fundering
 
-Det här VM ger mig känslor jag inte känt sedan 1994. Inte för att det är lika bra. Men för att fotboll fortfarande kan överraska. Ecuador slår Tyskland. Kap Verde stoppar Spanien. Haiti hänger med tills det inte går längre.
+Norge vann alltså mot Senegal. 3–2. I en match som var rå, vacker och fullständigt oberäknelig. Precis som fotboll ska vara. Precis som livet i Farsta en tidig lördagsmorgon med kallt kaffe och en katt som nu lämnat rummet. Det säger ändå något.
 
-Bajen hade spelat med mer hjärta. Det är inte en åsikt. Det är ett faktum.
+Det finns större sporter. Det finns enklare sporter. Men det finns bara ett VM.
 
 ---
 
-Puss och kram från Farsta. Bosse katten nickade precis till. Det tolkar jag som ett godkännande.
-
-*– Brittan*
+*Ha en fin dag. Drick vatten. Och kom ihåg: Bajen är bäst. Det är inte en åsikt. Det är ett grundvillkor.*
