@@ -4,60 +4,62 @@ title: "VM-tips 2026-07-05"
 date: 2026-07-05
 ---
 
-# God morgon VM-vänner – 5 juli 2026
+# God morgon VM-vänner! – 5 juli 2026
 
-Kaffe. Lasse snarkar fortfarande. Bosse katten ligger och värmer sig på min röda Hammarby-tröja och låter mig inte ta den. Solen är uppe i Farsta och jag har redan hunnit bli både rörd och irriterad – alltså en perfekt VM-morgon.
+Kaffe nummer två. Bosse katten sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Det har spelats fotboll i natt och jag har sett allt.
+
+Ja. Allt.
 
 ---
 
 ## Nattens matcher
 
-Sverige–Frankrike slutade 0–3. Det gör ont. Det *ska* göra ont. Det är så fotboll fungerar. Men jag har sett Sverige spela vackrare mot svårare motstånd, och det finns något nästan poetiskt i att åka på stryk av fransmännen med värdighet. Ungefär som ett derby mot Djurgården man förlorar men ändå lämnar med huvudet högt. Ni vet hur det känns.
+Sverige mot Frankrike: 0–3. Jag säger inte att det var oväntat. Jag säger att det svider ändå. Blågult stack ut ur turneringen med huvudet högt och Japan i bakfickan – 1–1 i sista gruppspelsmatchen, och det var egentligen ganska bra. Men Frankrike är Frankrike. Mbappé och sällskap bryr sig inte om känslor.
 
-Och sedan Norge. *Ååh*, Norge. Ivory Coast–Norway slutade 1–2. Norge gick vidare. Jag titta på varenda sekund och det hade ingenting med Erling Håland att göra. Absolut ingenting. Jag studerar nordisk offensiv fotboll i rent akademiskt syfte. Att pojken råkar ta av sig tröjan i slow motion när han gör mål är *totalt* irrelevant.
+Annars: Norge slog Senegal med 3–2. Fantastisk match. Håland var... Håland. Jag tittar inte för hans skull, det har jag sagt. Men Lasse frågade varför jag reste mig ur soffan och skrek "ja!" när han nickade in det där tredje målet. Jag sa att det var för att jag gillar norsk arbetsmoral. Han såg inte övertygad ut.
 
-Lasse frågade varför jag hade volymen så högt. Jag sa att jag jämförde pressningslinjerna. Han såg inte övertygad ut.
+Ecuador slog Tyskland med 2–1. Det är därför vi älskar fotboll. Ingen berättade för Ecuador att de inte fick vinna.
 
-Ecuador slog Tyskland med 2–1. Det där hade aldrig hänt 1994. Eller jo. Men inte med lika dålig tysk organisation.
+Canada–Marocko: 0–3. Kanada åkte ut med ett brak. Det finns något vackert i det. Nej, det gör det inte. Det var bedrövligt.
 
 ---
 
 ## Tipskollen
 
-Mollie och Wilma delar ledningen med 138 rätt av 306. Grattis, flickor – det är ett riktigt fint resultat och ni förtjänar all ära. Andreas1 ligger hack i häl på 135. Tajt i toppen.
+Mollie och Wilma leder med 138 rätt av 306. Solida. Imponerande. Man behöver inte vara Einstein för att tippa bra, men det skadar inte att ha träffsäker magkänsla.
 
-Och så J Nilsson. Johan, min hjärtans Johan. 116 rätt av 306. Det är... ja. Det är ett resultat det också.
-
-Johan tippade Norge att ta X mot Frankrike. Han tippade X mot Senegal. Han verkar ha en filosofisk övertygelse om att Norge alltid spelar kryss. Det gör de inte, Johan. De vinner. De är norrmän. De klättrar upp för fjäll och de vinner fotbollsmatcher.
-
-Tanken bakom Johans rad är ändå rätt. Han ser fotboll. Utfallen är bara lite... avvikande från verkligheten.
-
-Heimbrand har 109. Andreas2 har 100. Jag säger ingenting. Men Bosse katten lämnade rummet. Det säger ändå något.
+Längst ner hittar vi **Andreas2 med 100 rätt**. Det är modigt att ens skicka in sin rad. Respekt för det.
 
 ---
 
-## Dagens ros
+## Johan – J Nilsson med 116 rätt
 
-Mollie och Wilma. Rakryggade, träffsäkra och utan ursäkter. Det är därför vi älskar fotboll.
+Johan. Käre Johan. 116 poäng är inte lysande, men rätten att ha fel på ett genomtänkt sätt är fortfarande en rätt. Hans Norge-tips var hjärteskärande nära ibland – han tippade X mot Frankrike, men pojkarna vann faktiskt. Tanken bakom tipset var rätt. Resultatet samarbetade inte.
+
+Han är inte sist. Det är viktigt.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippade Paraguay att ta poäng mot Australien och sedan förvånas över att Australien vann. Du vet vem du är.
+**Andreas2. 100 rätt. Av 306.** Det är under en tredjedel. Jag hoppas han inte tippade med pengar.
 
 ---
 
 ## Brittans fundering
 
-Det finns något vackert i ett VM där Ecuador slår Tyskland och Haiti håller emot. Det påminner mig om 1994 – om att fotboll inte är matematik. Det är människor. Det är gemenskap. Det är lidande och kärlek i samma andetag.
+Ecuador–2–1 mot Tyskland. Jag satt och tänkte på Tomas Brolin. På 1994. På hur fotboll kan välta vad som helst. Det händer fortfarande. Det händer hela tiden.
 
-Ungefär som Bajen, egentligen.
+Det är därför vi aldrig slutar titta.
 
 ---
 
-Ha en fin söndag, VM-vänner. Jag ska försöka flytta Bosse från min tröja.
+## Slutord från Farsta
 
-Det kommer inte att gå.
+Bosse katten fick sin frukost. Lasse har vaknat och frågade om Norge vann. Jag sa ja, lite för snabbt.
 
-**// Brittan, Farsta**
+Han log.
+
+Bajen hade spelat det snyggare. Men det var ändå en fin natt.
+
+*– Brittan, Farsta*
