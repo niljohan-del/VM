@@ -4,48 +4,60 @@ title: "VM-tips 2026-07-07"
 date: 2026-07-07
 ---
 
-# Kaffe, kryss och ett VM som aldrig sover – 7 juli 2026
+# God morgon VM-vänner – 7 juli 2026
 
-God morgon allihopa från Farsta!
+Kaffe nummer två är påtaget och Bosse katten sitter och stirrar på mig som om han visste att Sverige förlorade mot Nederländerna med 5–1. Det är inte ett blick som uppmuntrar.
 
-Klockan är alldeles för tidig, Bosse katten stirrar på mig som om jag gjort något fel, och Lasse sover fortfarande. Det är VM. Det är så det ska vara.
+Men vi tar det från början.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja? **Sverige–Frankrike slutade 3–0** till Frankrike. Det svider. Det svider som ett derby vi förlorade på övertid. Men jag har sett värre. Pojkarna gav ändå lite motstånd innan det vek sig. Japan höll oss till 1–1 tidigare i turneringen – det var faktiskt vackert på något sätt.
+Det var en fullspäckad VM-natt och jag satt uppe längre än vad Lasse tyckte var rimligt.
 
-**Norge slog Ivory Coast 2–1.** Självklart. Håland och gänget är på tårna. Jag tittar inte på Norge för Hålands skull, det vill jag ha sagt. Jag tittar för det nordiska kollektivet, arbetsmoralen, den raka fotbollen. Att pojken råkar springa som ett naturkrafter kan jag inte hjälpa.
+**Sverige–Tunisien 5–1** – Herregud vad vi fick se. Fem mål. Fem. Det är inte ett resultat, det är ett statement. Jag fick tårar i ögonen och skrek så att grannen knackade. Bra fotboll, raka linjer, nordisk beslutsamhet. Nästan som 1994, fast med sämre frisyrer.
 
-**Brasilien–Marocko slutade 1–1.** Kryss. Igen. Marocko är det lag i det här VM som jag inte riktigt vet vad jag ska göra av. Spännande, starka, oförutsägbara. Det finns något vackert i det.
+Sedan gick det som det gick. **Nederländerna–Sverige 5–1** och Japan-matchen slutade 1–1. Det är ett VM. Upp och ner och upp igen. Fotboll spelas av människor.
 
-**Portugal förlorade mot Colombia 0–0 i poäng och sedan mot Portugal 0–1.** Vänta. Portugal–Spanien slutade 0–1. Så Spanien är vidare. Bra fotboll, om än lite effektfritt.
+**Brasilien–Marocko 1–1** – Det där hade jag inte sett komma. Selecão som inte kan ro hem mot Marocko? Det finns något vackert i det. Och något skrämmande.
+
+**Norge–Irak 4–1** och sedan **Norge–Frankrike 1–4** och **Norge–Senegal 3–2** – Norge. Mina norrmän. Håland levererade som en vikingahövding. Lasse frågade varför jag ropade hans namn. Jag sa att jag hejade på laget. Han såg inte övertygad ut.
 
 ---
 
 ## Tipskollen
 
-**Mollie leder tabellen med 144 rätt** av 324. Imponerande. Wilma på 142, Andreas1 på 140. Det är ett tätt gäng i toppen.
+**Mollie** leder med 144 rätt av 324. Stark rad, imponerande konsistens. Jag gillar inte att förlora mot en Mollie men jag respekterar det.
 
-Och så har vi **J Nilsson – Johan alltså – på 117 rätt.** Näst sist. Men mina vänner: det är inte hela historien.
+**Wilma** tätt efter på 142. Bra magkänsla den tjejen.
 
-Johan har tippat med *hjärtat*. Hans krysstips på Norge–Frankrike var modigt, om än fel. Hans tro på Uruguay var romantisk. Tanken var rätt, fotbollen svek honom. Det händer de bästa.
+**Andreas1** på 140 – solitt.
 
-**Andreas2** sitter på 104 rätt och håller i bottenlyktan med fast hand. Man ska inte vara hård. Men det är ändå ett stolleprov i sig att konsekvent missa varannan match med sådant lugn.
+Och sen tittar vi på **J Nilsson – 117 rätt**. Johan. Min Johan.
+
+Johans rad är som en kärleksfull katastrof. Han träffar när det gäller, men emellan de träffarna ligger ett landskap av optimistiska felgissningar. Han tippade Australien att slå Turkiet – bakvänt. Han trodde på Norge–Frankrike som kryss – nej, det var Frankrike som körde. Han får förlåtelse. Tanken var alltid rätt.
+
+---
+
+## Dagens ros
+
+**Mollie** får rosen idag. 144 poäng är ingen slump. Det är läsning, känsla och lite tur på rätt ställen.
+
+---
+
+## Dagens stolleprov
+
+**Andreas2 – 104 rätt av 324.** Kära Andreas. Det är inte ett resultat, det är en konstnärlig vision. Jag säger inte att jag har lösningen. Men.
 
 ---
 
 ## Brittans fundering
 
-Det här VM är rörigt, oförutsägbart och ibland fullt av feg krysstaktik. Litegrann som ett derby på Söderstadion en blåsig novemberkväll. Ingen vet vad som händer, alla hoppas, och ibland vinner man.
+Sverige vann med 5–1 och förlorade med 5–1. Det är egentligen hela fotbollens essens i ett gruppspel. Glädjen och sorgen sitter precis bredvid varandra, som på en gammal stå-läktare på Söderstadion. Det är därför vi älskar fotboll.
 
-Bajen hade spelat det snyggare. Det är en grundsanning.
+Bajen hade gjort det snyggare. Men det hade vi alltid.
 
 ---
 
-Ha en fin tisdag. Drick ert kaffe varmt.
-
-Lasse sover fortfarande. Det säger ändå något.
-
-*// Brittan från Farsta*
+*Ha en fin dag VM-vänner. Bosse katten har somnat om. Det rätta beslutet.*
