@@ -4,64 +4,56 @@ title: "VM-tips 2026-07-08"
 date: 2026-07-08
 ---
 
-# God morgon VM-vänner – 8 juli 2026, och fotbollen sover aldrig
+# God morgon VM-vänner – 8 juli 2026
 
-Kaffe nummer två är pådraget, Bosse katten sitter i fönstret och tittar på duvor, och Lasse sover fortfarande. Jag har suttit uppe och gått igenom matcher sedan klockan fem. Det är vad pension innebär, visar det sig.
+Kaffe nummer två. Lasse sover fortfarande. Bosse katten stirrar på mig som om han vet något jag inte vet. Typiskt.
+
+Det har spelats fotboll i natt. Mycket fotboll. Alldeles för mycket fotboll för att Farsta ska vara lugnt.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja.
+Låt oss börja med det viktigaste: **Sverige–Japan slutade 1–1**. En poäng. Inte katastrofen, inte triumfen. Fotboll spelas av människor, och ibland spelar de oavgjort. Jag har sett värre. Inte ofta, men jag har sett värre.
 
-**Sverige–Frankrike 0–3.** Ja. Jag vet. Jag vill inte prata om det. Jo, faktiskt – för Frankrike var riktigt bra. Snabba, hungriga, tekniska. Men Sverige höll sig uppe länge nog för att påminna om att vi kan. Lite. Ibland. Bajen hade gjort det snyggare, men det är en annan diskussion.
+Det som sticker ut mer är **Norge–Senegal: 3–2**. Pojkarna från norr kämpade sig till tre poäng mot ett Senegal som inte gav sig. Det finns något vackert i det. Arbetsmoral. Nordisk pålitlighet. Och Håland som rör sig längs planen med en... praktisk elegans. Lasse frågade varför jag pausade matchen tre gånger på samma situation. Jag sa att jag analyserade presspelet. Han såg inte övertygad ut.
 
-**Norge–Senegal 3–2.** Herregud, vilket drama. Norge kämpade sig igenom på ren norsk envishet och – det kan jag inte helt förneka – Håland-energi. Pojken spelade sig in i matchen när det gällde som mest. Något med honom när han springer. Jag säger inte vad. Lasse vet inte heller. Ingen behöver veta.
+**Ecuador–Curaçao 0–0** var däremot den typ av fotboll som får Bosse att lämna rummet. Det säger ändå något.
 
-**Brasilien–Norge 1–2.** Det är därför vi älskar fotboll. Norge slår Brasilien. På riktigt. Det hade aldrig hänt 1994. Eller jo – men då hade det åtminstone väckt mer uppmärksamhet.
-
-**Portugal–Spanien 0–1, USA–Belgien 1–4.** Två resultat som skakade om tablån ordentligt. Belgien ser ut som ett riktigt lag nu.
+**Frankrike** kör på. **Brasilien–Marocko** slutade 1–1 och det är fortfarande ett av turneringens mer intressanta krysspar. Känns nästan som 1994 när man aldrig riktigt visste. Fast då hade vi Brolin. Och bättre frisyrer.
 
 ---
 
 ## Tipskollen
 
-330 matcher spelade. Det syns i leden.
+**Mollie** leder med 147 rätt av 330 och förtjänar respekt. **Wilma** tätt bakom på 146. Välförtjänat, båda två.
 
-**Mollie** leder med 147 rätt och håller greppet. Stabilt och imponerande.  
-**Wilma** på 146 andas henne i nacken. Det ska bli intressant.  
-**Andreas1** på 143 visar att det fortfarande är ett lopp.
-
-Och sedan finns det **J Nilsson** – det vill säga **Johan** – på 120 rätt av 330.
-
-Jag ska vara ärlig. Det är inte bra. Det är faktiskt ganska dåligt.
-
-Men Johan har haft en turbulent rad. Han har tippat modigt, ofta rätt i tanken om inte i utfallet. Han hade Mexiko–Sydafrika direkt. Han såg Qatar–Schweiz som ett kryss. Han kände på sig att Tunisien–Japan inte var en enkel match. Det är en man med fotbollskänsla, bara inte alltid fotbollslycka.
-
-Resultatet blev inte som Johan trodde. Matcherna borde däremot ha blivit det.
+Men nu till **J Nilsson** – det vill säga **Johan** – som sitter på 120 poäng. Johan, käre Johan. Du tippade Norge–Senegal som kryss. Norrmännen vann 3–2. Du tippade Australien–Turkiet som tvåa. Australien vann. Din relation med det här turneringens oväntade resultat är... komplex. Men tanken är alltid rätt. Resultaten är det som sviker dig, inte fotbollshjärtat.
 
 ---
 
-## Dagens ros 🌹
+## Dagens ros
 
-**Mollie**. Konsekvent, träffsäker och lugn. Det finns något vackert i det.
+**Mollie** får äran idag. Konsekvent, träffsäker, modig. Det är inte ett fegt tipsprogram. Det är arbete.
 
 ---
 
-## Dagens stolleprov 🤦
+## Dagens stolleprov
 
-Den som tippade **England** att vinna varje enskild match – och sedan satt och tittade på England–Ghana 0–0. Ni vet vilka ni är. Jag säger inte mer.
+Den som tippade **Ecuador–Curaçao** som ettan och fick X tillbaka. Du visste precis vad du pekade på. Och ändå. Kryss. Mot Curaçao. Det där hade aldrig hänt 1994.
 
 ---
 
 ## Brittans fundering
 
-Norge slår Brasilien. Sverige förlora mot Frankrike. Håland springer fortfarande som en vikingahövding.
+Norge slog Senegal. Brasilien hänger kvar. Sverige är med och håller andan.
 
-Jag funderar på att köpa de där glasögonen han gör reklam för. Praktiska bågar. Lasse frågade varför jag läst om dem tre gånger. Jag sa att jag jämförde modeller.
+Och någonstans i allt det här finns det en påminnelse om varför vi älskar fotboll. Det är aldrig klart. Det är aldrig säkert. Det är som att hålla på Bajen – du vet aldrig riktigt, men du slutar aldrig tro.
 
-Han såg inte övertygad ut.
+Det är därför vi älskar fotboll.
 
 ---
 
-*Hälsningar från Farsta. Bosse katten hann aldrig se slutet på matchen. Det säger ändå något.*
+**Ha en fin dag, VM-vänner. Lasse vaknar snart. Bosse kräver frukost. Och Sverige är fortfarande kvar i turneringen.**
+
+*// Brittan, Farsta*
