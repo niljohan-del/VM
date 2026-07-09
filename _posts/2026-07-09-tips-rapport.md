@@ -6,48 +6,48 @@ date: 2026-07-09
 
 # God morgon VM-vänner – 9 juli 2026
 
-Kaffe nummer två. Bosse katten sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Jag har redan sett igenom resultaten och jag säger som jag alltid säger: fotboll spelas av människor. Ibland undrar man dock av vilka.
+Kaffet är pådraget, Bosse katten sitter och stirrar på mig som om han vet något jag inte vet, och Lasse sover fortfarande. Det är VM-morgon i Farsta och jag har ägnat natten åt att följa matcher som gett mig allt från frysningar till lätt huvudvärk.
 
 ---
 
 ## Nattens matcher
 
-Sverige 5–1 mot Tunisien. Jag ska inte låtsas som att jag inte fick en klump i halsen. Det är inte Bajen, men det är gult och blått och det dög. Fint spel, raka rör, inga krumbukter. Sedan kom Japan och kvittade till 1–1 i sista gruppmatchen och skickade oss vidare på nerverna. Typiskt.
+Sverige–Japan slutade 1–1. Jag säger inte att det var vackert. Men det var levande. Fransson kämpade som om hela Söder stod bakom honom, och på något sätt påminde det mig om ett gammalt Bajen-derby där man vet att det inte räcker men man kämpar ändå. Det finns något vackert i det.
 
-Norge slog Ivory Coast med 2–1 och vann sedan mot Senegal 3–2. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken springer som ett rovdjur med glasögonreklam på hjärnan kan jag inte hjälpa. Lasse frågade varför jag pausade reprisen just där. Jag sa att jag kontrollerade offsidestjällen. Han såg inte övertygad ut.
+Det stora dramat var annars **Norge–Senegal 3–2**. Håland lade inte in, men han var överallt. Stark, rak, nordisk. Lasse frågade varför jag tittade med sådan koncentration. Jag sa att jag analyserade presspelet. Han såg inte övertygad ut.
 
-Brasilien–Marocko slutade 1–1 och sedan förlorade Nederländerna mot Marocko med 3–4. Det är därför vi älskar fotboll. Eller hatar det. Eller båda.
+**Frankrike slaktade Iraq 3–0** och **Argentina vann mot Algeriet 3–0**. Inga överraskningar. Men **Ecuador slog ut Tyskland 2–1** – det var en match som 1994 aldrig hade behövt skämmas för. Eller jo. Men då hade vi haft bättre frisyrer.
 
-Tyskland förlorade mot Ecuador 1–2. Det där hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone funnits bättre frisyrer.
+**Sverige–Frankrike slutade 3–0** till Frankrikes fördel. Surt. Men pojkarna gav sig inte billigt.
 
 ---
 
 ## Tipskollen
 
-**Mollie** leder med 147 poäng och **Wilma** andas henne i nacken på 146. Starka damer. Man behöver inte vara Einstein för att respektera det.
+I toppen klamrar sig **Mollie (147p)** och **Wilma (146p)** fast, med **Andreas1 (143p)** strax bakom. Tajt. Syrligt tajt.
 
-**J Nilsson** – vår Johan – sitter på 120 av 330. Det ser tufft ut på pappret, men jag har följt hans resonemang och pojken tänker rätt. Han tippade Norge–Senegal till X, och visst, det blev 1. Men tanken var rätt. Norge var ingen given vinnare mot ett Senegal med hunger i blicken. Otur, Johan. Bara otur.
+Sedan finns det **J Nilsson med 120 poäng av 330 möjliga**. Det är Johan. Min Johan. Jag tittar på hans rad och vill gråta lite.
 
 ---
 
 ## Dagens ros
 
-**Mollie**. 147 poäng. Stenhård. Klok. Konsekvent. Jag vet inte vem hon är men jag gillar henne.
+Stolen går till **Mollie** som håller ledningen med järnhand. Modiga tips, bra magkänsla. Imponerande.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2** – 106 poäng av 330. Det är under 33 procent. Det är sämre odds än att gissa slumpmässigt. Jag säger inte att jag har lösningen. Men.
+Johan tippade Norge–Frankrike som X. Det slutade 1–4 till Frankrike. Tanken var säkert rätt – Norge är ett lag som kan ta poäng mot vem som helst. Håland springer faktiskt fortare än franska försvarare. Det berodde på otur. Och kanske lite dålig timing.
 
 ---
 
 ## Brittans fundering
 
-Norge slog Frankrike 1–4 i gruppspelet och det finns något vackert i det. En nation av fjäll och fiskare och raka meningar går in och piskar världsmästarkandidaten. Bajen hade gjort det snyggare. Men inte mer hjärtligt.
+Det är VM. Sverige spelar. Norge vinner matcher. Håland springer med glasögon i reklamen. Jag har tittat på de glasögonen igen. De verkar genuint praktiska.
+
+Fotboll spelas av människor. Det är därför vi älskar det.
 
 ---
 
-## Slutord från Farsta
-
-Bosse katten lämnade rummet när Ecuador–Curaçao slutade 0–0. Det säger ändå något. Ha en fin dag. Och Johan – du är på rätt spår. Fotbollen skyller på dig, inte jag.
+*Hälsningar från Farsta. Lasse sover. Bosse katten har gått ut. Och Johan – du är fortfarande min favorit. Även när du har fel.*
