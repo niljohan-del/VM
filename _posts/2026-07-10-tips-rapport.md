@@ -4,62 +4,48 @@ title: "VM-tips 2026-07-10"
 date: 2026-07-10
 ---
 
-# God morgon VM-vänner! Fredag den 10 juli 2026 – nu kör vi!
+# God morgon VM-vänner! — 10 juli 2026
 
-Fredag, kaffe, och ett helt lass med fotboll att gå igenom. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på duvor. Livet är i grunden bra.
+Kaffe är pågjort, Bosse katten sover på tidningen och Lasse har redan börjat argumentera om att Frankrike spelar "effektiv fotboll". Jag sa att det finns ett annat ord för det. Vi var inte överens.
 
-Det är **fredag**, VM-vänner. Och på fredagar dricker man en god öl. Mitt tips: en iskall **Norrlands Guld fatöl** ikväll när man summerar kvällens matcher. Enkel, ärlig, pålitlig. Som bra fotboll ska vara.
+Men vi har matcher att prata om. Stora matcher. Låt oss köra.
 
 ---
 
-## Nattens matcher – Brittans genomgång
+## Nattens matcher
 
-Var ska man börja? **Norge slog Frankrike med 1–4**. Jag säger det igen. Norge. Slog. Frankrike. Med fyra mål. Jag behöver inte förklara varför jag ser lite extra pigg ut idag. Det handlar om nordisk karaktär. Och fjäll. Och arbetsmoral. Inte om något annat.
+**Sverige–Japan slutade 1–1.** Jag ska inte låtsas som att det inte svider. Vi slog Tunisien med 5–1 som om det var en träningsmatch på Södermalm, och sedan låter vi Japan ta poäng av oss. Det finns något karaktärsdanande i det, brukar Lasse säga. Lasse har haft fel förr.
 
-**Sverige höll 1–1 mot Japan** – ett hedervärt kryss mot ett tekniskt skickligt lag. Lite som ett derby på Söderstadion: man vet aldrig vad man får, men man älskar det ändå.
+**Frankrike slår Norge 4–1.** Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Men 4–1 är hårt. Pojken kämpade. Det märktes. Och de där glasögonen han gör reklam för — jag läste lite om dem igen. Det handlar om bågarna. Praktiska bågar.
 
-**Frankrike vann mot Marocko med 2–0** i slutskedet, **Brasilien föll mot Norge** (ja, jag njuter fortfarande), **Portugal knep 5–0 mot Uzbekistan** och **Spanien körde över Austria 3–0**. Det är fart i turneringen nu, mina vänner.
+**Brasilien–Marocko slutade 1–1** i gruppen, och sedan vinner Marocko på slutet. Det är VM. Det är därför vi älskar fotboll.
+
+**Ecuador slog Tyskland 2–1.** Det hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone hänt med bättre frisyrer.
+
+**Spanien–Portugal slutade 0–1.** Spanien åkte ut. Det finns något vackert i det. Inte för att jag önskar dem illa — men arrogans ska ha sitt pris.
 
 ---
 
 ## Tipskollen
 
-Ledningen ser ut så här:
+I toppen tronar **Mollie med 151 rätt** och **Wilma med 150**. Respekt. De har läst fotboll som jag läser Bajens matchrapporter — noggrant och med kärlek.
 
-🥇 **Mollie** – 151 rätt
-🥈 **Wilma** – 150 rätt
-🥉 **Andreas1** – 146 rätt
+**J Nilsson — det vill säga Johan — har 122 rätt av 336.** Och du undrar varför jag inte skriver "poäng" med emfas. Men Johan, käre Johan: du tippade rätt på Norge–Senegal. Du såg att Argentina är Argentina. Du kände matchen mot Ecuador på ett sätt som andra missade. Resultaten sviket dig ibland. Fotbollen har inte gjort det.
 
-Starkt, allihop. Mollie håller täten med järnhand.
-
-Längst ner i tabellen hittar vi **Andreas2** på 108 rätt. Av 336 möjliga. Jag ska inte vara elak. Men det är ändå ett ganska modigt sätt att tippa fotboll på.
+**Heimbrand på 119 och Andreas2 på 108** — jag säger inget elakt. Jag säger bara att det finns matcher kvar att spela.
 
 ---
 
-## Johans rad – J Nilsson, 122 rätt av 336
+## Dagens stolleprov
 
-Johan, Johan, Johan.
-
-Man märker att du tänker. Verkligen. Problemet är att fotbollen ibland inte tänker tillbaka. Norgetrippeln gick åt pipan. Du tippade kryss i Norge–Frankrike. Det blev 1–4 till Norge. Man kan förstå tankegången – Frankrike är Frankrike – men Håland och hans landsmän hade andra planer.
-
-Och Sverige–Japan? Du tippade kryss. Det blev kryss! En rätt! Brittan jublar på Farstavis.
-
-Johan hade fel på mycket. Men på ett väldigt genomtänkt sätt. Det räcker inte till poäng, men det räcker till min respekt.
+Den som tippade Paraguay att slå Australien: det var modigt. Det var fel. Men modigt.
 
 ---
 
-## Brittans fredag-fundering
+## Brittans fundering
 
-Det finns något vackert i att Norge slår Frankrike. Det påminner mig om VM 1994 – den sommaren när ingen riktigt visste vad som skulle hända, och allting ändå hände. Brolin. Dahlin. Ravelli. Folkfest.
+Norge förlorade mot Frankrike. Men Norge slog sedan Senegal 3–2. Det är nordisk karaktär det. Man reser sig. Man kämpade. Jag respekterar det.
 
-Norge idag har det där. Hungern. Lusten. Och de springer som om de har fjäll under fötterna.
+Bajen hade gjort det snyggare. Men det är inte alla förunnat.
 
-Bajen hade spelat den matchen med hjärtat på ärmen. Det vet jag säkert.
-
----
-
-## Slutord från Farsta
-
-Ha en fin fredag, allihop. Skål med en kall öl ikväll. Norrmännen förtjänar det.
-
-Lasse frågade just om jag tittade på bilder på Håland igen. Jag
+Ha en fin fredag, allihopa. Bosse har vaknat och ser missnöjd ut. Det säger ändå något.
