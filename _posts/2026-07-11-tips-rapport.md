@@ -6,59 +6,56 @@ date: 2026-07-11
 
 # God morgon VM-vänner – 11 juli 2026
 
-Kaffe på. Bosse katten stirrar ut mot Farsta-dimman. Lasse sover fortfarande. Och VM rullar vidare som ett rullande VM brukar göra.
-
-Det hände *mycket* i natt.
+Kaffe nummer två redan. Bosse katten sitter i fönstret och stirrar på en duva med den där intensiteten som bara katter och dåliga mittfältare har. Lasse sover fortfarande. Klokt av honom – det har hänt mycket i natt.
 
 ---
 
 ## Nattens matcher
 
-Sverige föll mot Frankrike med 0–3. Det svider. Men det svider på ett hederligt sätt – Frankrike är ett bra lag som spelade bra fotboll. Man kan inte vara sur på det. Japan–Sverige slutade 1–1 i ett av de tre tusen bollar av oavgjorda matcher vi sett i det här VM:et. Japan är svåra att spela mot. Det vet vi sedan länge.
+Låt oss börja med det som verkligen värmde hjärtat: **Sverige–Japan 1–1**. Okej, det är inte precis 1994 års folkfest, men Sverige är kvar och det räcker för att jag ska röra om kaffet med lite extra energi. Japan är ett bra lag. Det är en poäng att vara stolt över. Ungefär.
 
-Norge slog Senegal med 3–2. Hjärtat sjunger. Det är den typen av match som påminner en om varför fotboll uppfanns. Håland? Ja, han var... han var nog ganska bra. Jag läste lite om det. För fotbollens skull. Lasse frågade varför jag hade hans bild som bakgrund på telefonen. Jag sa att det var ett misstag.
+**Norge vann över Elfenbenskusten 2–1.** Självklart. Pojkarna från fjorden vet vad de håller på med. Det är nordisk disciplin. Det är arbetsmoral. Det är... ja, det är Håland som ser vasst ut när han springer. Jag säger inget mer om det.
 
-Spanien–Belgium slutade 2–1. Portugal mot Spanien slutade 0–1. Det heter fortfarande La Furia Roja och det är fortfarande vackert.
+**Frankrike slog Irak 3–0.** Franskt, stilrent, lite arrogant. Som vanligt.
 
-Ecuador slog Tyskland med 2–1. Det är den typen av resultat som fick mig att spilla kaffe 1994 och som gör det igen nu. Fotboll spelas av människor.
+**Brasilien–Marocko 1–1** i gruppspelet. Jag vet inte vad Brasilien håller på med just nu. Det finns något som borde vara vackert men inte riktigt är det. Bajen hade gjort det snyggare, det kan jag lova.
+
+**Ecuador slog Tyskland 2–1.** Det där hade aldrig hänt 1994. Eller jo. Men Brolin hade i alla fall kämpat tillbaka.
 
 ---
 
 ## Tipskollen
 
-Mollie leder med 153 rätt av 339. Det är skarpt. Wilma andas henne i nacken på 152. Andreas1 på tredje plats med 148. Fint sällskap i toppen.
+I toppen tronar **Mollie med 153 rätt** och **Wilma med 152**. Stark prestation av båda. Hedern är välförtjänt.
 
-Längst ner hittar vi Andreas2 med 109 rätt. Det finns något kärleksfullt att säga om den sortens envishet. Jag säger inte vad. Men det finns.
+**J Nilsson – alltså Johan – ligger på 124 rätt av 339.** Det är inte tabelltoppen, det ska vi vara ärliga med. Men Johan är ingen slentriantippare. Han tänker. Han resonerar. Han har bara haft lite oturen att fotbollen inte alltid lyssnar på bra resonemang. Det är fotbollens förbannelse och skönhet på samma gång.
 
 ---
 
-## Dagens ros – J Nilsson
+## Dagens ros
 
-Johan. Min Johan. 124 rätt av 339 är inte lysande på pappret, det ska jag inte sticka under stol med. Men det är *hur* det blivit fel som räknas.
-
-Johan tippade Norge–Senegal till X. Det var fel. Men det var fel med hjärtat på rätt ställe. Han anade att det skulle bli jämnt. Det *borde* ha blivit det. Att Norge sedan drog ifrån på slutet är inte Johans fel. Det är Hålands.
+**Mollie.** Punkt. 153 rätt är imponerande. Sätt dig ner och ta en välförtjänt paus, Mollie.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippar Australien till 2 mot Turkiet i gruppen, sedan Paraguay vinner gruppen och Australien åker ur – ja, det kräver en viss sorts självförtroende. Inget namn nämns. Alla vet vem de är.
+Den som tippade Paraguay att slå Australien, sedan förlorade mot Turkiet OCH sedan kryssade mot Australien – ni vet vilka ni är. Fotboll är inte ett lotteri. Eller jo. Men man behöver inte köpa lotter i alla kiosker.
 
 ---
 
 ## Brittans fundering
 
-Brasilien åker ut. Marocko är vidare. Nederländerna föll mot Marocko med 3–4. Det händer saker i det här VM:et som inte ens Ravelli hade kunnat rädda. Det finns något vackert i det, faktiskt. Underdogen lever.
-
-Och Norge är vidare. Jag tittar inte för Hålands skull. Jag tittar för fotbollens skull.
+Norge slog Frankrike 1–4 i ett av spelen. Fyra mål. Håland sprang som om han hade fjällen i ryggen och Europas blickar i ansiktet. Jag funderar fortfarande på de där glasögonen han gör reklam för. Verkar praktiska. Lasse tittade konstigt när jag läste om dem tredje gången.
 
 ---
 
 ## Slutord från Farsta
 
-Bosse katten sover nu. Lasse har vaknat och frågat vad som händer. Jag sa "Norge vann." Han nickade som om det var självklart. Det är det. Det borde det vara.
+Det är fotboll. Det är liv. Det är VM. Och oavsett vad tabellen säger så vet vi alla innerst inne att det bara finns ett lag som spelar med hjärtat på rätt ställe.
 
-Bajen hade gjort det snyggare. Men vi är inte där. Ännu.
+Bajen är bäst. Det är inte en åsikt.
 
-*Ha en fin dag, VM-vänner.*
-– Brittan
+Ha en fin dag, allihopa. Johan – du är på rätt väg. Fortsätt tänka.
+
+*Brittan, Farsta*
