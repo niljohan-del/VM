@@ -4,52 +4,54 @@ title: "VM-tips 2026-07-12"
 date: 2026-07-12
 ---
 
-# God morgon VM-vänner! | 12 juli 2026
+# God morgon VM-vänner – 12 juli 2026
 
-Kaffet är påsatt, Bosse katten sover på tidningen och Lasse mutrar något om att det är för tidigt för fotboll. Det är aldrig för tidigt för fotboll.
+Kaffe är på. Bosse sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Ute i Farsta är det grått som ett 0–0 utan chans.
+
+Men inne i mitt huvud brinner det. För i natt hände det.
 
 ---
 
-## Nattens matcher – och vad natten lärde oss
+## Nattens störste snackis: Norge slår Brasilien
 
-Vad sjutton var det som hände igår?
+Jag måste börja där. **Brasilien–Norge 1–2.** Läs det igen. Samba-fotboll mot fjäll-disciplin. Och fjällen vann.
 
-Sverige vann mot Tunisien med **5–1** i gruppspelet. Fem mål. Jag grät lite. Inte för att det var vackert – det var det säkert – utan för att det påminde mig om sommaren 1994 när allt var möjligt och Brolin sprang som om han ägde hela världen. Nu hoppas vi att den känslan håller.
+Jag säger inte att det beror på att en viss norsk anfallare är bländande att titta på i 90 minuter. Jag säger att det beror på nordisk karaktär, arbetsvilja och taktisk mognad. Att Håland råkade göra mål i båda halvlekarna är en separat fråga som jag inte kommenterar ytterligare.
 
-Sedan förlorade Sverige mot Nederländerna med **1–5** och spelade **1–1** mot Japan. Lite upp och ned, alltså. Klassisk Sverige. Vi kan slå vem som helst och sedan ge bort det mot Japan. Det är därför vi älskar fotboll – och ibland hatar det.
+Lasse frågade varför jag skrek "ja!" när kvitteringen kom. Jag sa att det var reflexer. Han såg inte övertygad ut.
 
-Norge slog Irak med **4–1**, Senegal med **3–2**, och förlorade sedan mot Frankrike med **1–4** och mot England med **1–2**. Det är en berg-och-dalbana som Håland förmodligen hanterar med stoisk nordisk ro och ögonfransar som en vikingahövding. Jag säger inget mer om det.
+**Sverige–Frankrike 0–3** sved lite. Men det är gruppspel, killarna körde mot ett franskt lag i toppform. Jag har sett värre.
 
-Tyskland körde över Curaçao med **7–1**. Ecuador svarade med att slå Tyskland **2–1**. Det kallas poesi. Eller kaos. Beroende på vem man frågar.
+**England–Norge 2–1** däremot – det är ett resultat som gör ont. Norge kan mer än det där. Det är därför vi älskar fotboll. Och hatar det.
 
 ---
 
 ## Tipskollen
 
-I toppen kämpar **Mollie och Wilma** hårt och delar ledningen med **152 rätt av 336**. Imponerande. Respekt dit det hör hemma.
+I täten: **Mollie och Wilma delar ledningen** med 156 rätt på 345 matcher. Det är imponerande. Det är också lätt irriterande.
 
-**J Nilsson** – vår egen Johan – sitter på **124 rätt**. Det är inte toppen, vet jag. Men Johan tippar med hjärtat och det syns. Han såg rätt på Argentina, Portugal och England i rätt situationer. Att han ibland tror för mycket på kryss är inte en svaghet – det är en filosof's grepp om ovissheten. Resultaten följde bara inte med.
-
----
-
-## Dagens ros 🌹
-
-Mollie och Wilma, delat. Ni är odrägliga och underbara på samma gång.
+Längst ner: **Andreas2 på 112 poäng.** Det är ett tips-VM i sig. Av sämre sort.
 
 ---
 
-## Dagens stolleprov 🤦
+## Dagens ros
 
-**Andreas2** med sina **109 rätt** av 336. Käre Andreas, det finns tips och det finns hopp. Ibland måste man skilja på dem.
+**J Nilsson – det vill säga Johan** – landar på 126 rätt av 345. Det låter inte som en toppplacering. Och det är det inte heller. Men det är inte resultaten som räknas. Det är tanken bakom dem.
+
+Johan tippade till exempel rätt på Argentina, Portugal och Frankrike i flera omgångar. Han har fotbollshjärna. Problemet är att hjärnan ibland krockar med verkligheten. Det är ett mänskligt problem. Fotboll spelas av människor.
+
+---
+
+## Dagens stolleprov
+
+Den som tippade Paraguay att slå Australien, Turkiet OCH USA i samma grupp – och fick fel på alla tre. Du vet vem du är. Jag säger bara: modet beundrar jag. Resultaten gör jag inte.
 
 ---
 
 ## Brittans fundering
 
-Jag tänker på det där med fotboll och tröst. Sverige vann med fem mål och förlorade med fyra. Norge nådde nästan hela vägen och föll sedan. Det är inte misslyckande – det är drama. Det är det vi kom för.
-
-Bajen hade gjort det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
+Det finns ett VM-lag som just nu spelar vacker, ärlig fotboll utan att ta för mycket plats. Det är Norge. 1994 hade vi Sverige. Nu har vi inte ens det kvar. Men vi har Bajen. Det är inte ett VM-lag. Det är något bättre.
 
 ---
 
-*Ha en bra söndag, VM-vänner. Lasse har fortfarande inte vaknat ordentligt. Bosse katten lämnade rummet under Nederländerna–Sverige. Det säger ändå något.*
+*Heja Sverige. Heja Norge. Heja Bajen. Bosse vände ryggen till teven. Det säger ändå något.*
