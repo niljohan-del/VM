@@ -6,56 +6,54 @@ date: 2026-07-13
 
 # God morgon VM-vänner – måndag 13 juli 2026
 
-Kaffe på bordet. Bosse katten ligger på tidningen. Lasse sover fortfarande. Utomhus är det grått på det där Farsta-sättet som egentligen är ganska mysigt om man inte tänker på det för länge.
+Kaffe nummer två redan. Lasse sov länge, Bosse katten sitter i fönstret och stirrar på en duva. Livet i Farsta rullar på.
 
-Det har spelats en *hel del* fotboll.
+Och vad ett VM det har bjudit på.
 
 ---
 
-## Nattens matcher – och helgens frosseri
+## Nattens matcher
 
-Var ska man börja.
+Låt mig börja med det viktigaste: **Sverige–Japan slutade 1–1**. Det är inte katastrof. Men det är inte heller det vi drömde om den sommaren 1994 när Brolin satte in det där målet mot Rumänien och hela Sverige gick bananas. Då spelades det fotboll. Nu – jo, det var okej. Jag har sett värre.
 
-**Sverige–Frankrike 0–3** i slutskedet. Det svider. Men Sverige tog sig dit. Fem mål mot Tunisien i gruppspelet, 1–1 mot Japan. Det är ett landslag som kämpat. Jag är stolt, även om Frankrike i slutändan var för bra. Det var inte skam att förlora mot dem. Det var nästan vackert.
+**Frankrike fortsätter att imponera** med sin 3–0 mot Irak. Mbappé och co gör det lätt för sig. Kanske lite för lätt. Det finns något vackert i det. Men också något skrämmande.
 
-**Norge slår ut Brasilien med 2–1.** Jag måste ta en paus här.
-
-Norge. Slår. Brasilien.
-
-Jag säger inte att det är på grund av Håland. Men pojken spelade en match som fick mig att glömma bort att jag ville byta kanal. Lasse frågade varför jag satt så nära TV:n. Jag sa att kontrasten var dålig. Han köpte det inte.
-
-**Argentina rullar på.** 3–2 mot Schweiz i slutomgångarna. Klassen finns där.
-
-**England slår Norge 2–1** i kvartsfinalen. Det gör ont. Mer än det borde.
+Och sen **Norge**. Mina vänner. 4–1 mot Irak i gruppspelet och nu senast – 2–1 mot Ivory Coast. Det är Nordic Grit. Det är fjäll och arbetsmoral och rak fotboll. Att Håland dessutom ser ut som han gör är ju helt irrelevant för mitt intresse. Jag tittar på *fotbollen*. Lasse höll inte med. Han har haft fel förr.
 
 ---
 
 ## Tipskollen
 
-**J Nilsson** – 126 rätt av 345. Det är inte toppen av tabellen, det ska vi inte låtsas om. Men Johan har tippat med *hjärtat*. Han vågade tro på Norge mot Senegal (rätt!), han tog Argentina hela vägen, och han såg Mexiko tidigt. Att det blev fel på en del kryssiga matcher mitt i – det är fotbollens orättvisa, inte Johans.
+Ledningen ser ut såhär: **Mollie och Wilma** delar toppen på 156 poäng av 345. Starkt. Väldigt starkt. Jag böjer på nacken.
 
-Resultaten borde ha blivit hans. Nästan.
+**Andreas1** ligger trea på 151. Solitt.
 
-**Mollie och Wilma** delar ledningen på 156 rätt. Imponerande. Syrligt nog verkar de ha lyckats med precis de kryssarna alla andra missade. Spanien–Kap Verde. Belgien–Iran. Grattis, även om det svider.
+Och sen finns **J Nilsson** på 126 poäng. Det är min Johan. Käre, analytiske, välmenande Johan.
 
-**Andreas2** på 112. Jag säger inte ett ord. Jo, ett: Ecuador slog *Tyskland*. Det var inte ett mysterium – det var ett varningstecken som stod skrivet på tavlan.
+Johans rad är ett konstverk i optimism. Han har tippat Norge att vinna i princip varje match de spelat – utom just de matcher Norge faktiskt vann. Han tippade X mot Senegal. Norge vann. Han tippade X mot Frankrike. Norge förlorade. Det är nästan imponerande konsekvent *fel* på ett väldigt genomtänkt sätt.
+
+Jordanien–Argentina tippade Johan till 2. Det slutade 1–3 till Argentina. Man behöver inte vara Einstein – men man behöver kanske titta lite på Argentina.
+
+---
+
+## Dagens ros
+
+**Mollie och Wilma** – delade ledare med 156 rätt. Rakt igenom stabilt. Berömmet är välförtjänt.
+
+---
+
+## Dagens stolleprov
+
+**Andreas2** – 112 rätt av 345. Det är under ett tredjedel rätt. Jag säger inte att jag har lösningen. Men kanske börja med att titta på matcherna.
 
 ---
 
 ## Brittans fundering
 
-Det här VM:et påminner mig om 1994. Inte för att Sverige går lika långt – det gör vi inte – utan för att det känns som en sommar där fotboll *betyder* något igen. Där underdog-berättelserna skrivs med blod och svett och lite tur.
+Norge slog Brasilien med 2–1. Brasilien. Det hade aldrig hänt 1994. Eller jo, kanske. Men då hade Håland haft sämre frisyr.
 
-Norge mot Brasilien. Det finns något vackert i det.
-
-Bajen hade spelat det snyggare. Men ingen hade kämpat hårdare.
+Det är därför vi älskar fotboll.
 
 ---
 
-## Slutord från Farsta
-
-Ta hand om er. Håll på rätt lag. Och om ni är osäkra på vilket det är – börja med att googla Söderstadion.
-
-Bosse katten hälsar.
-
-*// Brittan*
+*Hälsningar från Farsta. Bosse katten godkände inte Japan–Sverige. Han lämnade rummet i halvtid. Det säger ändå något.*
