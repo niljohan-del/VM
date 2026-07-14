@@ -6,54 +6,58 @@ date: 2026-07-14
 
 # God morgon VM-vänner – 14 juli 2026
 
-Kaffet är pådraget, Bosse sitter i fönstret och stirrar på en duva, och Lasse sover fortfarande. Det är alltså ett perfekt läge att skriva om gårdagens VM-kaos.
+Kaffe nummer två på bänken i Farsta. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på en duva med den där blicken som säger att han inte tänker göra någonting åt saken.
 
-Och kaos är rätt ord.
+Perfekt sällskap för en mor morgon med VM-facit i handen.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Japan slutade 1–1. Jag ska inte låtsas som att det inte svider. Vi slog Tunisien med 5–1 i gruppspelet och såg ut som ett riktigt lag. Sen mot Japan: en halvtimmes passningsfotboll som Bosse katten hade sovit igenom utan att missa ett enda mål. Det finns något vackert i en 1–1 också, brukar man säga. Det gör man inte.
+Det hände mycket. Väldigt mycket.
 
-Norge vann mot Senegal 3–2. Vackert. Hjärtat sjöng lite. Håland – ja, pojken spelar ju, det kan man inte ta ifrån honom. Lasse frågade varför jag kollade reprisen tre gånger. Jag sa att jag studerade presspelet.
+**Sverige slog Tunisien 5–1.** Jag satt upp och tittade. Lasse bad mig dämpa jublet. Jag ignorerade honom. Det finns tillfällen i livet då man bara måste skrika. Det här var ett sådant. Sedan kom Frankrike och satte dit oss med 3–0. Det är fotboll. Man bygger upp något vackert och sedan krossas det med galerna fötter. Det är därför vi älskar fotboll.
 
-Tyskland åkte ut mot Ecuador, 1–2. Det är därför vi älskar fotboll. Brasilien föll mot Marocko. Nederländerna mot Marocko. Det här VM:et är obarmhärtigt och härlgt på samma gång. Bajen hade älskat det här. Riktiga uppsets, riktiga känslor.
+**Norge slog Irak 4–1** och sedan besegrade man Senegal 3–2 i en match som fick mig att hålla i soffkudden med båda händerna. Det är rak, ärlig, nordisk fotboll. Inget fuffens. Inget krångel. Bara… resultat. Håland var galen. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken har axlar som en vikingahövding kan jag inte hjälpa.
+
+**Tyskland–Paraguay** slutade 4–5. Fyra–fem. Mot Paraguay. Det hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone hänt med bättre frisyrer.
+
+**Ecuador slog Tyskland 2–1** i gruppspelets sista omgång. Underdogen vann. Det finns något vackert i det.
 
 ---
 
 ## Tipskollen
 
-Mollie och Wilma leder med 156 rätt av 345. Stark. Respekt till er båda – det är fotbollshjärnor som de.
+I täten hittar vi **Mollie och Wilma** delar på första plats med 156 rätt av 345 avklarade matcher. Imponerande. Stabilt. Respekt.
 
-Men vi behöver prata om **J Nilsson**.
+**J Nilsson – det vill säga Johan** – hittar vi på 126 rätt. Det är inte toppen av tabellen, det ska jag inte låtsas om. Men jag har följt Johans tankegång och den är oftare rätt än utfallet visar. Han tippade kryss på Frankrike–Senegal när alla andra skrek ettans namn. Det var ett modigt tips. Det blev fel. Men tanken var god.
 
-126 rätt av 345.
-
-Johan, älskling. Tanken bakom dina tips är ofta den rätta. Brasilien mot Marocko – du tippade X. Det var klokt tänkt. Att det sen gick 1–1, 2–0 och 1–1 i olika omgångar beroende på vilken speltabell man kollar beror inte på dig. Det beror på att fotboll är orättvis.
-
-Du tippade Norge mot Senegal som X. Det förstår jag. Men Norge var Norge. Det är norrmän. De ger sig inte.
+Johan, du är inte Einstein. Men du tänker mer än de flesta.
 
 ---
 
 ## Dagens ros
 
-Mollie och Wilma – I salute you, som engelsmännen säger. Även om England också åkte ur. 156 rätt är seriöst imponerande.
+**Mollie och Wilma** delar årets hittills vackraste tipprad. Jag vet ingenting om dem. Men de har fotbollshjärtan som sitter rätt.
 
 ---
 
 ## Dagens stolleprov
 
-Andreas2 – 112 rätt av 345. Jag säger inte att jag har lösningen. Men jag antyder att man kanske ska sluta tippa 1 på allt och hoppas på det bästa.
+Den som tippade Paraguay att slå Australien. Och sedan fel igen i nästa match med samma lag. Det kallas optimism. Jag kallar det envishet. Kärleksfull, hopplös envishet.
 
 ---
 
 ## Brittans fundering
 
-Det här VM:et påminner mig om 1994. Inte frisyrerna. Men känslan av att vad som helst kan hända. Att ett litet lag kan slå ett stort. Att fotboll spelas av människor, inte kalkyler.
+Norge slog Brasilien 2–1 i en match som fick hela Farsta att tappa hakan. Brasilien. Brasil. Landet med samba och Pelé och all världens finter. Ner med 2–1 mot Norge.
 
-Det glömmer man ibland. Johan glömmer det lite för ofta. Men det är därför vi håller av honom.
+Lasse höll inte med om att det var den vackraste matchen. Han har haft fel förr.
+
+Bajen hade gjort det snyggare. Men Norge hade gjort det vinnande.
+
+Det är skillnad. Ibland.
 
 ---
 
-*Hälsningar från Farsta, där Bosse numera inte lämnar fönstret. Han bevakar duvan. Det är mer fokus än vad Andreas2 lagt på sina tips.*
+*Ha en fin dag, VM-vänner. Nästa inlägg imorgon bitti. Bosse katten hälsar. Duvan är fortfarande vid liv.*
