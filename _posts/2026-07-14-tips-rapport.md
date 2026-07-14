@@ -6,54 +6,42 @@ date: 2026-07-14
 
 # God morgon VM-vänner – 14 juli 2026
 
-Kaffe. Morgonrock. Bosse katten stirrar på mig med den där blicken som säger att han sett bättre nätter. Jag håller med honom.
+Kaffe på. Bosse katten ligger på morgontidningen. Lasse sover fortfarande. Utmärkt – då kan jag skriva i fred.
 
-Det har spelats fotboll. Mycket fotboll. Och gott och blandat, ska jag säga.
+Vilket dygn det har varit, mina vänner. Matchen jag inte kan sluta tänka på är **Norge–Frankrike**. Frankrike vann 4–1, och jag sitter här och försöker låtsas som att jag inte är förtvivlad. Pojken Håland kämpade. Jag följde varje närbild. Av fotbollsskäl, naturligtvis.
 
----
+Sverige gick segrigt ur Japan-matchen med 1–1. Jo, ett kryss är ett kryss, men Frankrike smällde in tre mot oss utan att svettas. Det finns en hälsosam självinsikt i det. Vi är inte Frankrike. Det visste vi redan.
 
-## Nattens matcher
-
-Låt oss börja med det ljuvliga: **Sverige 5–1 mot Tunisien**. Jag ska inte låtsas att jag var lugn. Jag var inte lugn. Lasse fick hålla i kaffekoppar. Fem mål. Fem! Det doftade 1994 en stund – inte Brolins volley, men ändå. Det finns något vackert i det.
-
-Sen förstörde **Frankrike Norge 4–1** i slutspelet och det svider. Det svider på ett personligt plan som jag inte tänker gå in på. Håland och grabbarna kämpade. De förlorade mot ett övermäktigt lag. Det är fotboll. Jag säger inte att jag grät. Men Bosse katten lämnade rummet.
-
-**Ecuador–Tyskland 2–1** var turneringens stora chock. Sju mål i det första mötet, och sen biter underdogen ifrån. Det är därför vi älskar fotboll.
-
-**Argentina–Switzerland 3–1** i kvartsfinalen. Messi-generationens arvtagare rullar på. Man behöver inte vara Einstein för att se att de är farliga.
+Brasilien–Marocko slutade med att Marocko vann. Nederlänkderna förlorade mot Marocko i åttondelarna. Det här är ett VM som skrattar åt favoriter. Det hade Kenta på Söderstadion förstått direkt.
 
 ---
 
 ## Tipskollen
 
-Tätt i toppen. **Mollie och Wilma delar ledningen** på 156 rätt av 345. Imponerande. Jag beundrar konsekvens. Andreas1 på 151 kniper tredje platsen – han hänger på fint.
+Ledartabellen efter 345 matcher: **Mollie och Wilma** delar topplatsen med 156 rätt. Stadig som en murbruk, båda två. Beröm ska utdelas när det förtjänas.
 
-Längst ner hittar vi **Andreas2 på blyga 112 rätt**. Jag säger inte att det är illa. Men det är inte bra heller.
+**Johan Nilsson** – käre Johan – har 126 rätt av 345. Det är inte tabelltoppen, det ska vi inte låtsas om. Men jag har följt Johans rad och mannen har logik. Han tror på Argentinas storhet. Han tror på Englands solida prestationer. Han tror på Paraguay lite mer än vad resultaten tillåter. Det är romantik, det är det. Otur, Johan. Ren och skär otur.
 
 ---
 
-## Johans rad – J Nilsson
+## Dagens ros
 
-Johan. Min kära Johan. 126 rätt av 345.
+**Mollie och Wilma** – jämdelat. 156 rätt i ett VM som kastat kryss och skrällar på löpande band är inte slump. Det är känsla. Hatten av.
 
-Det är inte tabelltoppen, det ska vi vara ärliga med. Men Johan tippar med *hjärta*, och det räknas. Han fick rätt på Mexiko–Sydafrika, USA–Paraguay, Argentina och flera av de stora. Hans misstag är konsekventa – han underskattade kryssen. Det är ett hederligt fel. Det är fotbollsromantikerns fel. Man vill att det ska hända saker.
+---
 
-Johan hade fel. Men på ett väldigt genomtänkt sätt.
+## Dagens stolleprov
+
+Den som tippade **Ecuador–Deutschland** till kryss och sedan fick se Ecuador vinna 2–1 vet du vad du har gjort. Tyskland med sju mål mot Curaçao och sedan åka ut mot Ecuador. Det finns en gammal sanning: fotboll spelas av människor. Inte av statistik.
 
 ---
 
 ## Brittans fundering
 
-Norge är ute. Det gör ont. Frankrike var bättre på dagen, och så är det ibland. Håland sprang och kämpade som den vikingahövding han är, och jag tittade på det med ett slags stolt sorg.
+Norge mot Frankrike. 1–4. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Men när han springer där – lång, målmedveten, med de där kindbenens – undrar jag om jag kanske borde beställa hem de där glasögonen ändå. Lasse frågade varför jag hade fliken öppen igen. Jag sa att jag jämförde bågar.
 
-Jag läste om de där glasögonen igen. Det är för att jag jämför bågar.
+Han såg inte övertygad ut.
 
 ---
 
-## Slutord från Farsta
-
-Sverige lever. Norge är hemma. Bosse katten har somnat igen.
-
-Det finns bara ett Bajen – och i dag känns det ändå som att fotbollen är lite vackrare än igår.
-
-*Brittan, Farsta*
+*Hälsningar från Farsta. Bosse katten gick ut. Lasse vaknar snart. Det är därför vi älskar fotboll.*
