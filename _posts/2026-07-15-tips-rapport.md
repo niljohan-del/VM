@@ -4,54 +4,60 @@ title: "VM-tips 2026-07-15"
 date: 2026-07-15
 ---
 
-# God morgon VM-vänner – 15 juli 2026
+# Onsdag i Farsta, och fotbollen slår aldrig av – 15 juli 2026
 
-Kaffe nummer två är påtaget, Bosse ligger i fönstret och glor på en duva, och Lasse sover fortfarande. Det är VM-morgon i Farsta och jag har inte sovit särskilt mycket. Det har hänt saker.
+God morgon VM-vänner!
+
+Kaffe nummer två är pådraget, Bosse katten sover på tidningen och Lasse hävdar fortfarande att Frankrike inte kan vinna turneringen. Han har haft fel förr.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Japan slutade 1–1. Jag säger ingenting. Jag andas bara lugnt.
+Vad har hänt? Ganska mycket, ska det visa sig.
 
-Vi hade lett med 5–1 mot Tunisien och gick in i gruppens sista match med svansen uppe. Sedan mötte vi Japan och så blev det kryss. Det finns en metafor om Bajen där någonstans men jag orkar inte gå dit just nu.
+**Sverige–Frankrike 0–3.** Ja. Det var det. Frankrike rullade på som en väloljad maskin och vi fick se Blågult lämna planen med sänkta huvuden. Det gjorde ont. Det gör alltid ont. Men fotboll spelas av människor, och den kvällen var fransmännen mer människa än vi.
 
-Det stora snacket är annars **Spanien mot Belgien** som slutade 2–1 till Spanien i semifinal. Vackert, disciplinerat, lite kallt om hjärtat. Spanien spelar fotboll som om de aldrig har haft en dålig dag i livet. Det irriterar mig på ett sätt jag respekterar.
+Sen var det **Norge–England 1–2** som stack i hjärtat lite extra. Norge kämpade, de sprang, de jobbade som norrmän gör. Men England hade mer i slutet. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar springa som ett naturkraftens fenomen kan jag inte hjälpa. Det var ändå en värdig match.
 
-Och sedan **Norge mot England** – 1–2. Förlust. Jag vet. Jag behöver en stund.
-
-Det räcker att säga att pojken från Jæren kämpade. Det räcker att säga att Norge inte skämdes. Och Håland såg faktiskt väldigt fokuserad ut. Bra glasögon hade han också på presskonferensen efteråt. Praktiska sådana. Jag kollade bara.
+**Frankrike–Spanien 0–2** i det som verkar vara ett slutspelsdrama. Spanska passningsspel på det gamla sättet. Det finns något vackert i det.
 
 ---
 
 ## Tipskollen
 
-I toppen thronerar **Mollie och Wilma** med 158 rätt av 351. Solida. Respektabla. Jag vet inte vem de är men jag gillar dem redan.
+Tabellen visar att **Mollie och Wilma** delar täten med 158 rätt av 351. Imponerande. Stabilt. Respektabelt.
 
-**Johan Nilsson** – min käre Johan – sitter på 127 rätt. Det är inte toppen. Det vet Johan. Men jag har följt hans rad och jag kan säga att tanken ofta är rätt. Det är verkligheten som är fel.
+Sedan följer **Andreas1** på 152 och **Anna** på 150. Det börjar bita ihop i toppen.
 
-Johan tippade Norge att gå vidare. Det var modigt. Det var rätt känsla. Fotboll är inte alltid rättvis mot dem som känner den bäst.
+Och så har vi **J Nilsson** – som jag antar är vår Johan – på 127 rätt. Det ser dystert ut på pappret. Men låt mig förklara varför det inte är det.
 
 ---
 
-## Dagens ros
+## Dagens ros – till Mollie och Wilma
 
-Mollie och Wilma delar äran. Två i topp, sida vid sida. Det finns något vackert i det.
+Delade ledare. Kloka, träffsäkra och pålästa. Respekt.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2** – 114 rätt av 351. Det är ett antal. Jag säger ingenting mer. Jo, ett sista sak: det är aldrig för sent att börja titta på fotboll på riktigt.
+Johan tippade rätt på Mexiko–Sydafrika. Sedan tippade han fel på exakt samma match tre gånger till. Det är konsekvent. Det är modigt. Det är nästan konstfullt. Jag säger inte att jag har lösningen. Men kanske – bara kanske – hade en etta räckt.
 
 ---
 
 ## Brittans fundering
 
-1994 förlorade vi mot Brasilien och tog sedan brons. Det kändes som en katastrof som blev ett mirakel. Kanske är det så fotboll fungerar. Kanske gäller det livet med.
+Johan har 127 poäng. Det ser ut som en katastrof. Men det här är en man som tippade **Uzbekistan–Colombia rätt**. Vem gör det? Ingen. Utom Johan. Det finns ett fotbollshjärta där som slår rätt ibland – och då slår det riktigt rätt.
 
-Lasse håller inte med. Han har haft fel förr.
+Bajen hade gjort det snyggare. Men Bajen hade nog också tippar på krysset.
 
-Vi ses imorgon, VM-vänner. Håll ihop.
+---
 
-**// Brittan, Farsta**
+## Slutord från Farsta
+
+Sverige är ute. Frankrike rullar vidare. Norge förlorade men reste sig med värdighet.
+
+Lasse säger att det "kanske är dags att följa Argentina istället." Jag svarade ingenting. Bosse katten lämnade rummet. Det säger ändå något.
+
+*// Brittan*
