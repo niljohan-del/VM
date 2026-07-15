@@ -4,58 +4,54 @@ title: "VM-tips 2026-07-15"
 date: 2026-07-15
 ---
 
-# God morgon VM-vänner – 15 juli 2026!
+# God morgon VM-vänner – 15 juli 2026
 
-Kaffet är pådraget i Farsta. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på duvan som brukar reta upp honom. Och jag? Jag har redan hunnit bli rörd, irriterad och stolt – och klockan är inte ens halv åtta.
-
-Det är därför vi älskar fotboll.
+Kaffe nummer två är påtaget, Bosse ligger i fönstret och glor på en duva, och Lasse sover fortfarande. Det är VM-morgon i Farsta och jag har inte sovit särskilt mycket. Det har hänt saker.
 
 ---
 
 ## Nattens matcher
 
-Vad ska man säga om ett VM som bjuder på **Spanien–Frankrike i semifinal**? Spanien vann med 2–0 och det var som att se ett schackparti spelas med danssteg. Frankrike hade chanser men det räckte inte. Storslaget.
+Sverige mot Japan slutade 1–1. Jag säger ingenting. Jag andas bara lugnt.
 
-Norge föll mot Frankrike i kvartsfinalen med 1–4. Det gör ont. Men pojkarna kämpade och Håland... nej, nu pratar vi inte om det. Jag menar. Fotbollen var vacker. Det räcker.
+Vi hade lett med 5–1 mot Tunisien och gick in i gruppens sista match med svansen uppe. Sedan mötte vi Japan och så blev det kryss. Det finns en metafor om Bajen där någonstans men jag orkar inte gå dit just nu.
 
-Sverige åkte ut mot Nederländerna 1–5 i slutspelet och förlorade sedan mot Japan 1–1 (troligen på straffar, den smärtan sitter kvar). Det gör ont som bara det. Men fem mål mot Sverige är fem för mycket. 1994 hade det aldrig gått så.
+Det stora snacket är annars **Spanien mot Belgien** som slutade 2–1 till Spanien i semifinal. Vackert, disciplinerat, lite kallt om hjärtat. Spanien spelar fotboll som om de aldrig har haft en dålig dag i livet. Det irriterar mig på ett sätt jag respekterar.
 
-Argentina är vidare. Brasilien är ute. Marocko slog Nederländerna med 4–3 i vad som måste ha varit en kolossal match. Jag har sett värre än Marocko. Mycket sämre, faktiskt.
+Och sedan **Norge mot England** – 1–2. Förlust. Jag vet. Jag behöver en stund.
+
+Det räcker att säga att pojken från Jæren kämpade. Det räcker att säga att Norge inte skämdes. Och Håland såg faktiskt väldigt fokuserad ut. Bra glasögon hade han också på presskonferensen efteråt. Praktiska sådana. Jag kollade bara.
 
 ---
 
 ## Tipskollen
 
-I toppen sitter **Mollie och Wilma** med 158 rätt av 351. Grattis, tjejer. Det är imponerande och det säger jag utan en gnutta ironi.
+I toppen thronerar **Mollie och Wilma** med 158 rätt av 351. Solida. Respektabla. Jag vet inte vem de är men jag gillar dem redan.
 
-**Johan Nilsson** – min kära Johan – landar på 127 rätt. Det är inte toppen, det ska erkännas. Johan har haft en tendens att tro på kryss när lagen bestämt sig för att avgöra saken, och tro på ettor när lotteriandan tagit över. Han tippade fel på Frankrike–Norge, fel på Sverige–Frankrike, och han verkar ha en svaghet för X som gränsar till livsstil.
+**Johan Nilsson** – min käre Johan – sitter på 127 rätt. Det är inte toppen. Det vet Johan. Men jag har följt hans rad och jag kan säga att tanken ofta är rätt. Det är verkligheten som är fel.
 
-Men man ska inte vara hård. Fotboll spelas av människor. Och Johan tänker rätt, det ser jag på raden. Han är bara lite olycklig. Som Bajen mot Djurgården 1998. Borde ha vunnit. Förtjänade att vinna. Men.
+Johan tippade Norge att gå vidare. Det var modigt. Det var rätt känsla. Fotboll är inte alltid rättvis mot dem som känner den bäst.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** delar på segern. 158 rätt är ett hantverk.
+Mollie och Wilma delar äran. Två i topp, sida vid sida. Det finns något vackert i det.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2** – 114 rätt av 351. Jag säger inte att jag har lösningen. Men jag anar att den inte börjar med att tippa emot Argentina varje gång.
+**Andreas2** – 114 rätt av 351. Det är ett antal. Jag säger ingenting mer. Jo, ett sista sak: det är aldrig för sent att börja titta på fotboll på riktigt.
 
 ---
 
 ## Brittans fundering
 
-Norge är ute. Det gör ont på ett nordiskt, fjälligt, pålitligt sätt. Men de slog Brasilien. Tänk på det. De slog Brasilien.
+1994 förlorade vi mot Brasilien och tog sedan brons. Det kändes som en katastrof som blev ett mirakel. Kanske är det så fotboll fungerar. Kanske gäller det livet med.
 
-Lasse sa att det var flurigt. Han har haft fel förr.
+Lasse håller inte med. Han har haft fel förr.
 
-Bosse katten lämnade rummet när jag spelade upp höjdpunkterna. Det säger ändå något.
+Vi ses imorgon, VM-vänner. Håll ihop.
 
----
-
-**Ha en fin dag, VM-vänner. Matchen fortsätter.**
-
-*– Brittan, Farsta*
+**// Brittan, Farsta**
