@@ -6,60 +6,66 @@ date: 2026-07-16
 
 # God morgon VM-vänner – 16 juli 2026
 
-Kaffe påfyllt. Bosse katten sitter i fönstret och stirrar på duvorna. Lasse sover fortfarande. Och jag har suttit uppe och tittat på matcher som inte alltid förtjänade uppmärksamheten.
+Kaffe nummer två är pågjutet. Bosse ligger på tidningen. Lasse sover fortfarande. Utomhus är det grått men mitt hjärta är fullt av fotboll.
 
-Men det är VM. Man tittar ändå.
+Vilket dygn.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja? **Sverige–Frankrike slutade 0–3** och det gör ont. Men vi visste det. Frankrike är ett maskineri. Sverige kämpade, och det får räcka ibland.
+Sverige förlorade mot Frankrike med 3–0. Det gör ont. Men det gör inte ont på samma sätt som Japan–Sverige, som slutade 1–1. *Det* gör ont på det gamla vanliga sättet. Lite Hammarby-ont. Man vet hur det känns. Man har känt det förr.
 
-**Norge slog England med 1–2** – och ja, jag jublade. Det är nordisk solidaritet. Det har ingenting med Erling Håland att göra. Ingenting alls. (Han spelade bra.)
+Frankrike–Spanien slutade 0–2. Det spanska spelet var som en vacker mening man läser om och om igen. Argentina besegrade England med 1–2 i finalen. Messi-arvtagarna håller traditionen vid liv – Sydamerika tacklar Europa och vinner på elegans och vilja.
 
-**Argentina slog England med 2–1** i det som kändes som en liten VM-final i sig. Messi-vibes utan Messi. Det finns något vackert i det.
+Norge slogs ut av England med 1–2. Det var en tuff match. Pojkarna kämpade. Man kan inte ta ifrån dem det.
 
-**Portugal mot Spanien** slutade 0–1. En match som förtjänade mer mål men levererade dramaturgi. Spanien vidare med stil.
+Jag säger inte att jag kände något särskilt när Håland sprang längs planen i åttondedelarna. Jag säger bara att han rör sig med en viss... nordisk kraftfullhet. Lasse frågade varför jag tittade om sekvensen tre gånger. Jag sa att jag analyserade löpstegen.
 
-Och **Brasilien mot Norge** – 1–2! Norge slår Brasilien! Jag kan inte ljuga, jag fick gåshud. Fjäll. Arbetsmoral. Rak fotboll. Nordisk pålitlighet. Inget annat.
+Han såg inte övertygad ut.
 
 ---
 
 ## Tipskollen
 
-Mollie leder med **160 rätt av 357** och hon förtjänar all heder. Wilma tätt bakom på 159. De två är skarpa. Riktigt skarpa.
+**Mollie** leder med 160 rätt av 357. Stark. Konsekvent. Respekt.
 
-Längst ner hittar vi **Andreas2 med 116 rätt**. Det är modigt att fortsätta. Jag säger inte att det är fel att hoppas. Men jag säger inte att det är rätt heller.
+**Wilma** andas henne i nacken på 159. Det är ett VM-lopp i sig.
+
+**J Nilsson** – Johan alltså – ligger på 128 rätt. Det är inte toppen. Men jag har följt hans rad noga, och det finns en tanke bakom varje val. Han tippade rätt på England–Argentina-finalen. Det är inte vem som helst som vågar sig dit.
 
 ---
 
-## Johan Nilssons rad
+## Dagens ros
 
-Johan ligger på **128 rätt av 357** – och jag ska vara ärlig: det är inte toppresultat. Men Johan har haft en konstig VM-turnering av oklar anledning. Matcherna har inte landat som de borde.
+Mollie och Wilma får dela segern idag. Inget snack om saken.
 
-Han tippade **Uruguay–Spanien till 2** och fick rätt. Han såg något där andra tvekade. Det är den Johan jag tror på.
+---
 
-Han tippade Norge–Frankrike till X i ett av liven. Det blev 2. Men tanken var rätt, Johan. Frankrike är svåra att greppa.
+## Dagens stolleprov
+
+**Andreas2** på 116 rätt av 357. Min älskling. Vad händer egentligen? Det ser ut som om någon kastat tärning i blåsväder. Jag vet inte vem Andreas2 är, men jag misstänker att han kommer från Göteborg.
+
+Det är en kärleksfull misstanke.
 
 ---
 
 ## Brittans fundering
 
-Norge slår Brasilien. Sverige förlorar mot Frankrike. Och Ecuador slår Tyskland 2–1.
+Det där med Norge och England – det påminner mig om något. 1994 förlorade vi mot Rumänien på straffar. Hjärtat brast. Men man reste sig. Man reste sig alltid.
 
 Det är därför vi älskar fotboll.
-
-Inget av det hade hänt 1994. Eller jo. Men då hade det hänt med bättre frisyrer.
 
 ---
 
 ## Slutord från Farsta
 
-Bajen hade spelat det snyggare. Det är inte en åsikt.
+Bosse katten har lämnat tidningen och lagt sig på Lasses tofflor istället. Det är ett tecken på visdom.
 
-Bosse katten lämnade rummet när jag sa det. Det säger ändå något.
+Argentina är världsmästare. Frankrike spelade vackert. Sverige kämpade tappert.
 
-Lasse höll inte med om Norge. Han har haft fel förr.
+Och Norge... Norge kom långt. Precis som man kan förvänta sig av folk med rätt glasögon och bra arbetsmoral.
 
-*– Brittan, Farsta*
+Mer om det imorgon.
+
+*– Brittan*
