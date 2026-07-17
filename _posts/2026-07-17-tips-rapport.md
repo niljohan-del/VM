@@ -4,54 +4,64 @@ title: "VM-tips 2026-07-17"
 date: 2026-07-17
 ---
 
-# God morgon VM-vänner! 17 juli 2026
+# God morgon VM-vänner – fredag 17 juli 2026!
 
-Kaffe nummer två är pådraget, Bosse sitter på radiatorerna och stirrar på mig som om han vet något jag inte vet. Lasse sover fortfarande. Det regnade i Farsta igår. Det är som vanligt.
+Det är **fredag**, mina vänner. Det betyder att jag häller upp lite extra i koppen, Bosse katten solar sig i fönstret, och Lasse har redan börjat leta efter fernbedienung till TV:n. Vi vet båda vad det innebär.
 
-Men fotbollskvällen – den var allt annat än vanlig.
+Och eftersom det är fredag ska jag tipsa om en öl: **Norrlands Guld Export**. Inte fancy. Inte krånglig. Bara pålitlig. Precis som bra fotboll ska vara.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det som verkligen gör livet värt att leva: **Sverige–Japan slutade 1–1**. Jag vet, jag vet. Det borde bli tre poäng. Men Japan är inte vem som helst, och det finns något vackert i en match som kräver allt. Vi tog oss vidare ändå.
+Var ska man börja?
 
-Och sedan – **Norge–Frankrike 1–4**. Jag sitter still. Jag andas lugnt. Frankrike är ett bra lag. Det är inte Hålands fel att laget runt honom inte alltid håller samma klass. Pojken kämpade. Det räcker ibland. Inte den här gången. Lasse sa att Norge var övervärerat. Lasse har haft fel förr.
+**Sverige–Frankrike** slutade 0–3. Jag ska inte låtsas att det var överraskande. Frankrike är ett riktigt lag. Men det gör ont ändå. 1994 hade vi klarat det. Eller åtminstone gjort det snyggt.
 
-**Brasilien–Marocko** ångade in i slutspelet med ett dramatiskt slut. Marockos seger är en av turnerings finaste berättelser. Det finns något vackert i det.
+**Norge–England** slutade 1–2. Hjärtat tyngdes. Norge är ute. Erling kämpade, det vet jag. Jag följde varje närbild. Av *fotbollsskäl*. Lasse frågade ingenting. Han är klok.
 
-**England–Argentina** avgjordes med 1–2. Argentina går vidare. Messi är inte där längre, men det spelar ingen roll – kulturen sitter i ryggmärgen på det laget.
+**Argentina–England** slutade 2–1. Argentina är i final. Det är nästan för dramatiskt för att vara sant. Messi-generationens arvtagare tar rodret. Det finns något vackert i det.
+
+Semifinalerna gav oss **Frankrike–Spanien 0–2** och **England–Argentina 1–2**. Alltså: **Spanien möter Argentina i final**. Det blir storslaget.
 
 ---
 
 ## Tipskollen
 
-**Mollie leder med 160 rätt** av 357. Det är imponerande. Wilma andas henne i nacken på 159. Håll ut, flickorna. Ni ger inte järnet gratis.
+**Mollie** leder med 160 rätt på 357 matcher. Starkt. Riktigt starkt. Mollie ser tydligen fotboll med andra ögon än resten av oss dödliga.
 
-**J Nilsson – det vill säga Johan – sitter på 128 rätt.** Det är inte toppskiktet, det ska jag inte slingra mig undan. Men Johan tippar med *hjärtat*, och det kostar ibland. Norge–Frankrike? Han tippade X. Det är ett hederligt tips. Frankrike hade en dålig dag på pappret men vann ändå. Det är fotboll. Fotboll spelas av människor.
+**Wilma** häver sig på 159. En poäng efter. Det där måste svida om nätterna.
+
+Sedan följer Andreas1, Anna, Caroline och Samuel L i ett tätt gäng. Det är kamp om varje poäng nu.
 
 ---
 
-## Dagens ros
+## Johans rad
 
-**Mollie och Wilma** delar äran idag. Stabilt, konsekvent, modigt. Precis som Kennet Andersson 1994 – inte alltid det vackraste, men alltid effektivt.
+**J Nilsson: 128 rätt av 357.**
+
+Kära Johan. Favoritnephew i mitt hjärta, även om vi inte är släkt.
+
+Norge–Frankrike tippade han X. Det blev 2. Norge–Senegal tippade han X. Det blev 1. Johan hittar krysset som ett slags filosofisk hållning inför tillvaron. Det är modigt. Det är konsekvent. Det är inte alltid rätt.
+
+Men tanken bakom är alltid genomtänkt. Resultatet råkar ibland välja en annan väg.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2 på 116 rätt** av 357. Det är inte siffror som inger förtroende. Det är siffror som inger medkänsla. Jag säger inte att jag har lösningen. Men kanske tippa lite mer 1 och lite mindre hoppas på det bästa.
+Den som tippade **Ecuador–Tyskland** till X och fick 1 tillbaka. Ja, det var flera stycken. Inklusive vissa som borde vetat bättre.
+
+Bajen hade läst den matchen rätt från kickoff.
 
 ---
 
-## Brittans fundering
+## Brittans fredag-fundering
 
-Norge förlorade mot Frankrike. Det gör ont. Men de slog Senegal 3–2 i ett av turneringens mest elektriska matcher. Det är det laget som håller mig varm om natten. Inte för att jag tittar på Håland. Utan för fotbollens skull.
+Fotboll är som livet. Man tror sig veta. Man tippar kryss. Det blir ett mål i 89:an. Och man sitter där med sin Norrlands Guld och tänker: *det där hade aldrig hänt 1994.*
 
-Att han dessutom ser ut som en vikingahövding är helt irrelevant.
+Eller jo. Men då hade det åtminstone hänt med bättre frisyrer.
 
----
+Ha en fin fredag, allihopa. Bajen är bäst. Det är inte en åsikt.
 
-*Ha en fin dag. Bajen hade vunnit med stil. Det är inte en tröst – det är ett faktum.*
-
-— **Brittan, Farsta**
+*– Brittan, Farsta*
