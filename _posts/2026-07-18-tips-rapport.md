@@ -4,66 +4,56 @@ title: "VM-tips 2026-07-18"
 date: 2026-07-18
 ---
 
-# God morgon VM-vänner! 18 juli 2026 – en natt av kaos, kärlek och Hålands Norge
+# God morgon VM-vänner – 18 juli 2026
 
-Kaffe nummer två. Bosse katten sover på fernissen. Lasse muttrar om något men jag lyssnar inte – jag har resultat att gå igenom.
-
-Det är ett VM som inte ger en ro.
+Kaffe är påsatt. Bosse katten sitter i fönstret och stirrar på en duva med den koncentration som jag önskar att vissa tippare lade på sina kuponger. Lasse sover fortfarande. Han missade Norgematcherna igår och fick höra det i morse.
 
 ---
 
 ## Nattens matcher
 
-Sverige förlorade mot Nederländerna med 5–1. Jag säger inte att det var fult. Jo, det var fult. Men Japan–Sverige slutade 1–1, och det finns något vackert i det – som att hitta en femkrona när allt verkar svart.
+Vad var det som hände?
 
-Frankrike slår Spanien med 2–0 i finalen. Spanien som åkte ut mot Portugal (0–1), som i sin tur kämpade sig igenom gruppspelet på krympande marginaler. Det är därför vi älskar fotboll – eller hatar det, beroende på dagen.
+Sverige slog Tunisien 5–1 i gruppspelet och jag ler fortfarande. Det är det där leendet man inte riktigt kan hålla tillbaka, det som sitter kvar i mungipan när man häller upp kopp nummer två. 1994 bar vi ett helt folk på ryggen – i år kanske vi bär oss själva till något stort igen.
 
-**Norge slår Brasilien med 2–1.** Ja, ni läste rätt. Norrmännen, med sin rak rygg och sin orubbliga nordiska attityd, skickade hem Brasilien. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken verkar bära hela landet på sina breda axlar kan jag inte hjälpa.
+Norge slog Senegal 3–2. Hjärtat hamrade. Det var inte vackert hela vägen, men det var levande och det var äkta. Håland var Håland. Jag säger inget mer om det. Lasse frågade varför jag tittade om repriserna två gånger. Jag sa att det var för att analysera presspelet. Han såg inte övertygad ut.
 
-Argentina vinner till slut hela turneringen – England fälls med 2–1 i semifinal. Det är storslagen fotboll. Det är 1994 fast med bättre sociala medier och sämre frisyrer.
+Ecuador slog Tyskland 2–1. Jag har sett värre. Men det är ändå lite häpnadsväckande. Det finns något vackert i underdogen som slår tillbaka. Det är därför vi älskar fotboll.
+
+Frankrike–Spanien slutade 0–2 och Spanien är vidare med stil. Argentina slog England 2–1 och tog sig till final. Det rycker i magen. Det är VM.
 
 ---
 
 ## Tipskollen
 
-Tabellen efter 357 omgångar ser ut så här i toppen:
+Mollie leder med 160 rätt av 357. Wilma tätt efter med 159. Sedan kommer Andreas1 på 154. Starkt gäng i toppen, faktiskt.
 
-🥇 **Mollie – 160 poäng**
-🥈 **Wilma – 159 poäng**
-🥉 **Andreas1 – 154 poäng**
+**J Nilsson – vår Johan – ligger på 128 rätt av 357.**
 
-Sedan följer Anna (152), Caroline och Samuel L (151 var), Mats och Norman (150 var).
+Det ser tungt ut på pappret. Men jag har följt hans rad noga och det finns en logik i hans tänk som förtjänar respekt. Han såg rätt på många grundmönster, men turens vind blåste åt fel håll. Fotboll spelas av människor, Johan. Det kan ingen tippa fullt ut.
 
-Längst ner hittar vi **Andreas2 med 116 poäng**. Vilket mod det kräver att fortsätta. Jag beundrar det egentligen.
+Andreas2 sitter på 116 rätt och det är, hur man än vänder på det, lite magert. Man behöver inte vara Einstein för att se att det har gått trögt. Men det finns matcher kvar. Det är inte kört.
 
 ---
 
-## Dagens ros 🌹
+## Dagens ros
 
-**Mollie** leder med 160 rätt och det är välförtjänt. Det finns en lugn träffsäkerhet i det – ingen panik, inga vilda gissningar. Respekt.
+**Mollie.** 160 rätt. Konsekvent, modig, träffsäker. Respekt, faktiskt riktig respekt.
 
 ---
 
-## Dagens stolleprov 🤦
+## Dagens stolleprov
 
-**J Nilsson – 128 poäng av 357.**
-
-Johan, Johan, Johan. Du är min favorit och det vet du. Men siffran talar sitt tydliga språk. Du tippade Norge–Frankrike som kryss. *Kryss.* Norge! Med Håland! Det är som att tippa kryss på Bajen hemma mot ett reservlag.
-
-Tanken var ändå rätt. Norge är oförutsägbara. Det är bara det att de inte *ville* vara oförutsägbara den kvällen – de ville vinna. Och det förstår jag faktiskt.
+Den som tippade kryss på Sverige–Tunisien. Fem mål insläppta. Funderar på om de ens tittade på grupperna.
 
 ---
 
 ## Brittans fundering
 
-Norge slår Brasilien. Det säger något om detta VM. Det säger något om fotboll. Det säger något om att arbete, disciplin och lite nordisk envishet fortfarande räcker långt.
+Norge möter England i åttondel. Det är som att tänka på det men inte riktigt våga. Jag säger bara att Håland är i form. Och att de glasögonen han gör reklam för faktiskt verkar väldigt praktiska för inomhusbruk.
 
-Det hade aldrig hänt 1994. Eller jo. Men 1994 hade Brolin sett gladare ut efteråt.
+Bajen hade spelat hela turneringen med mer hjärta. Det är inte en åsikt. Det är ett grundvillkor.
 
-Lasse frågade varför jag hade Hålands glasögon uppe på skärmen igen. Jag sa att jag jämförde bågar.
+Ha en fin dag, VM-vänner. Vi ses imorgon.
 
-Han såg inte övertygad ut.
-
----
-
-*Brittan från Farsta. Bajen är bäst. Det är inte en åsikt.*
+*– Brittan, Farsta*
