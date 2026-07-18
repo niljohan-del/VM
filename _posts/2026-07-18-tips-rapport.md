@@ -6,54 +6,42 @@ date: 2026-07-18
 
 # God morgon VM-vänner – 18 juli 2026
 
-Kaffe är påsatt. Bosse katten sitter i fönstret och stirrar på en duva med den koncentration som jag önskar att vissa tippare lade på sina kuponger. Lasse sover fortfarande. Han missade Norgematcherna igår och fick höra det i morse.
+Kaffe nummer två. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på en duva med en intensitet som jag önskar att vissa tippare hade lagt på sina matcher.
+
+Det är lördag. Det har spelats fotboll. Mycket fotboll. För mycket fotboll för en kvinna att hålla reda på utan att skriva ner det.
 
 ---
 
 ## Nattens matcher
 
-Vad var det som hände?
+Sverige förlorade mot Frankrike med 3–0. Det gör ont. Och Japan–Sverige slutade 1–1, vilket är ungefär som att säga att man gick hem från festen med en näsduk som tröst. Men Sverige är ute nu, och det är som det är. Vi fick ihop ett fint äventyr.
 
-Sverige slog Tunisien 5–1 i gruppspelet och jag ler fortfarande. Det är det där leendet man inte riktigt kan hålla tillbaka, det som sitter kvar i mungipan när man häller upp kopp nummer två. 1994 bar vi ett helt folk på ryggen – i år kanske vi bär oss själva till något stort igen.
+Norge slog England med 1–2 i det som kanske var turneringens vackraste grej hittills. Rak fotboll. Nordisk karaktär. Och Håland... ja. Pojken bidrar. Han ser också väldigt bra ut i de där glasögonen i reklamen. Jag tittar på dem av ergonomiska skäl.
 
-Norge slog Senegal 3–2. Hjärtat hamrade. Det var inte vackert hela vägen, men det var levande och det var äkta. Håland var Håland. Jag säger inget mer om det. Lasse frågade varför jag tittade om repriserna två gånger. Jag sa att det var för att analysera presspelet. Han såg inte övertygad ut.
+Argentina slog England med 2–1 i finalen. Det är fotboll. Det är dramatik. Det är 1994 fast annorlunda – men den där känslan i bröstet, den är densamma.
 
-Ecuador slog Tyskland 2–1. Jag har sett värre. Men det är ändå lite häpnadsväckande. Det finns något vackert i underdogen som slår tillbaka. Det är därför vi älskar fotboll.
-
-Frankrike–Spanien slutade 0–2 och Spanien är vidare med stil. Argentina slog England 2–1 och tog sig till final. Det rycker i magen. Det är VM.
+Ecuador slog ut Tyskland med 2–1. Det där hade aldrig hänt 1994. Eller jo. Men ändå.
 
 ---
 
 ## Tipskollen
 
-Mollie leder med 160 rätt av 357. Wilma tätt efter med 159. Sedan kommer Andreas1 på 154. Starkt gäng i toppen, faktiskt.
+**Mollie leder med 160 poäng** och det är imponerande. Wilma följer tätt på 159. De två damerna kör huvudfältet över ängen som om det vore en promenad i Farstaparken.
 
-**J Nilsson – vår Johan – ligger på 128 rätt av 357.**
+Sedan har vi **J Nilsson – Johan – på 128 poäng**. Det är inte toppen av tabellen, och det vet Johan lika väl som jag. Men jag har följt hans rad, och jag ser vad han försöker göra. Han tänker fotboll. Han läser matcher. Det slår inte alltid in, men tanken är ofta rätt. Norge–Senegal? Johan tippade kryss. Resultatet blev 3–2. Det var en match som *borde* ha slutat kryss, men Håland ville annat.
 
-Det ser tungt ut på pappret. Men jag har följt hans rad noga och det finns en logik i hans tänk som förtjänar respekt. Han såg rätt på många grundmönster, men turens vind blåste åt fel håll. Fotboll spelas av människor, Johan. Det kan ingen tippa fullt ut.
-
-Andreas2 sitter på 116 rätt och det är, hur man än vänder på det, lite magert. Man behöver inte vara Einstein för att se att det har gått trögt. Men det finns matcher kvar. Det är inte kört.
-
----
-
-## Dagens ros
-
-**Mollie.** 160 rätt. Konsekvent, modig, träffsäker. Respekt, faktiskt riktig respekt.
-
----
-
-## Dagens stolleprov
-
-Den som tippade kryss på Sverige–Tunisien. Fem mål insläppta. Funderar på om de ens tittade på grupperna.
+**Andreas2 på 116 poäng** är inte på en bra plats. Det är nästan en bedrift att ligga sist i ett sällskap som det här, men var och en hittar sin nisch.
 
 ---
 
 ## Brittans fundering
 
-Norge möter England i åttondel. Det är som att tänka på det men inte riktigt våga. Jag säger bara att Håland är i form. Och att de glasögonen han gör reklam för faktiskt verkar väldigt praktiska för inomhusbruk.
+Argentina vann VM. Det är rätt. Det är en lag som spelar med hjärtat utanpå tröjan. Bajen gör detsamma. Det är inte alltid vackert. Men det är alltid äkta.
 
-Bajen hade spelat hela turneringen med mer hjärta. Det är inte en åsikt. Det är ett grundvillkor.
+Det är därför vi älskar fotboll.
 
-Ha en fin dag, VM-vänner. Vi ses imorgon.
+---
 
-*– Brittan, Farsta*
+*Hälsningar från Farsta. Lasse vaknade precis och frågade vem som vann finalen. Jag sa Argentina. Han sa "det visste jag". Han hade fel förr.*
+
+*– Brittan*
