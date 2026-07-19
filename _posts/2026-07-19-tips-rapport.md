@@ -6,49 +6,52 @@ date: 2026-07-19
 
 # God morgon VM-vänner – 19 juli 2026
 
-Kaffet är påsatt, Bosse katten ligger på tidningen och Lasse påstår att han sov gott. Jag vet inte hur det var möjligt. Det var fotboll in i absurdum igår.
+Kaffe är påsatt. Bosse sitter i fönstret och stirrar på en duva. Lasse sover fortfarande, vilket är klokt med tanke på gårdagens matcher. Det hände *saker*.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Japan slutade 1–1. Jag säger inte att det var fel. Jag säger att det kändes som att se Bajen spela 0–0 på Söderstadion en kall novemberdag – det finns ett slags vacker plåga i det. Vi hade mer. Vi borde haft mer. Men ett kryss är ett kryss och vi lever vidare.
+Sverige mot Frankrike. 3–0. Jag ska inte ljuga – det svider. Men Frankrike är Frankrike, och vi ska vara stolta över att vi ens är här. Det var inte feg fotboll av Sverige, det var bara för bra motstånd. Jag har sett värre.
 
-Frankrike slog England 4–6 i den sista matchen. Läs det igen. Fyra–sex. Det är inte fotboll, det är ett pinballsspel. Vackert kaos. Det där hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone slutat på ett rimligare sätt.
+Norge slog England med 1–2. Där satt det. Håland och hans lagkamrater visade exakt den där nordiska järnviljan som får mig att... ja, uppskatta nordisk fotboll. Av rent fotbollsmässiga skäl. Inte av andra skäl. Lasse behöver inte läsa det här stycket.
 
-Norge slog Frankrike 1–4 i gruppspelet. Det var när jag log allra bredast. Håland och grabbarna är nog lite av det roligaste som händer i det här mästerskapet. Det har ingenting med utseende att göra. Det är nordisk arbetsmoral, rakt spel och fjällkänsla. Ingenting annat.
+Argentina–England slutade 1–2 till Argentinas favör, och Frankrike–England 4–6. Det är semifinalfotboll av det absurda slaget. 1994 hade Brolin dansat i glädje inför det. Vi hade dansat med honom.
 
-Lasse såg på mig när jag hoppade upp från soffan. Han sa ingenting. Han har haft fel förr.
+Tyskland–Paraguay 4–5 är det mest osannolika resultatet i modern tid. Bosse katten lämnade rummet när jag läste det högt. Det säger ändå något.
 
 ---
 
 ## Tipskollen
 
-Mollie leder med 162 poäng och Wilma andas i nacken med 161. Starkt av båda. Riktigt starkt.
+**Mollie** leder med 162 rätt av 363. Stark. Konsekvent. Lite irriterande.  
+**Wilma** på 161 – ett enda poängs marginal. Det kallas thriller.  
+**Andreas2** sist med 118. Det är inte katastrof. Jo, det är det lite.
 
-**Johan Nilsson** sitter på 128 poäng. Inte toppstriden precis – men jag har sett matcherna, och jag vet att Johan tänker rätt. Det är bara utfallen som krånglar. Fotboll spelas av människor, och ibland spelar de fel fotboll. Det är inte Johans fel.
+### Lite om J Nilsson
+
+Johans rad är... ett hantverk av optimism. 128 rätt av 363. Han tippade Norge att förlora mot Frankrike – X – men Norge vann faktiskt. Johan såg en jämnlåten match. Resultatet tänkte annorlunda. Tanken var ändå rätt på ett genomtänkt sätt. Det är därför vi älskar Johan.
 
 ---
 
 ## Dagens ros
 
-Mollie. 162 poäng. Jag gillar inte att en kvinna i täten inte fått mer uppmärksamhet. Modig, konsekvent, träffsäker. Bra magkänsla.
+**Mollie**. Inget snack. Kvinna med känsla för spelet.
 
 ---
 
 ## Dagens stolleprov
 
-Andreas2. 118 poäng av 363. Det är nästan ett konstverk i sig. Man behöver inte vara Einstein – men man behöver inte tippa som om man är emot fotboll heller. Kärleksfullt menat, Andreas.
+Den som tippade Paraguay att slå Tyskland 4–5... har antingen en kristallkula eller hittar på i efterhand. Jag säger inte vilket.
 
 ---
 
 ## Brittans fundering
 
-Det finns något vackert i att ett VM kan rymma allt: Sverige som kryxar mot Japan, Frankrike som förlorar en match 4–6, Norge som vinner med stil. Fotboll är inte logik. Det är känslor organiserade i 90 minuter.
+Frankrike–England 4–6. Det finns något vackert i det kaoset. Fotboll spelas av människor, inte algoritmer. Det är därför Söderstadion alltid brann mer än vilket modernt arenakomplex som helst.
 
-Det är därför vi älskar det. Det är därför Bajen är bäst.
+Bajen hade gjort det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
 
 ---
 
-*Ses imorgon. Bosse katten nickar.*
-**– Brittan, Farsta**
+*Hej på er från Farsta. Lasse har vaknat och undrar varför jag ler mot telefonen. Jag sa att det var Norge. Han trodde mig inte.*
