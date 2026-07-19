@@ -4,54 +4,50 @@ title: "VM-tips 2026-07-19"
 date: 2026-07-19
 ---
 
-# God morgon VM-vänner – 19 juli 2026
+# God morgon VM-vänner – söndag 19 juli 2026
 
-Kaffe är påsatt. Bosse sitter i fönstret och stirrar på en duva. Lasse sover fortfarande, vilket är klokt med tanke på gårdagens matcher. Det hände *saker*.
+Kaffe nummer två är påfyllt. Bosse katten sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Ute i Farsta är det grått men varmt, som en halvmotiverad mittfältare – man vet inte riktigt vad man ska förvänta sig.
+
+Det är mycket att gå igenom i dag.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Frankrike. 3–0. Jag ska inte ljuga – det svider. Men Frankrike är Frankrike, och vi ska vara stolta över att vi ens är här. Det var inte feg fotboll av Sverige, det var bara för bra motstånd. Jag har sett värre.
+Sverige. Ja. **5–1 mot Tunisien.** Jag vet inte om jag grät lite. Det var i alla fall saker i ögonen. Det där är ett lag som spelar med hjärta, och för en kort stund påminde det om 1994 – inte riktigt Brolin mot Rumänien, men i närheten av känslan. I närheten.
 
-Norge slog England med 1–2. Där satt det. Håland och hans lagkamrater visade exakt den där nordiska järnviljan som får mig att... ja, uppskatta nordisk fotboll. Av rent fotbollsmässiga skäl. Inte av andra skäl. Lasse behöver inte läsa det här stycket.
+Sedan kom **Nederländerna–Sverige 5–1** och det var som att öppna kylskåpet och hitta att Lasse ätit upp sista osten. Besvikande. Men ändå – pojkarna var med ett tag.
 
-Argentina–England slutade 1–2 till Argentinas favör, och Frankrike–England 4–6. Det är semifinalfotboll av det absurda slaget. 1994 hade Brolin dansat i glädje inför det. Vi hade dansat med honom.
+**Tyskland–Curaçao 7–1** är inte fotboll. Det är bokföring.
 
-Tyskland–Paraguay 4–5 är det mest osannolika resultatet i modern tid. Bosse katten lämnade rummet när jag läste det högt. Det säger ändå något.
+**Frankrike–England 4–6** i slutet av turneringen är däremot det som får en att minnas varför man älskar sporten. Sex mål av England. Fyra av Frankrike. Övertid för hjärtat.
+
+**Norge slog Brasilien med 2–1.** Jag säger ingenting. Jag bara konstaterar att Håland och grabbarna fortsätter att leverera med den nordiska pålitlighet som gör att man… beundrar deras spelsystem. Inget annat.
 
 ---
 
 ## Tipskollen
 
-**Mollie** leder med 162 rätt av 363. Stark. Konsekvent. Lite irriterande.  
-**Wilma** på 161 – ett enda poängs marginal. Det kallas thriller.  
-**Andreas2** sist med 118. Det är inte katastrof. Jo, det är det lite.
+Mollie leder med **162 rätt** och Wilma hänger på med **161**. Starkt. Riktigt starkt. De två damerna i toppen vet vad de håller på med.
 
-### Lite om J Nilsson
+**J Nilsson** – det vill säga Johan – har **128 rätt av 363**. Inte tabelltoppen direkt. Men, och det här är viktigt: Johan tippar med övertygelse. Hans rad är inte feg. Den är djärv, ibland för djärv, men det är bättre än att fylla i kryss av gammal vana. När han har rätt på Uzbekistan–Colombia och Panama–Kroatien ser man att ögat finns där. Otur, Johan. Ren otur.
 
-Johans rad är... ett hantverk av optimism. 128 rätt av 363. Han tippade Norge att förlora mot Frankrike – X – men Norge vann faktiskt. Johan såg en jämnlåten match. Resultatet tänkte annorlunda. Tanken var ändå rätt på ett genomtänkt sätt. Det är därför vi älskar Johan.
-
----
-
-## Dagens ros
-
-**Mollie**. Inget snack. Kvinna med känsla för spelet.
-
----
-
-## Dagens stolleprov
-
-Den som tippade Paraguay att slå Tyskland 4–5... har antingen en kristallkula eller hittar på i efterhand. Jag säger inte vilket.
+Andreas2 sitter på **118 rätt**. Jag säger inte mer om det. Det säger sig självt.
 
 ---
 
 ## Brittans fundering
 
-Frankrike–England 4–6. Det finns något vackert i det kaoset. Fotboll spelas av människor, inte algoritmer. Det är därför Söderstadion alltid brann mer än vilket modernt arenakomplex som helst.
+Det finns något vackert i ett VM där Curaçao och Kap Verde är med. Där Haiti slåss. Där alla drömmar inte kostar pengar.
 
-Bajen hade gjort det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
+Bajen hade förstått det.
 
 ---
 
-*Hej på er från Farsta. Lasse har vaknat och undrar varför jag ler mot telefonen. Jag sa att det var Norge. Han trodde mig inte.*
+## Slutord från Farsta
+
+Bosse katten har gett upp på duvan. Lasse är fortfarande inget fotbollsproffs på tipset – men det är han medveten om. Norge möter tuffare motstånd framöver. Jag har inte beställt de där glasögonen.
+
+Än.
+
+*Heja fotbollen. Heja Bajen. Vi ses imorgon.*
