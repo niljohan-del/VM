@@ -4,54 +4,58 @@ title: "VM-tips 2026-07-20"
 date: 2026-07-20
 ---
 
-# God morgon VM-vänner – 20 juli 2026, och fotbollen sover aldrig
+# God morgon VM-vänner – måndag 20 juli 2026!
 
-Brittan här, från Farsta, med tredje koppen kaffe och en katt som stirrar på mig som om jag gjort något fel. Det har jag inte. Än.
-
-Lasse sov igenom halvt VM i natt. Det är hans förlust.
+Kaffe nummer två är pådrucket, Bosse katten sitter och stirrar på väggen som om han vet något vi inte vet, och Lasse har redan frågat om jag "måste hålla på med det där datorn igen". Jo, Lasse. Det måste jag.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Japan slutade 1–1. Jag säger inte att det är ett dåligt resultat. Jag säger att det är ett *trist* resultat. Vi har spelat vackrare fotboll. Vi har också spelat fulare. Men 1–1 mot Japan i ett VM luktar lite väl mycket av "vi nöjer oss med detta." Bajen hade gjort det snyggare.
+Vad har hänt egentligen. Var ska man börja.
 
-Frankrike körde på. Norge slog Elfenbenskusten 2–1 och jag ska inte låtsas som att jag inte hoppade upp från soffan. Erling var sannolikt nöjd. Jag tittar inte på Norge för Hålands skull. Det har jag sagt förut. Det handlar om nordisk karaktär.
+**Sverige–Japan slutade 1–1.** Jag är lite svarsbehövande. Vi har precis kört ihjäl Tunisien med 5–1 och så är det kryssigt mot Japan. Fotboll spelas av människor, visst. Men det är ändå lite pirrigt. Lasse höll inte med när jag sa att vi borde ha vunnit. Han har haft fel förr.
 
-Spanien–Argentina slutade 1–0. Det är ett av de resultat som får en att tänka på vad fotboll egentligen är. Dramatik. Hjärtslag. 1994 hade det sett likadant ut – fast med bättre frisyrer.
+Stort nummer var **Spanien som förlorade mot Argentina i finalen med 1–0**. El clásico de finales. Argentina vann turneringen med ett stabilt, kliniskt spel som påminner mig lite om hur Sverige spelade i bronsmatchen 1994 – inte vackert alltid, men effektivt och hårt. Brolin hade gjort det snyggare. Men Brolin är inte med.
 
-Paraguay slog Tyskland 4–5. Jag behöver ett ögonblick.
+**Norge slogs ut av England med 1–2.** Jag tar det hårt. Håland kämpade som en viking. Ingen kan ta det ifrån honom. De där glasögonen han gör reklam för verkar f.ö. vara väldigt bra för läsning. Jag kollar upp dem lite senare.
 
 ---
 
 ## Tipskollen
 
-Mollie och Wilma leder med 166 rätt av 369 och får dela på äran. Bra jobbat, båda två. Det är skarpt.
+Poängtoppen ser ut så här efter 369 omgångar:
 
-Johan Nilsson? Han sitter på 132 rätt. Det är inte toppen av ligan, det ska jag inte sticka under stol med. Men jag har sett hans rad, och det är inte brist på fotbollsförstånd det handlar om. Det är otur. Det är matchfotboll som vägrar rätta sig efter logiken. Johan tippade rätt *tanke* på de flesta matcher. Bollen bara studsade fel.
+**Mollie och Wilma delar ledningen med 166 poäng.** Starkt. Riktigt starkt. De två har läst det här turneringen som en gammal sportjournalist läser en förstasidesnyhet.
 
-Det händer de bästa. Det händer Bajen också.
+**J Nilsson ligger sist med 132 poäng.** Det är Johan. Min Johan. Mannen med hjärta men med en rörlig träffsäkerhet, ska vi säga.
+
+Johans rad i dag är ett litet mönster av ihärdighet. Han tippade rätt på Argentina i genomgången, träffade några engelska matcher och visade prov på god magkänsla här och var. Men han har en tendens att tippa kryss när laget faktiskt vinner, och 1:a när det faktiskt bli kryss. Det är lite som att ha rätt tanke men felaktig klocka.
 
 ---
 
 ## Dagens ros
 
-Mollie och Wilma – ni delar podiet och ni förtjänar det. 166 rätt vittnar om en matchbild man inte skaffar sig av slump.
+**Mollie och Wilma** – ni vet vad ni håller på med. Jag vet inte hur ni gör det, men det ser ut som om ni tittat på varje match med en kopp kaffe och ett block. Det är beundransvärt.
 
 ---
 
 ## Dagens stolleprov
 
-Andreas2 med 121 rätt. Kära Andreas2 – fotboll är inte ett exakt hantverk, men det finns gränser. Jag önskar dig all lycka i resterande matcher. Du behöver det.
+Den som tippade **Spanien att vinna mot Portugal i semifinal och förlora finalen mot Argentina** i en rad, och sedan Spanien att vinna finalen i en annan rad – det är dubbelbokföring av sämsta slag. **Andreas2 på 121 poäng** – jag säger ingenting. Men man behöver inte vara Einstein.
 
 ---
 
 ## Brittans fundering
 
-Paraguay–Tyskland 4–5. Jag har sett värre. Men sällan mer underhållande. Det är därför vi älskar fotboll. Inte för att det är förutsägbart – utan för att det aldrig, aldrig är det.
+Det finns något vackert i ett VM som håller på och håller på tills allting är avgjort. Argentina vann. Inte med 1994 års folkfest-känsla, inte med Dahlin på topp och Ravelli i mål. Men med fotboll som faktiskt byggde på något.
 
-Bosse katten lämnade rummet mitt i andra halvlek. Det säger ändå något.
+Bajen hade spelat snyggare. Det är inte en åsikt.
 
-Ha en fin måndag, VM-vänner. Bajen är bäst. Det är inte en åsikt.
+---
 
-// Brittan
+## Slutord från Farsta
+
+Bosse katten lämnade rummet när jag började läsa om de där glasögonbågarna igen. Det säger ändå något.
+
+Ha en fin måndag, allihop. Och Johan –
