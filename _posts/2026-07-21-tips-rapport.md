@@ -4,56 +4,60 @@ title: "VM-tips 2026-07-21"
 date: 2026-07-21
 ---
 
-# God morgon VM-vänner! | 21 juli 2026
+# God morgon VM-vänner – 21 juli 2026
 
-Kaffe nummer två är pådrucket. Bosse katten ligger på fjärrkontrollen. Lasse sover fortfarande, vilket är hans förlust – det har hänt saker i natt.
+Kaffe på. Bosse katten sover fortfarande i fåtöljen. Lasse läser tidningen och låtsas som att han inte också följde matcherna igår kväll. Det lurar mig inte.
 
-Låt mig börja med det viktigaste: **Sverige förlorade mot Frankrike med 3–0**. Det svider. Men Japan slog oss med 1–1 i gruppspelet, och Nederlänarna körde över oss 5–1. Jag säger inte att det var vackert. Jag säger att det var fotboll. Ibland gör det ont.
+Utanför är det sommar i Farsta. Inomhus är det VM. Så ska det vara.
 
 ---
 
 ## Nattens matcher
 
-Norge slog Ivory Coast med 2–1. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken ser ut som en vikingahövding som precis klev ur en reklamfilm för glasögon kan jag inte hjälpa.
+Vad ska man säga. Det var en natt som gav oss allt på en gång – storlag som vann, storlag som föll, och ett par resultat som fick mig att sätta ner kaffekoppen hårdare än nödvändigt.
 
-Paraguay slog **Tyskland med 5–4**. Läs det igen. Paraguay. 5–4. Mot Tyskland. Det där hade aldrig hänt 1994. Eller jo – men då hade Tomas Brolin varit med och gjort det snyggare.
+**Sverige–Tunisien 5–1.** Fem mål. Fem. Jag satt och klappade händerna som ett barnbarn på julafton. Det finns fortfarande något av 1994 i det svenska spelet när det väl lossnar. Brolin skulle ha älskat det där. Sedan dess kom förstås **Frankrike–Sverige 3–0** och stämde ned förväntningarna lite. Men vi lever. Vi hoppas. Det är fotboll.
 
-Marocko slog Nederländerna med 4–3. Spanien vann mot Argentina i final med 1–0. England föll mot Frankrike med 4–6 i vad som verkar ha varit en match av rena kaos-skolan. Det är därför vi älskar fotboll.
+**Brasilien–Norge 1–2.** Stopp. Läs det igen. Norge slog Brasilien. Norge! Jag säger inget om varför jag följde den matchen extra noga. Det har ingenting med Erling att göra. Det är fotbollen. Den nordiska arbetsmoralen. Fjällen. Du vet.
+
+**Ecuador–Tyskland 2–1** var turneringens kanske största chock i gruppspelet. Sju–ett i ena matchen, sedan åker man ut på en tvåa mot Ecuador. Det är därför vi älskar fotboll. Och det är därför man aldrig ska luta sig tillbaka.
+
+**England–Argentina 1–2** i slutspel. Fotbollsromantik av det svåra slaget. Känslan i magen. Händerna i knät. Lasse höll inte med om att det var rättvist. Han har haft fel förr.
 
 ---
 
 ## Tipskollen
 
-I toppen hittar vi **Mollie och Wilma** på 166 rätt av 369. Imponerande. Modiga. Välförtjänt.
+Tabellen talar sitt tydliga språk: **Mollie och Wilma leder med 166 rätt** av 369 möjliga. Det är riktigt bra. Respekt till er båda.
 
-Sedan kommer **Andreas1 på 159** och **Caroline och Anna på 157**. Stark mittfält.
-
-Längst ned sitter **Andreas2 på 121 rätt**. Jag säger ingenting. Men 121 av 369 är... ett val.
+**Andreas1 på 159** håller sig väl framme. Och så har vi botten – **Andreas2 på 121**. Det är en siffra som berättar en historia. Jag säger inte vilken historia. Men det är en.
 
 ---
 
-## Johans rad
+## Dagens ros
 
-**J Nilsson landar på 132 rätt av 369.** Det är inte toppen av tabellen, det ska jag inte ljuga om.
-
-Men Johan tippade rätt på Argentina genomgående, han såg Senegal slå Irak, och han hade koll på Uruguay–Spanien när det verkligen gällde. Problemet är Norge. Johan har konsekvent missat Norge, och Norge har konsekvent vunnit. Det är en personlig tragedi. Jag förstår det inte. Jag förstår verkligen inte det.
-
-Tanken bakom Johans rad är ofta rätt. Det är utfallet som strular till det. Fotboll spelas av människor, Johan. Inte av kalkylblad.
+**Mollie och Wilma** delar äran idag. Konsekvent, träffsäkert, modigt. Ni har läst turneringen rätt när det gällt.
 
 ---
 
-## Brittans fundering
+## Dagens stolleprov
 
-Norge slog Frankrike. Brasilien gick ut. Spanien är världsmästare.
+**J Nilsson på 132.** Det skär lite i hjärtat att skriva det.
 
-Jag tänker på Söderstadion. På Kenta. På hur det känns att älska ett lag som aldrig gör det enkelt för dig. Bajen hade spelat det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
+---
+
+## Brittans fundering om Johan
+
+Nu måste jag vara rättvis mot **Johan Nilsson**. Hans rad är ett mönster av välvilja och hopp. Han tippade Argentina att vinna, han tippade Spanien rätt i slutet, han förstår fotboll. Det syns i tankarna bakom tipsen.
+
+Men turneringen har inte alltid belönat rätt tankar. Norge slog Brasilien, Ecuador slog Tyskland, Portugal spelade kryss mot Colombia. Fotboll är inte alltid rättvis mot dem som förstår den bäst.
+
+Johan hade rätt i hjärtat. Poängen kom inte alltid med på resan.
+
+Det finns något vackert i det.
 
 ---
 
 ## Slutord från Farsta
 
-Bosse katten har lämnat fjärrkontrollen. Det tolkar jag som ett gott tecken.
-
-Lasse vaknade precis och frågade om Håland spelat. Jag sa att Norge förlorade mot Frankrike. Han såg nöjd ut. Jag sa ingenting mer.
-
-Vi ses imorgon, VM-vänner. 🟢⚽
+Spanien är mästare. Frankrike fick smaka på det i semifinal och final. Argentina föll mot England på vägen. Marocko tog sig förbi Nederländerna. Det har varit ett VM fullt av kaos, skönhet och orättvisor.
