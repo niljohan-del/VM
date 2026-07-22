@@ -6,56 +6,52 @@ date: 2026-07-22
 
 # God morgon VM-vänner – 22 juli 2026
 
-Kaffe är bryggd, Bosse katten sitter i fönstret och stirrar på en duva, och Lasse sover fortfarande. Precis som det ska vara en onsdagsmorgon i Farsta.
-
-Och vad en natt vi haft.
+Kaffe på. Bosse katten sitter i fönstret och stirrar på duvor. Lasse sover fortfarande. Och jag har precis tagit mig igenom ett VM-dygn som fått mig att tappa hakan, hitta den igen, och sedan tappa den en gång till.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det självklara: **Sverige slog Tunisien 5–1** i gruppspelet. Fem mål. Fem. Jag sitter här med kaffet och ler som en barnmorska på BB. Det är därför vi älskar fotboll. Sedan blev det 1–1 mot Japan – okej, det händer – men framåt med huvudet högt.
+Börjar med det viktigaste: **Sverige–Frankrike slutade 0–3** och Frankrike gick till final. Det gör ont. Men Frankrike spelar vacker fotboll på ett sätt som nästan gör att man förlåter dem. Nästan.
 
-Frankrike åkte sedan ur på ett förödmjukande sätt mot England i slutet, 4–6 på någon slags reprissläpp av en VM-final som aldrig borde slutat så. Men det är fotboll. Fotboll spelas av människor.
+**Spanien slog Argentina 1–0** och är världsmästare. Håll i er. Det är dramatik av den sorten som 1994 hade unnat oss – men då med lite bättre hårfrisyrer på planen.
 
-Norge slog Brasilien 2–1 i ett av turneringens finaste uppvisningar i nordisk karaktär. Jag säger inte att det handlar om Håland. Jag tittar på Norge för fotbollens skull. Att pojken dessutom spelade med den enkla gracefulness som en björn på fjället – det kan jag inte hjälpa.
+**England fick smisk av Frankrike, 6–4.** Det var kaos. Det var mål. Det var underhållning. Lite som ett gammalt Bajenderby, fast utan känslan av att det faktiskt spelar roll på riktigt.
 
-Spanien vann hela VM-turneringen. Grattis. Klassig fotboll, men lite väl mycket tiki-taka för min smak. Bajen hade gjort det snyggare.
+Och **Norge föll mot England 2–1** i kvartsfinalen. Jag säger inte att det gjorde ont. Men Lasse hittade mig vid köksbordet kl 02:47 med en halvt utkyld kopp te. Han frågade inte. Han är en klok man, Lasse.
 
 ---
 
 ## Tipskollen
 
-I toppen kämpar **Mollie och Wilma** sida vid sida på **166 poäng** av 369. Imponerande. Stabila som en mittback från Södermalm.
+**Mollie och Wilma** delar ledningen med 166 rätt av 369. Stark. Respektabel. Välförtjänt. Jag klappar händerna.
 
-**Johan Nilsson** – min kära Johan – sitter på **132 poäng**. Det är inte toppen av tabellen, det ska vi vara ärliga om. Men jag har granskat hans rad och pojken har *tänkt rätt* ett otal gånger där utfallet bara inte följde med. Norge–Senegal tippade han kryss. Det slutade 3–2. Hjärtat var på rätt plats, det var bara verkligheten som stökade till det.
+**J Nilsson** – det vill säga Johan – sitter på 132 rätt. Det är... inte toppen. Men Johan tippar med hjärtat, och det räcker långt i det här livet. Matchbild är han bra på. Poäng är en annan historia.
 
-Fotboll spelas av människor. Och tips spelas av hjärta.
+Johans rad är ett konstverk av ambivalens. Han tippade Norge att gå vidare. Det förstår jag. Jag förstår det alldeles för väl.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** delar rosetten idag. Jag vet ingenting om dem, men de har tydligen koll. Respekt.
+**Mollie och Wilma** – dubbla blomsterkransar. Ni läser fotboll som erfarna krönikörer. Imponerat.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2 på 121 poäng** – käre vän, vad har hänt? Det är ett hedersamt försök, men med 369 matcher spelat borde siffrorna börja lyfta nu. Jag säger inte att jag har lösningen. Men...
+**Andreas2 med 121 rätt** av 369. Det är under en tredjedel rätt. Det kräver nästan talang att tippa så fel. Eller väldigt djärv magkänsla. Jag säger inte vilket.
 
 ---
 
 ## Brittans fundering
 
-Spanien är mästare. Argentina föll. Norge slog Brasilien. Världen är oförutsägbar.
+Spanien är världsmästare. Det finns något vackert i det – den tekniska fotbollen, pasningsspelet, tålmodigheten. Men djupt inne i mig hoppas jag att Håland och gänget får ett nytt försök om fyra år.
 
-1994 visste vi vad vi hade. Brolin, Dahlin, Kennet Andersson och en sommar som aldrig tog slut. Nu har vi VM spritt över hela världen och matcher mitt i natten.
+Jag ska inte ljuga. Jag hade gärna sett de där glasögonen på prispallen.
 
-Men vet du vad? Det finns något vackert i det också.
+Bajen hade spelat det snyggare. Det är inte en åsikt.
 
 ---
 
-*Hälsningar från Farsta. Bosse har gett upp på duvan. Lasse vaknade och frågade om Sverige vann. Jag sa "en gång". Han såg nöjd ut.*
-
-*– Brittan*
+**Kram från Farsta. Bosse katten hälsar.**
