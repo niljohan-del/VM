@@ -4,54 +4,58 @@ title: "VM-tips 2026-07-22"
 date: 2026-07-22
 ---
 
-# God morgon VM-vänner – 22 juli 2026
+# God morgon VM-vänner – 22 juli 2026!
 
-Kaffe på. Bosse katten sitter i fönstret och stirrar på duvor. Lasse sover fortfarande. Och jag har precis tagit mig igenom ett VM-dygn som fått mig att tappa hakan, hitta den igen, och sedan tappa den en gång till.
+Kaffe nummer två står på bordet. Bosse har lagt sig på morgontidningen. Lasse sover fortfarande, vilket är lika bra – han hade ändå tyckt att jag överdrev om Norge.
+
+Det är jag som överdrar ingenting.
 
 ---
 
 ## Nattens matcher
 
-Börjar med det viktigaste: **Sverige–Frankrike slutade 0–3** och Frankrike gick till final. Det gör ont. Men Frankrike spelar vacker fotboll på ett sätt som nästan gör att man förlåter dem. Nästan.
+Mycket fotboll. Väldigt mycket fotboll.
 
-**Spanien slog Argentina 1–0** och är världsmästare. Håll i er. Det är dramatik av den sorten som 1994 hade unnat oss – men då med lite bättre hårfrisyrer på planen.
+**Sverige** slutade sin gruppsommar med 1–1 mot Japan. Inte katastrofalt. Inte heller lysande. Men vi är vidare och det är det som räknas. Brolin hade gjort det snyggare. Dahlin hade gjort det snabbare. Men fotboll spelas av människor, och ibland räcker det med ett kryss.
 
-**England fick smisk av Frankrike, 6–4.** Det var kaos. Det var mål. Det var underhållning. Lite som ett gammalt Bajenderby, fast utan känslan av att det faktiskt spelar roll på riktigt.
+**Norge** slog Frankrike 1–0 i en tidigare match och är vidare. Arbetsmoral. Nordisk pålitlighet. Raka rör. Och ja, Håland såg motiverad ut. Han ser alltid motiverad ut. Det är ingenting jag kommenterar vidare.
 
-Och **Norge föll mot England 2–1** i kvartsfinalen. Jag säger inte att det gjorde ont. Men Lasse hittade mig vid köksbordet kl 02:47 med en halvt utkyld kopp te. Han frågade inte. Han är en klok man, Lasse.
+Det stora snacket igår natt var **Marocko** som slog ut Nederländerna med 4–3. Modigt. Magnifikt. Lite kaotiskt. Jag älskar kaos om det sker med syfte.
+
+Och **Spanien** tog till slut hem det hela och vann turneringen. Portugal, England, Argentina – alla fick smaka på det spanska maskineriet förr eller senare. Fotbollsromantiskt sett är det svårt att argumentera mot. Bajen hade gjort det snyggare, men vem kan inte det?
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma** delar ledningen med 166 rätt av 369. Stark. Respektabel. Välförtjänt. Jag klappar händerna.
+I topp sitter **Mollie och Wilma** med 166 rätt av 369. Imponerande damer. Respekt.
 
-**J Nilsson** – det vill säga Johan – sitter på 132 rätt. Det är... inte toppen. Men Johan tippar med hjärtat, och det räcker långt i det här livet. Matchbild är han bra på. Poäng är en annan historia.
-
-Johans rad är ett konstverk av ambivalens. Han tippade Norge att gå vidare. Det förstår jag. Jag förstår det alldeles för väl.
+**Johan Nilsson** – min favorit i sällskapet – sitter på 132 rätt. Det är inte toppen av listan, det ska jag inte sticka under stol med. Men Johan tippade med hjärtat, och det syns på raderna. Han hade rätt om Argentina. Han hade rätt om England. Han visste vad han ville se. Att utfallen ibland bestämde sig för att gå en annan väg är fotbollens fel, inte Johans.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** – dubbla blomsterkransar. Ni läser fotboll som erfarna krönikörer. Imponerat.
+**Mollie och Wilma** delar äran idag. 166 rätt är inte slump. Det är koll.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2 med 121 rätt** av 369. Det är under en tredjedel rätt. Det kräver nästan talang att tippa så fel. Eller väldigt djärv magkänsla. Jag säger inte vilket.
+**Andreas2** – 121 rätt av 369. Kära nån. Det är inte enkelt att tippa såhär konsekvent fel. Det krävs nästan en talang för det. Hoppas kaffet smakar bra ändå, Andreas.
 
 ---
 
 ## Brittans fundering
 
-Spanien är världsmästare. Det finns något vackert i det – den tekniska fotbollen, pasningsspelet, tålmodigheten. Men djupt inne i mig hoppas jag att Håland och gänget får ett nytt försök om fyra år.
+Spanien vann alltså VM 2026. Det är klart och tydligt.
 
-Jag ska inte ljuga. Jag hade gärna sett de där glasögonen på prispallen.
+Men det som fastnar hos mig är Norge mot Brasilien. Brasilien. Och Norge vann. Jag säger inte att jag förutsåg det. Men jag kände det i magen. Fjällfolk slår sällan bort ifrån sig när det gäller.
 
-Bajen hade spelat det snyggare. Det är inte en åsikt.
+Lasse höll inte med. Han har haft fel förr.
 
 ---
 
-**Kram från Farsta. Bosse katten hälsar.**
+*Hälsningar från Farsta. Bosse sover nu på Johans tippsrad som jag skrivit ut. Det är kanske ett tecken.*
+
+**– Brittan**
