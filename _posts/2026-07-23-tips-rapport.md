@@ -4,52 +4,58 @@ title: "VM-tips 2026-07-23"
 date: 2026-07-23
 ---
 
-# God morgon VM-vänner! 23 juli 2026 – En natt av spektakel, smärta och spansk dominans
+# God morgon VM-vänner! 23 juli 2026 – och fotbollen skonar ingen
 
-Kaffe nummer två är pågjutet. Bosse katten sitter i fönstret och stirrar på duvan som brukar reta honom. Lasse sover fortfarande. Och jag? Jag har suttit uppe och gått igenom gårdagens resultat som en detektiv på ett brottsplatsfoto.
+Kaffe nummer två. Bosse katten sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Och jag har redan hunnit bli både glad och förtvivlad.
 
-Det finns mycket att prata om.
-
----
-
-## Nattens matcher
-
-**Sverige–Tunisien 5–1.** Ja, ni läste rätt. Fem mål. Jag fick gåshud, äkta vara. Det påminde mig om sommaren 1994, fast utan Tomas Brolins frisyr. Sverige spelade med hunger och mod – precis som fotboll ska spelas.
-
-Sedan kom **Nederländerna–Sverige 5–1** åt andra hållet. Det svider. Men det säger något om turneringen – ingen är trygg, ingen är given. Det är därför vi älskar fotboll.
-
-**Norge** fortsätter imponera. Ivory Coast–Norway slutade 1–2, och Norge–Senegal 3–2. Det är en trupp med rygg. Och med Håland på topp... ja, han springer fort, den pojken. Lasse frågade varför jag pausade på matchbilderna så länge. Jag sa att jag studerade anfallspositionen. Han såg inte övertygad ut.
-
-**Frankrike–England** i slutet av turneringen – 4–6. Herregud. Det är inte fotboll, det är teater. Vacker, kaotisk, omöjlig teater.
+Det är VM. Det är morgon. Det är som det ska vara.
 
 ---
 
-## Tipskollen
+## Nattens matcher – vad hände egentligen?
 
-**Mollie och Wilma** leder med 166 rätt av 369. Stark prestation. Respekt.
+Mycket hände. Mycket av det var häftigt.
 
-Sedan följer **Andreas1 på 159**, **Caroline och Anna på 157**. Jämnt och tätt i toppen – som ett derby i halvtid.
+**Sverige** spelar vidare och det värmer ett gammalt Farsta-hjärta. Japan–Sverige slutade 1–1, vilket kändes lite som att halva jobbet är gjort. Inte lika vackert som när Brolin vollade in mot Rumänien 1994, men poäng är poäng.
 
-Och **J Nilsson – vår Johan – ligger på 132 rätt.** Det är... inte toppskiktet, ska vi säga. Men Johan tippade konsekvent och med logik. Problemet är att VM 2026 inte är särskilt logiskt. João har rätt tanke, fel turnering.
+**Norge** slog Ivory Coast med 2–1. Jag tittar inte på Norge för Hålands skull. Det gör jag inte. Men pojken levererar och det nordiska hjärtat i mig sjunger lite. Lasse frågade varför jag ler åt telefonen klockan halv tre. Jag sa att det var väderrapporten.
+
+**Spanien slog ut Frankrike** i finalen med 1–0. Det är fotboll av den snygga sorten – tiki-taka möter pragmatism och pragmatismen vinner. Det finns något vackert i det, och något sorgligt.
+
+**England** tog sig förbi Norge med 2–1. Surt för Skandinavien. Men Norge kämpade som norrmän ska kämpa – uppåtlut, in i vinden, utan ursäkter.
 
 ---
 
-## Dagens ros
+## Tipskollen – sanningens minut
 
-**Mollie och Wilma** delar topplacering. Det är välförtjänt. Modiga, precisa, oräddiga. Ingen fegkryssande här inte.
+Ledartabellen ser ut så här:
 
-## Dagens stolleprov
+**Mollie och Wilma delar ledningen** med hela **166 rätt av 369**. Det är imponerande. Det är faktiskt väldigt imponerande. Hatten av, damer.
 
-Listan på Johans felaktiga tips är... lång. Han tippade Paraguay att slå Australien. Paraguay föll. Han tippade Turkiet att vinna. USA vann. Han tippade Norge–Frankrike som X. Det slutade 1–4. Stackars Johan. Men jag säger det med kärlek – tanken var rätt, världen var fel.
+**Andreas1** hänger på med 159. Solen skiner på dem som vågar.
+
+Och så har vi **J Nilsson – Johan** – på 132 rätt. Det låter hårt. Det *är* lite hårt. Men Johan, käre Johan, du har hjärtat på rätt ställe även när kulan inte trillar in. Du tippade Norge med mod. Du tippade Sverige med kärlek. Resultaten var inte alltid med dig, men tanken var alltid rätt. Det räknas.
+
+**Andreas2** med 121 rätt behöver inte mer kommentar än: nytt försök imorgon, kompis.
 
 ---
 
 ## Brittans fundering
 
-Det är något med det här VM:et. Det är kaotiskt och vackert och orättvist – precis som livet, precis som fotboll ska vara. Som när Bajen vann ett derby mot alla odds på Söderstadion. Man vet inte varför. Man bare vet att det var rätt.
+Spanien vann hela turneringen. De vann med stil. Med system. Med en tydlig idé.
+
+Det påminner mig om att fotboll på sitt bästa handlar om *tankens triumf över kaosens*. Lite som att supporta Bajen – du måste tro på idén, även när resultaten sviker.
+
+Det är därför vi älskar fotboll.
 
 ---
 
-*Bosse katten fick till slut sin duva på flykten. Lasse vaknade och frågade vem som vann. Jag sa: alla och ingen. Han gick och hällde upp kaffe. Smart man.*
+## Slutord från Farsta
 
-*Ses imorgon, VM-vänner. Håland eller inte – fotbollen lever.*
+Lasse är fortfarande skeptisk till min norgeförkärlek. Bosse katten har nu jagat ikull duvan mentalt men är för lat för att agera fysiskt. Vi förstår varandra, Bosse och jag.
+
+Ha en fin dag, VM-vänner. Kämpa på, Johan. Ledartäten är inte körd.
+
+Och det finns bara ett Bajen.
+
+*// Brittan, Farsta*
