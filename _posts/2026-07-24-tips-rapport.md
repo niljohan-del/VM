@@ -6,60 +6,54 @@ date: 2026-07-24
 
 # God morgon VM-vänner – 24 juli 2026!
 
-Kaffe. Solen kikar in över Farsta. Bosse katten sitter och stirrar på fåglar utanför fönstret. Lasse sover fortfarande. Och jag? Jag har suttit uppe och tittat på fotboll igen.
-
-Det är inte ett problem. Det är ett kall.
+Kaffe på. Bosse katten sover på TV-tidningen. Lasse mumlar något om att det är för tidigt att ha VM-ljud i huset. Det är aldrig för tidigt. Det är aldrig för tidigt.
 
 ---
 
 ## Nattens matcher
 
-Låt oss prata om det som verkligen hände.
+Sverige–Frankrike slutade 0–3. Jag säger inte att det gjorde ont. Men Bosse lämnade rummet i halvtid, och det säger ändå något.
 
-**Sverige–Frankrike slutade 0–3.** Ja, du läste rätt. Tre mål. Noll. Jag har sett värre – men inte ofta mot Sverige. Frankrike spelade vacker, nästan irriterande vacker fotboll. Det finns något vackert i det, även när det gör ont.
+Frankrike var vassa, organiserade och lite för bra för oss. Och Norge vann mot Elfenbenskusten med 2–1! Norge, mina vänner. Rakt, hårt, nordiskt fotboll. Håland... ja, han spelade sin match. Produktiv pojke. Praktiska glasögon han gör reklam för också, förresten. Jag kollade lite på dem igen. Det är helt klart bågarna.
 
-**Norge–England slutade 1–2.** Jag ska inte ljuga. Det sved. Norge var bra. Men England var bättre på dagen. Att Håland och gänget ändå pressade dem hela vägen... pojkarna har hjärta. Och ja, jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att han springer som en ångbåt med solbränd framsida kan jag inte hjälpa.
+Tyskland fick sig en smäll av Ecuador med 1–2. Det där hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone hänt med bättre frisyrer. Spanien besegrade slutligen Uruguay. Argentinas slutspel rullar på som ett schweiziskt urverk. Det är lite tråkigt. Det är också lite vackert.
 
-**Spanien–Argentina slutade 1–0** i det som verkar ha blivit finalen. Spetsen på hela turneringen. Det är därför vi älskar fotboll.
+England slår ut Argentina i slutspelet – 2–1. Fotboll spelas av människor, och ibland är det de stilla dramerna man minns.
 
 ---
 
 ## Tipskollen
 
-Låt oss se hur det gick för gänget.
+Mollie och Wilma leder med 166 rätt av 369. Starkt. Riktigt starkt. De har tippat med en konsistens som jag respekterar djupt, även om jag inte riktigt förstår hur.
 
-**Mollie och Wilma delar ledningen med 166 rätt av 369.** Starkt. Imponerande. Hats off.
+Andreas1 på 159, Caroline och Anna på 157 – ett kompetent mittfält.
 
-**Andreas1** på 159, **Caroline och Anna** på 157. Det är en tät mittfältare det här.
-
-Och så har vi **J Nilsson på 132 rätt**. Johan. Min Johan. Jag vill inte vara hård, för det vore orättvist. Johans tips vittnar om en man som tänker djupt – kanske för djupt. Han såg saker i matcherna som inte riktigt hände. Det är otur, inte dumhet. Fotboll spelas av människor, och ibland spelar de fel.
+Längst ner i tabellen hittar vi Andreas2 med 121 rätt. Det är modigt att fortsätta. Det är det.
 
 ---
 
-## Dagens ros
+## Johans rad
 
-**Mollie och Wilma** – ni imponerar. Skarp läsning av turneringen, konsekvent och modig. Välförtjänt topplacering.
+J Nilsson ligger på 132 rätt. Inte hans bästa vecka, om jag ska vara ärlig. Johan tippade fel på Norge–Frankrike, fel på Spanien–Kap Verde i slutspelet, och fick stryk av Uruguay-mönstret upprepade gånger.
 
----
+Men titta på detaljerna: han såg rätt på Uzbekistan–Colombia tidigt, han läste Panama–Kroatien rätt. Tanken är där. Det är matchbilden som sviker honom, inte hjärtat.
 
-## Dagens stolleprov
-
-Den som tippade Paraguay att slå Australien. Och sedan igen. Och sedan en gång till. Man behöver inte vara Einstein – men lite Paraguay-skepsis hade hjälpt.
+Johan hade fel. Men på ett väldigt genomtänkt sätt.
 
 ---
 
 ## Brittans fundering
 
-Frankrike–England slutade 4–6. Tolv mål i en match. Tolv. 1994 hade det aldrig hänt. Eller jo, kanske. Men då hade det åtminstone hänt med bättre frisyrer.
+Det finns något vackert i ett VM där Ecuador slår Tyskland och Marocko tar sig vidare. Det påminner mig om 1994 – den sommaren när allt kändes möjligt och Brolin sprang med händerna i luften och hela Sverige grät utan skam.
 
-Bajen hade gjort det snyggare. Det är bara sant.
+Bajen hade gjort det snyggare. Men det är en annan historia.
 
 ---
 
 ## Slutord från Farsta
 
-Lasse vaknade precis och frågade hur det gick. Jag sa "Sverige förlorade." Han sa "Åh." Bosse katten lämnade rummet. Det säger ändå något.
+Lasse frågar vad vi ska äta till frukost. Jag säger att det spelar mindre roll nu när Sverige är ute. Han håller inte med. Han har haft fel förr.
 
-Ha en fin dag, allihopa. Vi ses imorgon – med nytt kaffe och nya chanser.
+Ha en fin dag, VM-vänner. Det är därför vi älskar fotboll.
 
 *// Brittan, Farsta*
