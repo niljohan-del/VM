@@ -6,58 +6,58 @@ date: 2026-07-25
 
 # God morgon VM-vänner – 25 juli 2026
 
-Kaffe. Dubbelt. Farsta sover fortfarande men Brittan är vaken.
-
-Lasse snarkade när Spanien åkte ut igår. Bosse katten låg bredvid och såg ut som om han förstod allt. Det kanske han gör.
+Kaffe nummer två. Bosse katten sover i soffan som om ingenting hänt. Lasse snarkar fortfarande. Och jag har just gått igenom nattens matcher med en känsla av att fotbollen håller på att bli tokig på ett väldigt underbart sätt.
 
 ---
 
-## Nattens och turneringens stora rörelser
+## Presentation
 
-Spanien–Argentina slutade 1–0. Argentina vann VM. Naturligtvis. Messi-generationens arvtagare fortsätter att dansa där andra snubblar. Men låt mig säga en sak om finalen: **Frankrike–England 4–6** är det vildaste jag sett sedan Ravelli räddade den där straffen mot Rumänien 1994. Fast då var det mer ordnat. Det finns något vackert i kaos – men bara om ditt lag inte åker ut i det.
+Förlåt. Jag borde ha gjort det här från dag ett.
 
-Norge åkte ut mot England i kvartsfinal. 1–2. Jag tänker inte prata om det.
+Jag heter Britt-Marie Andersson. Brittan. Pensionerad sportreporter, Farstagirlen, Bajens dotter. Jag har bevakat svensk fotboll sedan Brolin hade hår och Kennet Andersson kunde sänka ett helt land med ett huvud. Den sommaren 1994 var jag i Pontiac och grät riktig tårar. Nu sitter jag i Farsta och skriver blogg. Livet tar sina svängar.
 
-Jo, lite. Håland kämpade. Han kämpade verkligen. Det syntes på honom. Stoiskt. Nordiskt. Otroligt välbyggt.
+Det här är min dagliga logg från VM 2026. Varje morgon går jag igenom nattens matcher, lusläser tipsen från Johan och hans vänner, delar ut ros och smäll i rimliga proportioner, och funderar lite på fotbollens skönhet och ondska. Välkommen. Koka kaffe. Sitt ner.
 
-Jag sa ingenting.
+---
+
+## Nattens matcher
+
+Var ska jag börja?
+
+**Sverige–Tunisien 5–1** och sedan **Japan–Sverige 1–1** i gruppspelet. Blågult levde, och sedan tvekade. Det är vår grej. Det är lite Bajenigt faktiskt – vi visar att vi kan, och sedan drar vi i handbromsen mitt i den vackraste svängen.
+
+**Frankrike** har rullat på. **Argentina** likaså. **Norge** slog Irak med 4–1 och vann sedan mot Senegal med 3–2. Jag tittar inte för Hålands skull. Det vet ni redan. Men pojken rör sig med en sorts nordisk naturlighet som är svår att blunda för. Lasse frågade varför jag granskade matchbilden i slow motion. Jag sa att jag kollade presspelet.
+
+Han trodde inte på mig.
+
+**Spanien** slog ut **Frankrike** i slutet med 2–0. Pragmatiskt. Effektivt. Lite fegt om man frågar mig. Men det är därför vi älskar fotboll – de vackra vinner inte alltid.
 
 ---
 
 ## Tipskollen
 
-Vi har spelat 369 matcher. Ledarna är:
+I toppen hittar vi **Mollie och Wilma** på 166 poäng vardera. Starkt. Respektingivande. Jag hör att de inte gett upp ett enda onödigt kryss. Det är disciplin. Det är konst.
 
-🥇 **Mollie** och **Wilma** – 166 rätt. Imponerande. Disciplinerat. Förmodligen lite tråkiga att ha på fest, men rätt ska vara rätt.
-
-🥈 **Andreas1** på 159. Håller sig kvar i toppen. Respekt.
-
-Längst ner hittar vi **Andreas2** med 121 rätt av 369. Det är... det är ett resultat det också. Jag säger inte mer än så.
+**Johan Nilsson** ligger på 132 av 369. Det ser tufft ut på pappret, men jag har studerat hans rad. Johan har en tydlig fotbollslogik – han tippar på känsla och matchbild snarare än statistik. Att Mexiko kryssade mot Sydafrika när Johan tippade 1 är inte Johans fel. Det är fotbollens ironi. **Tanken var rätt. Bollens slumpmässighet var fel.**
 
 ---
 
-## Johan Nilssons rad – en kärlekshistoria med komplikationer
+## Dagens ros
 
-**J Nilsson: 132 rätt av 369.**
-
-Det är inte tabelltoppen, det ska erkännas. Men Johan har något som de flesta i toppen saknar: *karaktär i sina misstag*. Han tippade konsekvent på Norge framåt i turneringen. Det är inte dumhet. Det är **romantik**. Det är att tro på något större än sannolikheten.
-
-Johan hade fel. Men på ett väldigt Håland-värdigt sätt.
+**Mollie och Wilma** delar äran. Imponerande bredd genom hela turneringen.
 
 ---
 
 ## Dagens stolleprov
 
-**Heimbrand: 130 rätt.** Näst sist. I ett sällskap med 27 tippare. Över ett helt VM. Det kräver en viss konsistens – fast i fel riktning. Heimbrand, kom hem. Kaffet är varmt och vi pratar om detta.
+Den som tippat Paraguay att gå hela vägen utan att blinka. Ni vet vilka ni är. **Andreas2** på 121 poäng – hjärtat på rätt plats, kalkylatorn hemglömd.
 
 ---
 
 ## Brittans fundering
 
-Bajen hade spelat finalen annorlunda. Mer hjärta. Mer Söderstadion. Mer Kenta-energi i varje passning.
+Norge slår Brasilien med 2–1.
 
-Men det är ett annat blogginlägg.
+Jag satt tyst en lång stund efter det.
 
----
-
-*Hälsningar från Farsta. Lasse sover. Bosse katten är nöjd. Jag också, nästan.*
+Det finns något vackert i det. Ett nordiskt lag, rak fotboll, ingen krumelur
