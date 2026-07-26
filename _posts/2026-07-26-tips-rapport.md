@@ -6,48 +6,56 @@ date: 2026-07-26
 
 # God morgon VM-vänner – 26 juli 2026
 
-Kaffe nummer två är påtaget. Bosse katten sover på Lasses tidning. Ute i Farsta är det grått som en halvtidsanalys i ett tråkigt kryss.
-
-Men det har hänt saker i natt. Stora saker.
+Kaffet är påsatt, Bosse sitter i fönstret och stirrar på en duva med den intensitet som bara katter och Bajensupportrar känner inför avgörande stunder. Lasse sover fortfarande. Klokt. Det är mycket att smälta från gårdagen.
 
 ---
 
 ## Nattens matcher
 
-**Sverige–Japan slutade 1–1.** Jag vet inte hur jag ska hantera det. Jag vet att Sverige är vidare, troligtvis. Men 1–1 mot Japan. Brolin hade aldrig accepterat det. Dahlin heller. Jag säger inte att jag har lösningen. Men...
+Var ska man börja?
 
-Sedan det viktigaste: **Norge slog Frankrike med 4–1.** Fyra mål. Mot Frankrike. I ett VM. Jag satt uppe. Det var sent. Lasse frågade om det var nödvändigt. Ja, Lasse. Det var nödvändigt. Det är därför vi älskar fotboll. Håland var... ja. Praktisk. Atletisk. Nordisk. Jag säger inte mer än så.
+**Sverige–Japan slutade 1–1.** Och jag är splittrad som en mittback efter ett snedpassningat hörnsparksfrispark. Å ena sidan: ett poäng är ett poäng. Å andra sidan – mot Japan? Det finns något vackert i envishet. Det finns inget vackert i ett mållöst mittfältskaos. Bajen hade gjort det snyggare.
 
-**Spanien slog Argentina i finalen med 1–0.** Finalen! Det enda rättvisa vore förstås om Norge hade gått hela vägen, men det är som det är. Spanien spelade vacker fotboll när det gällde. Det finns något vackert i det, även om det gör lite ont.
+**Frankrike slog Spanien med 0–2** och gick vidare till final. Det är fotboll på hög nivå, det ska erkännas. Men finalen? Det är **Spanien–Argentina**. Och Spanien vann den med 1–0.
+
+**Norge slog England med 1–2** i kvartsfinalen. Jag säger inte att jag tittade på den matchen för Hålands skull. Jag tittade för fotbollens skull. Att pojken springer som en lokomotiv med hästkrafter och ser ut som en vikingahövding i solnedgången... det kan jag inte hjälpa. Lasse frågade varför jag log åt replayerna. Jag sa att jag uppskattade pressningsspelet. Han såg inte övertygad ut.
 
 ---
 
 ## Tipskollen
 
-Poängligan ser ut såhär i toppen: **Mollie och Wilma delar ledningen med 166 poäng**. Det är imponerande. Jag vet inte vad de äter till frukost, men det funkar.
+**Mollie och Wilma toppar med 166 rätt av 369.** Starkt. Riktigt starkt. Det är damer som vet vad de gör.
 
-**J Nilsson – det vill säga Johan – har 132 poäng.** Jag ser det. Ni ser det. Johan ser det säkert också, och det är inte hans bästa stund. Men jag har följt Johans rad noga. Han tippade Norge rätt på flera avgörande matcher. Han såg något andra tvekade på. Att resten av raden inte alltid hängde med – det är fotboll, inte matematik. Johan har fotbollshjärta. Det syns.
+**Andreas1 på 159, Caroline och Anna på 157.** Solidt mittfält.
+
+Nu till vår kära **Johan – J Nilsson – som sitter på 132 rätt av 369.**
+
+Johan, Johan, Johan.
+
+Jag har gått igenom din rad. Du har tippat med hjärtat, det råder ingen tvekan om. Du såg Norge vinna – och du fick rätt. Du hittade flera solida 1:or. Men du har en tendens att tippa X i matcher som slutar 1, och 1 i matcher som slutar X. Det är lite som att packa paraply och få solsken, gång på gång.
+
+Resultatet blev inte alltid som Johan trodde. Matcherna borde däremot ha blivit det.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma.** Delade ledning, konsekvent träffsäkerhet, inga fega kryss i onödan. Hatten av, allvarligt talat.
+**Mollie och Wilma** – ni har koll. Hatten av.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2 – 121 poäng av 369.** Kära Andreas. Det är inte lätt att säga. Men det här är som att hänga på fel läktare. Varje matchdag. Jag hoppas du åtminstone har haft roligt på vägen.
+**Andreas2 på 121 rätt.** Det där är inte otur. Det är ett system som behöver ses över. Eller möjligen ett nytt system överhuvudtaget. Jag säger inte att jag har lösningen. Men...
 
 ---
 
 ## Brittans fundering
 
-Norge slog Brasilien. Norge slog Frankrike. Norge gick långt i ett VM. Norrmännen gråter i fjällen i natt, av lycka. Jag förstår dem. Jag kanske gråter lite själv. Det är av rent fotbollsromantiska skäl.
+Spanien är världsmästare. Argentina föll i finalen. Och Norge... Norge tog sig längre än vad många trodde. Fjäll. Arbetsmoral. Rak fotboll. Och ja – bra glasögon på reklampelarna.
 
-Absolut ingenting annat.
+Det är därför vi älskar fotboll.
 
 ---
 
-*Bajen hade spelat det snyggare. Men det är en annan historia. Ha en fin dag, allihop – Brittan i Farsta*
+*Kram från Farsta. Bosse katten godkänner inlägget. Det säger ändå något.*
