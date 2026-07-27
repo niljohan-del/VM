@@ -4,58 +4,66 @@ title: "VM-tips 2026-07-27"
 date: 2026-07-27
 ---
 
-# God morgon VM-vänner – 27 juli 2026
+# God morgon VM-vänner — 27 juli 2026
 
-Kaffe nummer två. Lasse sover fortfarande. Bosse katten sitter i fönstret och ser ut som att han dömer mig.
-
-Det passar bra. För det finns en del att döma efter gårdagens matcher.
+Kaffe på bordet, Bosse katten i knät och Lasse som fortfarande sover. Perfekt läge att gå igenom nattens galenskaper.
 
 ---
 
 ## Nattens matcher
 
-Sverige! Ja, jag vet att jag försöker hålla huvudet kallt, men **5–1 mot Tunisien** – det är musik. Och sedan **Japan–Sverige 1–1** i sista gruppspelsomgången. Okej, det räckte. Vi är vidare. Det finns något vackert i det.
+Vad var det egentligen som hände? Spanien slår Argentina med 1–0 i finalen och kröner sig till världsmästare. Det är rätt. Det är vackert. Det är fotboll spelad med hjärna och hjärta i perfekt balans. Jag hade gråtit om det inte vore för att Frankrike åkte ut på 4–6 mot England i semifinalen. **4–6.** Jag behövde sitta ner. Lasse kom in och frågade om det var hjärtat. Jag sa att det var fotbollen. Han förstod att det var ungefär samma sak.
 
-Sedan dess har det gått utför. **Frankrike–England 4–6**. Fyra mål. Sex mål. Tio mål i en VM-semifinal. Jag vet inte om det är fantastiskt eller skandalöst. Troligtvis båda. 1994 hade aldrig det hänt. Eller jo. Men då hade det åtminstone skett med bättre frisyrer.
+England förlorade sedan finalen mot Spanien med 1–2. Rätt. Galácticos kan vänta.
 
-**Norge slogs ut av England** i slutändan. 1–2. Håland och gänget kämpade. Det syntes. Det är allt jag säger om det. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att det smärtar lite extra just nu kan jag inte hjälpa.
-
-**Spanien vann turneringen** – 1–0 mot Argentina i finalen. Elegant. Precist. Lite väl kontrollerat för min smak, men man behöver inte vara Einstein för att se att de är ett bra lag.
+Norge åkte ut mot England med 1–2 i kvartsfinalen. Det gör ont. Håland kämpade som en vikingahövding men det räckte inte. Han såg ändå väldigt bra ut medan han kämpade. Det är jag tvungen att säga. Jag köper fortfarande de där glasögonen för att de är **praktiska**.
 
 ---
 
 ## Tipskollen
 
-I toppen: **Mollie och Wilma** delar ledningen med 166 rätt av 369. Imponerande. Hemskt. De borde ge ut en bok.
+Poängtoppen domineras av **Mollie och Wilma** som delar ledningen på **166 rätt av 369**. Respekt, damer. Det kräver mod och känsla. Ni har båda två.
 
-Längst ner: **Andreas2** med 121 rätt. Det är inte ett resultat, det är ett projekt.
+**Andreas1** på 159 är stark. **Caroline och Anna** på 157 håller sig tajt. Fint sällskap.
+
+Längst ner hittar vi **Andreas2 på 121**. Det är en siffra som talar för sig självt. Jag säger inte mer. Jo, en sak: det finns alltid nästa VM.
 
 ---
 
-## Johans rad
+## Johan — en särskild koll
 
-**J Nilsson: 132 rätt av 369.**
+**J Nilsson landar på 132 rätt av 369.** Det är inte toppen. Det är inte botten. Det är ett resultat som säger: den här mannen *tänkte* på sina tips. Han var modig på rätt ställen, olycklig på fel ställen.
 
-Johan. Käre Johan. Jag har läst igenom din rad och jag ser vad som hänt. Du har tippat med hjärtat. Det är fint. Det är också ungefär hälften av problemet.
+Norge–Frankrike, tippade han X. Utfallet blev 2. Tanken var rätt. Timingen var fel. Det händer de bästa.
 
-Du tippade Norge att gå vidare. Du tippade Frankrike att hålla emot. Du tippade kryss på saker som inte ville vara kryss. Resultatet blev inte som du hoppades. Men tanken var god. Den var nästan alltid god.
-
-Det säger ändå något.
+Johan hade fel. Men på ett väldigt genomtänkt sätt.
 
 ---
 
 ## Brittans fundering
 
-Spanien vann. England slog Frankrike i en match som saknade all rimlighet. Norge åkte ut. Sverige hängde med längre än många trodde.
+Spanien vann VM. Argentina och Frankrike är ute. Norge är borta. Sverige gick inte hela vägen.
 
-Det är därför vi älskar fotboll.
+Men fotbollen levde. Varenda match.
 
-Lasse höll inte med om att Japan–Sverige var en bra match. Han har haft fel förr.
+Det påminner mig om sommaren 1994. Bronset. Gatan utanför. Dahlin som sprang. Ravelli som räddade. Det fanns något rent i det. Något gemensamt.
 
-Bosse katten har redan lämnat rummet.
+Det finns fortfarande. Det är därför vi älskar fotboll.
 
-Ha en fin dag, VM-vänner. Det har varit ett mästerskap. Kaotiskt, vackert och lite orättvist – precis som fotboll ska vara.
+---
 
-*Bajen hade ändå gjort det snyggare.*
+## Slutord från Farsta
 
-– **Brittan**, Farsta
+Bajen är bäst. Det är inte en åsikt. Det är ett grundvillkor.
+
+Lasse vaknade precis. Han frågade vem som vunnit VM.
+
+"Spanien", sa jag.
+
+"Och Norge?"
+
+"Ute."
+
+Han nickade. Bosse katten lämnade rummet. Det säger ändå något.
+
+*Ha en fin dag, VM-vänner. Det har varit ett mästerskap värt att minnas.*
