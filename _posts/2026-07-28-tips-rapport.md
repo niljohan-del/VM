@@ -4,56 +4,52 @@ title: "VM-tips 2026-07-28"
 date: 2026-07-28
 ---
 
-# God morgon VM-vänner – 28 juli 2026!
+# God morgon VM-vänner – 28 juli 2026
 
-Kaffe nummer två är påslaget, Bosse katten ligger och gapar mot ingenting i fönstret, och Lasse sover fortfarande trots att det hänt saker i natt som man inte kan sova igenom.
+Kaffe på. Bosse katten spinner på fötterna. Lasse sover fortfarande – han missade halvfinalen igår och låtsas som att det inte spelade någon roll. Det spelar alltid roll.
+
+Jag har sett mycket fotboll i mitt liv. VM 1994. Brolin mot Kamerun. Ravelli mot Rumänien. Men den här sommaren är något alldeles speciellt.
 
 ---
 
-## Nattens matcher
+## Nattens stora snackis
 
-**Sverige föll mot Frankrike med 0–3.** Det svider. Det ska svida. Men jag har sett Sverige förlora förr och vi reste oss. Vi reste oss 1994 och vi reser oss igen. Brolin hade inte accepterat det där nonchalanta andrahalvsspelet. Det säger jag bara.
+**Frankrike slår England med 4–6 i finalen.** Fyra-sex. Jag måste skriva det igen: 4–6. Det är inte fotboll, det är en basketmatch med fötterna. Fantastiskt och horribelt på samma gång. Det där hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone skett med bättre frisyrer.
 
-Japan–Sverige slutade 1–1 och det var faktiskt hedervärt. Sverige kan ta sig vidare. Jag säger inte att vi ska vara nöjda. Men jag säger att vi inte ska ge upp.
+**Norge slår Brasilien med 2–1** i semifinalen. Jag ska inte påstå att jag är förvånad. Norge har en pojke som springer i ett tempo som påminner om... ja. Fotbollens skull tittar jag på dem. Bara det.
 
-**Norge slogs ut av Frankrike 1–4** i natt. Det gör ont. Det gör ont på ett sätt som är svårt att förklara för icke-nordister. Håland kämpade. Han kämpade vackert. Han har den där blicken när det går emot – bestämd, nordisk, nästan... aldrig mind. Han kämpade bra.
-
-Spanien vann till slut. Argentina vann. England föll till slut för Argentina och det finns något poetiskt i det som jag inte ska ta i just nu.
+**Spanien vinner VM** efter 1–0 mot Argentina i finalen. Vackert, behärskat, metodiskt. Lite som Lasse när han lagar pannkakor – man vet att det blir bra, men man önskar lite mer passion.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma leder med 166 poäng.** Imponerande. Lugnt och metodiskt. Respekt.
+Toppen styrs av **Mollie och Wilma** – båda på **166 rätt av 369**. Det är imponerande. Jag vet inte vad de äter till frukost, men det fungerar.
 
-**J Nilsson ligger på 132 poäng.** Det är Johan. Käre Johan. Han har haft en besvärlig turnering med många halvrätt-tips som faller på fel sida. Men jag säger som jag alltid säger: Johan tänker rätt. Det är verkligheten som inte samarbetar.
+**Johan Nilsson** – min Johan – sitter på **132 rätt**. Det låter tufft. Men jag har följt hans rad, och mannen har logik i varje tips. Han tippade Norge att slå Frankrike med X. Frankrike vann. Men *tanken* var rätt. Hjärtat var på rätt ställe.
+
+Johan tippar som en romantiker. Det är inte alltid det lönar sig i poängtabellen. Men det är det enda sättet att leva.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** – ni kör. Ni kör lugnt och ni kör bra. Jag vet inte hur ni gör men fortsätt.
+Mollie och Wilma delar kronan. Starkt. Imponerande. Välförtjänt.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2 med 121 poäng.** Det är ett antal. Det är ett antal som kräver viss ansträngning att uppnå, faktiskt. Jag är inte elak. Men jag är ärlig.
+**Andreas2 – 121 rätt av 369.** Käre vän. Det är under 33 procent. Man kan nästan slumpa sig till det. Jag säger inte att jag har lösningen. Men.
 
 ---
 
 ## Brittans fundering
 
-Fotboll är inte rättvist. Det är det som är poängen. Om det var rättvist hade Bajen vunnit allsvenskan varje år och Håland hade spelat på Söderstadion. Livet är orättvist och fotbollen är dess spegel.
+Norge förlorade mot Frankrike i semifinalen. Frankrike vann sedan finalen mot England – men förlorade den. 4–6. Det är fotboll. Det är livet.
 
-Det finns något vackert i det.
+Bajen hade gjort det snyggare.
 
 ---
 
-## Slutord från Farsta
-
-Sverige lever. Norge är ute men kämpade med värdighet. Bosse katten gäspar. Lasse håller inte med om min analys av Frankrike. Han har haft fel förr.
-
-Ha det fint, VM-vänner. Det är därför vi älskar fotboll.
-
-// Brittan
+*Puss på er från Farsta. Bosse vill också ha VM. Han vet bara inte om det än.*
