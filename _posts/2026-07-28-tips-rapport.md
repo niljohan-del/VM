@@ -4,54 +4,56 @@ title: "VM-tips 2026-07-28"
 date: 2026-07-28
 ---
 
-# God morgon VM-vänner – 28 juli 2026!
+# God morgon VM-vänner – 28 juli 2026
 
-Kaffe i handen, Bosse i knät och Lasse som sov igenom halva nattens matcher igen. Det är en vanlig morgon i Farsta.
+Kaffe. Två koppar. Klockan är för tidigt och Bosse katten har redan satt sig på fjärrkontrollen och råkat byta till en shoppingkanal. Det är ett tecken.
 
-Men vad en natt det var.
+Det är också dags för blogg.
+
+Men först – en kort presentation, för det är faktiskt första gången jag skriver här. Jag heter Britt-Marie Andersson, kallad Brittan, pensionerad sportjournalist från Farsta. Jag har bevakat svensk fotboll i decennier, sett Bajen lida och triumfera, och har en make som heter Lasse och en katt som saknar respekt för min sömn. Den här bloggen är till för er som älskar fotboll på riktigt – varmt, syrligt och utan konsultspråk. Välkomna.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Japan slutade 1–1. Det duger. Det är inte guld, men det är hederligt. Jag tänker på 1994 – då visste vi hur man kämpade sig igenom det tunga med leendet kvar. Den här truppen har något av den gnistan.
+**Sverige–Frankrike 0–3 i åttondelsfinalen.** Det gör ont. Det ska göra ont. Men Frankrike var bättre och vi ska vara ärliga med det. Sverige höll stånd en stund, spelade med hjärtat, men när de franska växlarna slogs in på allvar saknades det ett par centimeter och ett par kilo erfarenhet. Jag påminner mig om 1994 – den sommaren då Brolin, Dahlin och Kennet visade att Sverige faktiskt kunde. Det där minnet håller jag i.
 
-Och sedan det stora: **Norge slog Frankrike med 4–1**. Fyra mål. Mot Frankrike. Jag sitter faktiskt fortfarande och bearbetar det. Det är nordisk karaktär. Det är fjäll och moral och... ja, jag tänker inte mer på saken. Att Håland spelade en utomjordisk match är ju en ren bifaktum.
+**Norge–England 1–2.** Jag ska inte vara dramatisk. Jo, det ska jag. Det här svider. Norge spelade vacker, rak fotboll – precis som de nordiska bröder de är – och Håland var... han var sig lik. Stor, stark, farlig. Det finns en pojke som hade förtjänat ett kvartsfinalspel. Jag säger inte mer. Lasse frågade varför jag satt kvar och stirrade i pausen. Jag sa att jag analyserade formationerna.
 
-Brasilien föll mot Marocko och sen mot Norge med 1–2. Det är dramatik av yppersta sort. Spanien vann till slut och Argentina likaså. **Frankrike vann finalen mot England med 4–6** – nej förlåt, *England* vann med 6–4 mot Frankrike. Fotboll spelas av människor, och ibland av engelsmän som faktiskt gör det rätt.
+Han trodde mig inte.
+
+**Spanien vann sin grupp. Argentina vidare. Frankrike vidare.** Det är en bra turnering. Det är ett galet VM.
 
 ---
 
 ## Tipskollen
 
-I toppen kämpar **Mollie och Wilma** axel mot axel – båda på **166 rätt av 369**. Det är ett imponerande tipsarbete. Varmt beröm, tjejer.
+Toppen domineras av **Mollie och Wilma** med fina 166 rätt av 369. Respekt. Det är inte flax – det är läsning av fotboll.
 
-**Johan Nilsson** har **132 rätt**. Det är... inte toppen av listan, det ska vi erkänna. Men Johans rad bär på en vacker komplexitet. Han tippade Norge att slå Frankrike – men *kryssade* på fel ställen och missade Norges revansch. Tanken var rätt. Utförandet en aning vingligt. Det är så Johans fotbollshjärna fungerar: han *ser* spelet, men tidpunkten är ibland en halvtimme försenad.
+**J Nilsson** – det är vår Johan – sitter på 132 poäng. Det är inte toppskiktet, men jag har läst hans rad, och Johan har en känsla för spelet som statistiken inte fångar. Han tippade rätt på Qatar–Schweiz, Brasilien–Marocko, Japan–Sverige. Det är matcher ingen annan vågade ta kryss på. Det kallas fotbollsblick.
+
+Resultaten straffade honom ibland. Matchen borde ändå ha blivit som Johan trodde.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** – gemensam vinnare. Stenhård, konsekvent och orädd. Heja.
+**Mollie och Wilma** delar äran. 166 poäng är imponerande. Klassen visar sig i detaljerna.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2 – 121 rätt**. Det finns inte mycket att lägga till. Han tippade Paraguay att slå Australien. Paraguay åkte ut. Det säger nästan allt. Jag har sett värre. Men inte den här veckan.
+Den som tippade Paraguay att ta sig förbi Australien i slutskedet... Australien vann gruppen. Jag säger inte vem. Men jag hoppas ni vet vilka ni är.
 
 ---
 
 ## Brittans fundering
 
-Norge slog Brasilien. Norge slog Frankrike. Norge spelar final.
+Det finns något vackert i att ett VM startar med kaos och slutar med ordning. De bästa lagen tar sig vidare. Nästan alltid. Men ibland – ibland – gör fotbollen det den är bäst på: överraskar. Det är därför vi älskar fotboll.
 
-Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken ser ut som en vikingahövding med perfekt ansiktsstruktur och troligtvis praktiska glasögonbågar är irrelevant.
-
-Lasse frågade varför jag läste om de där glasögonen igen. Jag sa att jag jämförde bågar. Han såg inte övertygad ut.
+Bajen hade gjort det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
 
 ---
 
-*Bajen hade gjort det snyggare. Men det är därför vi älskar fotboll.*
-
-**Ha en fortsatt fin dag – från Farsta med kärlek. //Brittan**
+*Brittan, Farsta. Bosse sover igen. Lasse
