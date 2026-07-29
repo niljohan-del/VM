@@ -6,54 +6,44 @@ date: 2026-07-29
 
 # God morgon VM-vänner – 29 juli 2026
 
-Kaffe är pådrucket, Bosse katten har redan gjort ett halvhjärtat försök att sitta på tangentbordet, och Lasse frågar vad det var som hände med Sverige igår kväll. Jag låtsades inte höra honom.
+Kaffe på. Bosse sover på tidningen. Lasse påstår att det regnar i Farsta men han har haft fel förr.
+
+Välkommen till min blogg. Jag är Britt-Marie Andersson – Brittan – pensionerad sportreporter, Bajensupporter av den äldre skolan och gift med en man som tror att Djurgården är ett rimligt alternativ. (Det är det inte.) Jag har bevakat svensk fotboll sedan Brolin hade hår och Ravelli skrek åt alla. Nu skriver jag om VM varje morgon, för att någon måste göra det ordentligt.
+
+Det här är mitt allra första inlägg. Det lär inte bli det sista.
 
 ---
 
 ## Nattens matcher
 
-Vad ska man säga. Det är ju VM vi pratar om. Dramatik på löpande band.
+Sverige mot Frankrike. 0–3. Jag säger ingenting. Jo, det gör jag. Frankrike spelade vacker, klinisk, obarmhärtig fotboll och vi fick se det där ansiktet igen – laget som ser bra ut i träning och sedan möter verkliga motståndare. Det är därför vi älskar fotboll. Och hatar det.
 
-**Sverige–Japan slutade 1–1.** Ja, det hörde ni rätt. Vi tog poäng mot Japan. Det är inte en seger, men det är heller inte ingenting. Blågult kämpade. Det finns något vackert i det, om man kniper ihop ögonen.
+Norge–England slutade 1–2. Hjärtat blödde lite. Norge kämpade, Norge pressade, och Håland var... ja. Han var sig lik. Vass, målfarlig och om jag är ärlig mot mig själv – inte fullt så snygg utan de där glasögonen. Jag läste om dem igen i morse. Det är för att jag jämför bågar. Lasse frågade. Jag svarade att det var materialteknik. Han köpte det inte.
 
-**Frankrike–England slutade 4–6.** Fyra–sex. Jag behövde läsa det två gånger. Frankrike som känt stabil stormakt och England som börjat hitta formen. Det är den sortens match som påminner om varför vi älskar fotboll. Galenskapens logik.
-
-**Norge slår ut Frankrike** ur tävlingen tidigare i turneringen, **3–2 mot Senegal** – vad säger man? Håland och grabbarna spelar just nu fotboll som luktar fjäll och havsbris. Jag tittar inte för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar röra sig som en välvårdad naturkatastrof kan jag inte hjälpa. Lasse frågade varför jag googlade de där glasögonen igen. Jag sa att jag jämförde bågar.
-
-**Spanien vann VM.** Det är klart som korvspad om man läser tabellen. Grattis till dem. Men det var Argentina nära, och det vet vi allihop.
+Spanien–Argentina 1–0 i finalen. Spanjorerna vann till slut. Det var inte alltid vackert men de var effektiva. Argentinarna protesterade, vilket de alltid gör. Det finns något vackert i det envishet.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma delar topplatsen med 166 rätt** av 369. Det är imponerande. Skarpt läge, ladies.
+Ledartabellen: **Mollie och Wilma delar ledningen med 166 rätt av 369 spelade matcher.** Det är ett bra resultat. Imponerande, faktiskt. Sedan följer Andreas1 på 159, Caroline och Anna på 157. Fin mittfält.
 
-**Andreas1 på 159** håller sig i toppskiktet med järnhand. Göteborgare eller inte – det är ett fint tips. (Han kommer från Göteborg. Det märks på självförtroendet.)
-
-Och sen har vi **J Nilsson – 132 rätt.** Det är Johan. Min Johan. 132 poäng och en tipsrad som liknar ett konstnärligt experiment mer än en fotbollsprognos.
+Längst ner sitter **Andreas2 på 121 poäng**. Det ser ut som att Andreas2 tippar med hjärtat och utan karta. Jag har sett värre. Men inte mycket.
 
 ---
 
-## Dagens ros
+## Johans rad – J Nilsson
 
-Mollie och Wilma. Gemensam topp. Jag vet inte vem ni är men ni tippar fotboll som om ni sett det förut.
+Johan landar på **132 rätt av 369**. Det är inte tabelltopp, det är vi ärliga med. Men man ska veta att Johan hade rätt om saker som ingen annan vågade tro på. Hans Paraguay-känsla var tidig och riktig. Hans Qatar-intuition stämde tidvis.
 
----
-
-## Dagens stolleprov
-
-Johan tippade Norge–Frankrike som kryss. I varenda version. Gång på gång. Liksom – käre Johan. Jag säger inte att jag har lösningen. Men Norge hade Håland. Det räcker ofta.
+Resultatet blev inte som Johan hoppades. Matchen borde ändå ha blivit det. Johan tänker rätt. Det tar bara lite extra tid ibland.
 
 ---
 
 ## Brittans fundering
 
-Det där med Sverige och Japan – 1–1 – det påminner mig om 1994. Inte resultatet. Känslan. Den där nerviga, levande känslan av att allt fortfarande kan hända. Brolin visste det. Vi visste det. Nu vet Zlatan... eh, de nya killarna det.
+Spanien vann detta VM. Jag tänker på 1994. Brolin. Dahlin. Sommaren som aldrig tog slut. Vi vann inte heller den gången, men vi vann *något*. Något man inte mäter i poäng.
 
-Bajen hade spelat det snyggare. Men det är som det är.
+Bajen hade spelat det snyggare.
 
----
-
-*Ha en fin dag, VM-vänner. Vi ses imorgon bitti – Bosse och jag är redan oroliga för nästa omgång.*
-
-🟢⚫ *Brittan från Farsta*
+*Heja Sverige. Heja Bajen. Och Håland – ring mig om glasögonen.*
