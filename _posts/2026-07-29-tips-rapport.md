@@ -4,46 +4,40 @@ title: "VM-tips 2026-07-29"
 date: 2026-07-29
 ---
 
-# God morgon VM-vänner – 29 juli 2026
+# VM-dagbok 29 juli 2026: Spanien är mästare – och Norge bröt mitt hjärta på vägen
 
-Kaffe på. Bosse sover på tidningen. Lasse påstår att det regnar i Farsta men han har haft fel förr.
+God morgon från Farsta.
 
-Välkommen till min blogg. Jag är Britt-Marie Andersson – Brittan – pensionerad sportreporter, Bajensupporter av den äldre skolan och gift med en man som tror att Djurgården är ett rimligt alternativ. (Det är det inte.) Jag har bevakat svensk fotboll sedan Brolin hade hår och Ravelli skrek åt alla. Nu skriver jag om VM varje morgon, för att någon måste göra det ordentligt.
+Kaffet är påtaget. Bosse sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Och jag har precis tillbringat en timme med att gå igenom de allra sista VM-resultaten. Det är klart nu. Turneringen är över.
 
-Det här är mitt allra första inlägg. Det lär inte bli det sista.
+**Spanien vann VM. 1–0 mot Argentina i finalen.**
 
----
+Jag ska inte låtsas att det är fel. Spanien spelade vacker fotboll under hela turneringen. Teknisk, flödande, ibland nästan irriterande elegant. Det finns något vackert i det.
 
-## Nattens matcher
+Men jag tänker ändå mest på **Norge–England 1–2** i slutspelet. Och på **Brasilien–Norway 1–2** tidigare i turneringen – det var kvällen jag vakade länge och Lasse frågade varför jag log åt TV:n. Jag sa att jag tyckte om nordisk arbetsmoral. Han såg inte övertygad ut.
 
-Sverige mot Frankrike. 0–3. Jag säger ingenting. Jo, det gör jag. Frankrike spelade vacker, klinisk, obarmhärtig fotboll och vi fick se det där ansiktet igen – laget som ser bra ut i träning och sedan möter verkliga motståndare. Det är därför vi älskar fotboll. Och hatar det.
-
-Norge–England slutade 1–2. Hjärtat blödde lite. Norge kämpade, Norge pressade, och Håland var... ja. Han var sig lik. Vass, målfarlig och om jag är ärlig mot mig själv – inte fullt så snygg utan de där glasögonen. Jag läste om dem igen i morse. Det är för att jag jämför bågar. Lasse frågade. Jag svarade att det var materialteknik. Han köpte det inte.
-
-Spanien–Argentina 1–0 i finalen. Spanjorerna vann till slut. Det var inte alltid vackert men de var effektiva. Argentinarna protesterade, vilket de alltid gör. Det finns något vackert i det envishet.
+Håland. Ja. Pojken levererade. Jag behöver inte säga mer om det. Jag tittar på fotboll för fotbollens skull.
 
 ---
 
 ## Tipskollen
 
-Ledartabellen: **Mollie och Wilma delar ledningen med 166 rätt av 369 spelade matcher.** Det är ett bra resultat. Imponerande, faktiskt. Sedan följer Andreas1 på 159, Caroline och Anna på 157. Fin mittfält.
+Toppen styrs av **Mollie och Wilma** – båda på **166 rätt av 369**. Det är imponerande. Riktigt imponerande. Varken mer eller mindre.
 
-Längst ner sitter **Andreas2 på 121 poäng**. Det ser ut som att Andreas2 tippar med hjärtat och utan karta. Jag har sett värre. Men inte mycket.
+**Johan Nilsson** landar på **132 rätt av 369**. Det är inte toppen av listan. Det vet Johan. Det vet jag. Men om man tittar på Johans rad – det finns logik där. Han tippade Argentina tappert hela vägen, han förstod Frankrike tidigt, och han vågade tro på Portugal i gruppspelet. Det är inte fel fotbollshjärna. Det är en man som drabbades av för många kryss i fel matcher. Det händer de bästa.
 
----
-
-## Johans rad – J Nilsson
-
-Johan landar på **132 rätt av 369**. Det är inte tabelltopp, det är vi ärliga med. Men man ska veta att Johan hade rätt om saker som ingen annan vågade tro på. Hans Paraguay-känsla var tidig och riktig. Hans Qatar-intuition stämde tidvis.
-
-Resultatet blev inte som Johan hoppades. Matchen borde ändå ha blivit det. Johan tänker rätt. Det tar bara lite extra tid ibland.
+**Heimbrand på 130 och Andreas2 på 121** – ja. Det säger jag bara en gång och sen går vi vidare.
 
 ---
 
 ## Brittans fundering
 
-Spanien vann detta VM. Jag tänker på 1994. Brolin. Dahlin. Sommaren som aldrig tog slut. Vi vann inte heller den gången, men vi vann *något*. Något man inte mäter i poäng.
+Ett VM är mer än resultat. Det är nätter med kaffe och katter och halvgamla barnbarn som skickar glada meddelanden när Sverige slår Tunisien 5–1. Det är **Sverige–Japan 1–1** som kändes som ett mästerskapskryss fast det inte var det. Det är Frankrike som alltid levererar drama – **Frankrike–England 4–6** i slutspelet var den galnaste matchen jag sett sedan Rumänien–Sverige 1994. Och det säger inte lite.
 
-Bajen hade spelat det snyggare.
+Bajen hade spelat det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
 
-*Heja Sverige. Heja Bajen. Och Håland – ring mig om glasögonen.*
+---
+
+**Ha en fin dag, VM-vänner. Det var ett mästerskap att minnas.**
+
+*– Brittan, Farsta*
