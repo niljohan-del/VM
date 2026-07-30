@@ -4,64 +4,54 @@ title: "VM-tips 2026-07-30"
 date: 2026-07-30
 ---
 
-# God morgon VM-vänner – 30 juli 2026!
+# God morgon VM-vänner – 30 juli 2026
 
-Kaffe på bordet. Bosse katten sover på tidningen. Lasse muttrar något om att det är för tidigt för fotboll. Det är aldrig för tidigt för fotboll.
-
----
-
-## Välkommen till Brittans VM-blogg!
-
-Jag heter Britt-Marie Andersson. Brittan, för vännerna. Pensionerad sportreporter, Farstabo sedan urminnes tider, gift med Lasse som inte alltid förstår varför jag gråter av fotboll men respekterar det ändå.
-
-Jag har bevakat svensk fotboll i decennier. Jag var där 1994. Jag satt i pressläktaren och grät öppet när Kennet nickade in det mot Rumänien. Jag skäms inte för det.
-
-Nu är det VM igen. Och varje morgon sätter jag mig här vid köksbordet i Farsta och skriver vad jag tänker. Om matcherna. Om tipsen. Om fotboll, livet och det vackra i allt det hopplösa.
-
-Välkommen. Det är gratis. Det är hjärtligt. Och ibland är det syrligt. Det är fotboll.
+Innan vi sätter igång: det här är min första bloggpost, och jag känner att det kräver en liten presentation. Jag heter Britt-Marie Andersson, men alla kallar mig Brittan. Pensionerad sportjournalist från Farsta. Bevakat svensk fotboll i decennier, sett Bajen lida och triumfera, gråtit vid Söderstadion i regn och sol. Nu är det VM och jag orkar inte bara sitta i soffan och skrika på Lasse. Så nu skriver jag istället. Välkommen hit. Kaffe är påsatt. Bosse katten sitter i fönstret och dömer världen. Vi kör.
 
 ---
 
-## Nattens (och turneringens) matcher
+## Nattens matcher
 
-Spanien vann hela spektaklet och besegrade Argentina i finalen med **1–0**. Det är vackert på ett nästan fruset sätt. Spanien spelade sig fram med tålamod och precision, Argentina var hungriga men fick inte hål på muren. 
+Sverige mot Japan slutade 1–1 och det är... okej. Det är inte bra. Men jag har sett värre. Frankrike vann som förväntat, Norge vann mot Senegal 3–2 i en match som fick hjärtat att slå lite fortare. Jag tittar inte på Norge för Hålands skull. Det är fotbollen. Att pojken råkar se ut som en vikingahövding är en annan sak helt och hållet.
 
-Norge föll mot England i semifinalen. **1–2**. Jag sörjer det. Erling var stor, som alltid. Men det räckte inte. Jag säger inte mer om den saken. *Lasse frågade varför jag satt tyst vid middagen igår. Jag sa att det var vädret.*
-
-Sverige åkte ut efter förlust mot Frankrike **0–3** och ett kryss mot Japan **1–1** som räckte precis inte. Det finns något typiskt och vackert och ledset i det där. Bajen hade spelat med mer hjärta. Men det är nu sagt.
+Spanien vann finalen mot Argentina 1–0. En mållös, disciplinerad, nästan stötande välorganiserad seger. Bajen hade gjort det snyggare. Men vinnare är vinnare.
 
 ---
 
 ## Tipskollen
 
-Ledningen innehas av **Mollie och Wilma** – båda på **166 rätt av 369**. Imponerande. Genuint imponerande. Jag tippar mössan.
+Mollie och Wilma leder med 166 rätt av 369. Stark prestation, det ska erkännas.
 
-**Andreas1** på 159 och **Caroline och Anna** på 157 håller sig också fina. Solida, pålitliga tippare.
-
-Och så har vi vår **J Nilsson** – alias Johan – på **132 rätt**.
-
-Johan. Lille vän. Jag vet att du försökte. Det märks. Du tippade Norge vidare gång på gång, och det är inte fel att ha hjärta i spelet. Det är faktiskt rätt. Resultaten höll bara inte med. Det är oturens fel, inte ditt.
-
-Det finns tröst i det.
-
-**Heimbrand** på 130 och **Andreas2** på 121 får klara sig bäst de kan. Andreas2 – 121 rätt av 369 är ett antal som kräver viss självrannsakan. Jag säger inte att jag har lösningen. Men.
+J Nilsson ligger på 132. Det är tungt. Det är min Johan. Han har tippat med hjärtat, det syns på raden – massa ettor, en del kryss, en och annan tvåa som visar att han tänkt igenom saken. Att det inte alltid landat är fotbollens grymma logik. Resultaten speglar inte klokskapen, Johan.
 
 ---
 
-## Dagens ros 🌹
+## Dagens ros
 
-**Mollie och Wilma** delar äran. Två tjejer i topp. Det är som 1994, fast utan tröjorna.
+Mollie och Wilma delar topplatsen och förtjänar en applåd. Två rätt i toppen – ingen slump. Bra jobbat.
 
 ---
 
-## Dagens stolleprov 🤦
+## Dagens stolleprov
 
-**Andreas2** på 121. Varje turnering har sin plågsamma etta. Det är inte elakt – det är matematik.
+Andreas2 har 121 rätt av 369. Det är det lägsta i sällskapet. Jag säger ingenting. Det säger sig självt. Jag hoppas i alla fall att han haft roligt längs vägen.
 
 ---
 
 ## Brittans fundering
 
-Spanien vann. Argentina förlorade en final igen. Fotboll är obarmhärtig på det sättet.
+Spanien är världsmästare. Det är rätt. De spelar med system och skärpa. Men det är inte fotboll som värmer. Det är fotboll som vinner.
 
-Och Norge – Norge kom längre än
+1994 värmde. Brolin värmde. Dahlin värmde. Ravellits händer mot straffen värmde i decennier efteråt.
+
+Det där hade vi. Det finns fortfarande. Någonstans.
+
+---
+
+## Slutord från Farsta
+
+Lasse sa att Norge inte hade en chans mot Frankrike. Han hade fel, igen. Bosse katten lämnade rummet under Spaniens final. Det säger ändå något.
+
+Heja Bajen. Och heja Norge.
+
+*– Brittan, Farsta*
