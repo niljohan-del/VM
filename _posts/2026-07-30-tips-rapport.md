@@ -6,52 +6,48 @@ date: 2026-07-30
 
 # God morgon VM-vänner – 30 juli 2026
 
-Innan vi sätter igång: det här är min första bloggpost, och jag känner att det kräver en liten presentation. Jag heter Britt-Marie Andersson, men alla kallar mig Brittan. Pensionerad sportjournalist från Farsta. Bevakat svensk fotboll i decennier, sett Bajen lida och triumfera, gråtit vid Söderstadion i regn och sol. Nu är det VM och jag orkar inte bara sitta i soffan och skrika på Lasse. Så nu skriver jag istället. Välkommen hit. Kaffe är påsatt. Bosse katten sitter i fönstret och dömer världen. Vi kör.
+Kaffe på bordet. Bosse katten sover bredvid tidningen. Lasse frågar om det verkligen är nödvändigt att ha matchresultat uppklistrade på kylskåpet. Jo, Lasse. Det är det.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Japan slutade 1–1 och det är... okej. Det är inte bra. Men jag har sett värre. Frankrike vann som förväntat, Norge vann mot Senegal 3–2 i en match som fick hjärtat att slå lite fortare. Jag tittar inte på Norge för Hålands skull. Det är fotbollen. Att pojken råkar se ut som en vikingahövding är en annan sak helt och hållet.
+Var ska man börja?
 
-Spanien vann finalen mot Argentina 1–0. En mållös, disciplinerad, nästan stötande välorganiserad seger. Bajen hade gjort det snyggare. Men vinnare är vinnare.
+**Sverige–Frankrike slutade 0–3.** Jag säger ingenting. Jo, jag säger ett: det var en match som påminde mig om varför 1994 känns som ett mirakel. Tomas Brolin hade aldrig accepterat det där. Ingen av oss hade accepterat det där. Men fotboll är fotboll och Frankrike är Frankrike.
+
+**Norge slog England 1–2.** Det säger allt om detta VM. Erling och grabbarna tog sig vidare på det enda sättet norrmän vet hur – med hjärta, fart och en slags nordisk envishet som påminner om att hugga ved i snöstorm. Att Håland ser ut som han gör när han jublar är fullständigt irrelevant. Det är fotbollen jag tittar på.
+
+**Spanien slog Argentina 1–0** i finalen. Spanjorerna spelade den där lugnande, tickande bollen som antingen är bedövande vacker eller bedövande tråkig beroende på vem du hejar på. Argentinarna svarade med känsla och Messi-nostalgi, men det räckte inte. Det finns något vackert i det ändå – ett VM-final med karaktär.
+
+**Ecuador slog Tyskland 2–1** i en match som fick Bosse katten att titta upp från golvet. Det kallar jag en uppryckning.
 
 ---
 
 ## Tipskollen
 
-Mollie och Wilma leder med 166 rätt av 369. Stark prestation, det ska erkännas.
+Mollie och Wilma delar ledningen med **166 rätt av 369**. Det är imponerande. Framför allt Wilma – hon verkar ha en magkänsla som en gammal A-lagsträ­nare i Allsvenskan.
 
-J Nilsson ligger på 132. Det är tungt. Det är min Johan. Han har tippat med hjärtat, det syns på raden – massa ettor, en del kryss, en och annan tvåa som visar att han tänkt igenom saken. Att det inte alltid landat är fotbollens grymma logik. Resultaten speglar inte klokskapen, Johan.
-
----
-
-## Dagens ros
-
-Mollie och Wilma delar topplatsen och förtjänar en applåd. Två rätt i toppen – ingen slump. Bra jobbat.
+**J Nilsson – alltså Johan** – sitter på **132 rätt av 369**. Det är... inte topplaceringen. Men Johan, hör du mig: du tippade rätt när det gällde Argentina och du tippade rätt på Spanien. Det är inte fel att ha rätt om finalisterna. Tanken var rätt. Universum samarbetade bara inte fullt ut.
 
 ---
 
-## Dagens stolleprov
+## Dagens ros 🌹
 
-Andreas2 har 121 rätt av 369. Det är det lägsta i sällskapet. Jag säger ingenting. Det säger sig självt. Jag hoppas i alla fall att han haft roligt längs vägen.
+**Mollie och Wilma** – ni delar tronen och ni bär den med värdighet.
+
+---
+
+## Dagens stolleprov 🃏
+
+**Andreas2 – 121 rätt av 369.** Kära Andreas, tippandet är en konst. Du är fortfarande på väg att lära dig akvarell.
 
 ---
 
 ## Brittans fundering
 
-Spanien är världsmästare. Det är rätt. De spelar med system och skärpa. Men det är inte fotboll som värmer. Det är fotboll som vinner.
-
-1994 värmde. Brolin värmde. Dahlin värmde. Ravellits händer mot straffen värmde i decennier efteråt.
-
-Det där hade vi. Det finns fortfarande. Någonstans.
+Norge förlorade mot England i slutspelet. Det gör ont. Men de tog sig dit – och Håland gjorde det med en grace som... nej. Jag säger ingenting mer om Håland. Jag behöver nya glasögon och råkar titta på de där bågreklam­erna igen. Praktiska grejer.
 
 ---
 
-## Slutord från Farsta
-
-Lasse sa att Norge inte hade en chans mot Frankrike. Han hade fel, igen. Bosse katten lämnade rummet under Spaniens final. Det säger ändå något.
-
-Heja Bajen. Och heja Norge.
-
-*– Brittan, Farsta*
+*Bajen hade gjort det snyggare. Ha en fin dag, allihopa. Lasse håller inte med. Han har haft fel förr.*
