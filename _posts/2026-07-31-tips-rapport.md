@@ -4,56 +4,49 @@ title: "VM-tips 2026-07-31"
 date: 2026-07-31
 ---
 
-# God morgon VM-vänner – 31 juli 2026!
+# God morgon VM-vänner – 31 juli 2026
 
-Jag heter Britt-Marie Andersson, kallad Brittan av alla som känner mig. Pensionerad sportjournalist från Farsta, gift med Lasse, och mor till en katt vid namn Bosse som har bättre fotbollsomdöme än de flesta tippare jag känner.
-
-Jag har bevakat svensk fotboll i decennier. Jag var där 1994. Jag satt på Söderstadion och grät när Bajen vann. Och nu startar jag den här bloggen för att kommentera sommarens VM – match för match, morgon för morgon, med kaffe i handen och sanning i hjärtat.
-
-Välkommen. Det ska bli bra.
+*Skrivet vid köksbordet i Farsta, tredje koppen kaffe, Bosse katten stirrar på fåglarna utanför fönstret och Lasse sover fortfarande.*
 
 ---
+
+Vad är det vi har bevittnat, vänner? Ett helt VM-program som fått mig att hoppa upp ur fåtöljen mer gånger än mina knän egentligen klarar.
 
 ## Nattens matcher
 
-Mycket hände. Lite för mycket, om jag ska vara ärlig.
+**Sverige–Japan slutade 1–1.** Jag tar det. Jag tar inte att vi förlorade mot Frankrike 0–3 lite tidigare, men det pratar vi inte om nu. Blågult är kvar och det är det enda som räknas.
 
-**Sverige–Tunisien 5–1** och **Japan–Sverige 1–1**. Det är som att vinna söndagsmiddagen och sedan ramla på hallmattan. Vårt Sverige kan göra fem mål mot Tunisien och sedan inte vinna mot Japan? Det är fotboll. Det är också lite frustrerande. Men jag har sett värre.
+**Norge slog Brasilien 2–1.** Jag upprepar: *Norge slog Brasilien.* Jag säger ingenting om Håland. Ingenting alls. Jag noterar bara att han spelade en utmärkt match och att hans löprörelser var… praktiska. Som de där glasögonen.
 
-**Norge–Irak 4–1.** Ja. Självklart. Nordisk effektivitet. Rakt och hårt och utan nonsens. Ingen behöver fråga varför jag gillar Norge. Det är fjällen. Det är arbetsetiken. Det är... ja, det är bara så.
+**Frankrike–England slutade 4–6.** Sex mål till England. Sex. Det är inte fotboll, det är pingis. Spektakulärt, kaotiskt och fullständigt omöjligt att tippa rätt. Det där hade aldrig hänt 1994. Eller jo. Men inte med sådana frisyrer.
 
-**Frankrike–Spanien 0–2** i slutspelet. Och med det är Spanien i final. Vackert byggt, metodiskt genomfört. Det finns något vackert i det. Lite Bajen-känsla, faktiskt – man tror på sitt sätt och kör det hela vägen.
-
-**England–Argentina 1–2** och sedan **Spanien–Argentina 1–0** i finalen. Argentina tog steget hela vägen och föll sedan för Spanien. Dramatik. Lidande. Kärlek. Precis som fotboll ska vara.
-
----
+**Ecuador slog Tyskland 2–1.** Det finns något vackert i det.
 
 ## Tipskollen
 
-I toppen hittar vi **Mollie och Wilma** på 166 rätt vardera. Heja tjejer. Det är träffsäkerhet med stil.
+Mollie och Wilma leder med 166 rätt av 369. Gemensam topp. Det är snyggt, det är sympatiskt och det är förmodligen djupt irriterande för alla andra.
 
-**Andreas1** på 159 och **Caroline och Anna** på 157 – solida insatser allihop.
+Johan – **J Nilsson med 132 rätt** – befinner sig i den nedre halvan av tabellen. Det ska erkännas. Men jag har tittat på hans rad och pojken har en *idé* om fotboll. Han tippade rätt på Qatar–Schweiz, Brasilien–Marocko och Egypten–Iran. Det är inte lätt. Det är faktiskt lite genialt. Att han sedan missade Frankrike–England kan man inte klandra honom för. Det missade alla med vett och sans.
 
-Längst ner sitter **Andreas2** på 121. Jag säger inte att det är kört. Men jag säger inte heller att det ser ljust ut.
+## Dagens ros
 
----
+**Mollie och Wilma** delar topplats. Starkt jobbat av er båda. Ni har läst spelet bättre än de flesta.
 
-## Johan Nilssons rad
+## Dagens stolleprov
 
-**J Nilsson på 132 rätt.** Jag ska inte ljuga – det är inte tabelltoppen. Men Johan är Johan. Han tippade rätt på Qatar–Schweiz, Brasilien–Marocko och Nederländerna–Japan. Han *ser* matcherna, det märks. Det är bara resultaten som inte alltid håller med honom.
-
-Johan hade fel på mycket. Men på ett väldigt genomtänkt sätt.
-
----
+**Andreas2 med 121 rätt.** Käre Andreas. Det är inte lätt att hamna sist. Men nu vet du det. Man behöver inte vara Einstein för att se att något i systemet behöver ses över.
 
 ## Brittans fundering
 
-Spanien vinner VM 2026. Och jag tänker på 1994 – Brolin, Dahlin, Kennet. Den sommaren när vi trodde att allting var möjligt.
+Norge slog Brasilien. Jag tänker på det. Jag tänker på fjällen, på arbetsmoral, på nordisk pålitlighet. Och lite grann på en person som springer väldigt bra.
+
+Lasse höll inte med om att Norge förtjänade att vinna. Han har haft fel förr.
+
+## Slutord från Farsta
 
 Det är därför vi älskar fotboll.
 
-Bajen hade spelat det snyggare. Men det är en annan historia.
+Bosse katten lämnade rummet när jag började prata om Hålands löprörelser. Det säger ändå något.
 
-Lasse höll inte med. Han har haft fel förr. Bosse katten sov genom alltihop. Det säger ändå något.
-
-*//Brittan från Farsta*
+*Brittan*
+*Farsta, 31 juli 2026*
