@@ -4,49 +4,62 @@ title: "VM-tips 2026-07-31"
 date: 2026-07-31
 ---
 
-# God morgon VM-vänner – 31 juli 2026
+# Fredag den 31 juli 2026 – Spanien vann, Brasilien åkte ut, och Lasse hade fel igen
 
-*Skrivet vid köksbordet i Farsta, tredje koppen kaffe, Bosse katten stirrar på fåglarna utanför fönstret och Lasse sover fortfarande.*
+*God morgon VM-vänner!*
+
+Det är fredag. Sol över Farsta. Kaffe på bordet. Bosse katten sitter i fönstret och stirrar på en duva med en intensitet som jag önskar att vissa tippare hade inför sina tips.
+
+Och eftersom det är fredag: ta en Norrlands Guld ikväll. Den har du förtjänat.
 
 ---
 
-Vad är det vi har bevittnat, vänner? Ett helt VM-program som fått mig att hoppa upp ur fåtöljen mer gånger än mina knän egentligen klarar.
+## Nattens matcher – och slutet på ett VM
 
-## Nattens matcher
+Spanien vann alltihop. 1–0 mot Argentina i finalen. Det är snyggt, det är välförtjänt, och det är precis den sortens fotboll som Tomas Brolin hade nickat igenkännande åt. Teknisk, disciplinerad, med en gnista av galenskap.
 
-**Sverige–Japan slutade 1–1.** Jag tar det. Jag tar inte att vi förlorade mot Frankrike 0–3 lite tidigare, men det pratar vi inte om nu. Blågult är kvar och det är det enda som räknas.
+Argentina föll. Elegant, men de föll.
 
-**Norge slog Brasilien 2–1.** Jag upprepar: *Norge slog Brasilien.* Jag säger ingenting om Håland. Ingenting alls. Jag noterar bara att han spelade en utmärkt match och att hans löprörelser var… praktiska. Som de där glasögonen.
+Och Norge? Mina hjärtans Norge åkte ut mot England (1–2) i utslagsskedet. Det gör ont. Håland kämpade som en viking på stormigt hav. Pojken lämnade turneringen med huvudet högt. Och glasögonen – de var vackra. Jag kollade upp bågarna igen. Det är av rent praktiska skäl, Lasse.
 
-**Frankrike–England slutade 4–6.** Sex mål till England. Sex. Det är inte fotboll, det är pingis. Spektakulärt, kaotiskt och fullständigt omöjligt att tippa rätt. Det där hade aldrig hänt 1994. Eller jo. Men inte med sådana frisyrer.
+Brasilien mot Marocko slutade 1–1 i gruppspelet – sedan åkte Brasilien ut. Det hade aldrig hänt 1994. Då hade Romário ordnat det.
 
-**Ecuador slog Tyskland 2–1.** Det finns något vackert i det.
+Ecuador slog Tyskland med 2–1. Bosse katten lämnade rummet. Det säger ändå något.
+
+---
 
 ## Tipskollen
 
-Mollie och Wilma leder med 166 rätt av 369. Gemensam topp. Det är snyggt, det är sympatiskt och det är förmodligen djupt irriterande för alla andra.
+Mollie och Wilma leder med 166 rätt av 369. Imponerande damer. Respekt.
 
-Johan – **J Nilsson med 132 rätt** – befinner sig i den nedre halvan av tabellen. Det ska erkännas. Men jag har tittat på hans rad och pojken har en *idé* om fotboll. Han tippade rätt på Qatar–Schweiz, Brasilien–Marocko och Egypten–Iran. Det är inte lätt. Det är faktiskt lite genialt. Att han sedan missade Frankrike–England kan man inte klandra honom för. Det missade alla med vett och sans.
+Andreas1 följer på 159. Solidt.
+
+Längst ner i tabellen hittar vi Andreas2 på 121. Det är modigt att ens visa sig.
+
+**Johan Nilsson – J Nilsson – 132 rätt.**
+
+Johan, min Johan. Jag vet att du tippade Mexiko för att vinna gruppen. Jag vet att du såg Argentina hela vägen. Tanken var rätt. Känslan stämde. Det är bara det att fotboll ibland inte lyssnar på logik. Det är inte ditt fel. Det är sportens grymaste egenskap – och vackraste.
+
+---
 
 ## Dagens ros
 
-**Mollie och Wilma** delar topplats. Starkt jobbat av er båda. Ni har läst spelet bättre än de flesta.
+Mollie och Wilma. Punkt. De läste det här turneringen bättre än de flesta. Kalasbra.
+
+---
 
 ## Dagens stolleprov
 
-**Andreas2 med 121 rätt.** Käre Andreas. Det är inte lätt att hamna sist. Men nu vet du det. Man behöver inte vara Einstein för att se att något i systemet behöver ses över.
+Andreas2. 121 rätt på 369 matcher. Jag säger inte att jag har lösningen. Men jag antyder den.
 
-## Brittans fundering
-
-Norge slog Brasilien. Jag tänker på det. Jag tänker på fjällen, på arbetsmoral, på nordisk pålitlighet. Och lite grann på en person som springer väldigt bra.
-
-Lasse höll inte med om att Norge förtjänade att vinna. Han har haft fel förr.
+---
 
 ## Slutord från Farsta
 
-Det är därför vi älskar fotboll.
+Spanien vann VM 2026. Norge var nära något stort. Sverige slutade med en 1–1 mot Japan i den sista gruppspelsmatchen och åkte ur. Det finns en poetik i det.
 
-Bosse katten lämnade rummet när jag började prata om Hålands löprörelser. Det säger ändå något.
+Lasse säger att fotboll bara är ett spel. Han har haft fel förr.
 
-*Brittan*
-*Farsta, 31 juli 2026*
+Ha en fin fredag, VM-vänner. Det har varit ett VM att minnas.
+
+*– Brittan, Farsta*
