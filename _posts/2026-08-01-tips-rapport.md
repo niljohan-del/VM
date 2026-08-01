@@ -4,68 +4,66 @@ title: "VM-tips 2026-08-01"
 date: 2026-08-01
 ---
 
-# 1 augusti 2026 – Spanien är mästare, Sverige är ute, och Brittan har sett värre
+# VM-dagboken med Brittan: 1 augusti 2026 – Finalen är spelad och livet är aldrig enkelt
 
-God morgon från Farsta, VM-vänner.
+God morgon från Farsta, mina nära och kära!
 
-Kaffe på, Bosse katten på knät, Lasse fortfarande i sängen. Det är ett perfekt läge för att ta sig igenom det som hände natten till idag.
+Kaffet är påsatt, Bosse sitter i fönstret och stirrar på en duva, och jag sitter här med det som bara kan beskrivas som en emotionell baksmälla. VM är slut. Spanien vann finalen mot Argentina med 1–0. En sen vinnare. Självklart.
 
----
+Frankrike åkte på 4–6 mot England i semifinalen. Det är den typen av resultat som får en att undra om fotbollsgudarna är tokiga eller bara väldigt underhållningssugna. Jag har sett värre. Men sällan roligare.
 
-## Nattens matcher
+Och Norge – mitt hjärta. Åkte ut mot England med 1–2. Jag sitter inte och är ledsen för det. Nej. Håland kämpade. Det är vad som räknas. Och de där glasögonen han gör reklam för verkar faktiskt väldigt bra för kvällsläsning. Lasse tittade konstigt på mig igen.
 
-Spanien är världsmästare. 1–0 mot Argentina i finalen. Det är rent och värdigt, och de spelade fotboll som fick mig att tänka på hur det borde se ut. Vackert, organiserat, okuvligt. Bajen hade gillat tempot.
-
-Argentina visade klass hela vägen. Men i finalen räckte det inte. Så är det ibland. Det finns något vackert i det ändå.
-
-Och Sverige. Ja. Frankrike vann med 4–6 i den andra semifinalen mot England, och vår åtta var borta redan i kvartsfinalen mot Frankrike (3–0). Inget att hymla om. Men vi slog Japan med 5–1 i gruppspelet och höll oss värdiga. Det räcker inte till guld, men det räcker till stolthet. Jag har sett värre.
-
-Norge? Kom till åttondelsfinal men föll mot England 1–2. Det svider. Håland och grabbarna kämpade. Håland sprang och sprang och jag... följde koncentrerat med i fotbollen. Det är allt jag har att säga om det.
+Sverige gick ut mot Japan (1–1) och Frankrike (3–0). Tråkigt. Men vi var med. Det finns något vackert i det.
 
 ---
 
 ## Tipskollen
 
-Mollie och Wilma leder med **166 rätt av 369** och det är imponerande. Grattis, tjejer. Det är inte lätt att hålla näsan framför i ett sådant här VM.
+Ledartabellen ser ut så här efter 369 matcher:
 
-Andreas1 på 159, Caroline och Anna på 157 – fint jobbat allihop.
+**Mollie och Wilma** delar ledningen med **166 rätt**. Det är imponerande. Det är genomtänkt. Det är irriterande.
 
-Och så **J Nilsson – Johan** – på 132 rätt av 369.
+**Andreas1** på 159, **Caroline och Anna** på 157. Tätt i toppen, folks.
+
+Och sedan har vi **J Nilsson** – Johan – på **132 rätt**.
 
 ---
 
 ## Dagens ros
 
-Johan. Min Johan.
-
-Ja, resultaten låter kanske inte lysande. Men jag har följt hans rad och jag vet att tankarna har varit rätt. Han såg Spanien. Han såg Argentina. Han höll linjen när andra vacklade. Det är en del av tipskonstens tragik – att ha rätt matchbild men fel timing. Det händer de bästa.
-
-**Johan hade fel på många matcher. Men på ett ärligt, genomtänkt sätt.**
+Mollie och Wilma – ni förtjänar varsin kram. 166 av 369 i ett VM fullt av tokresultat är inte tur. Det är klass.
 
 ---
 
 ## Dagens stolleprov
 
-Andreas2. **121 rätt**. Sist i ligan. Jag säger inte att jag har lösningen, men... ibland behöver man fråga sig om man verkligen läste på inför turneringen eller om man tippade med ögonen stängda på flygplanet hem från semestern.
+Johan. Käre, käre Johan.
 
-Kärleksfullt sagt.
+132 rätt av 369. Sist i tabellen om man inte räknar Andreas2 på 121, som uppenbarligen tippat med blundande ögon och ett mynt.
+
+Men jag säger det här med all värme i världen: Johan tippade med hjärtat. Han trodde på logik i ett VM där logiken åkte hem i gruppspelet. Det är inte Johans fel. Det är fotbollens fel. Fotboll spelas av människor, inte av kalkylblad.
 
 ---
 
 ## Brittans fundering
 
-Spanien vann. England förlorade finalen mot Frankrike med 4–6, vilket säger något om engelsk defensiv disciplin – men det är en annan blogpost.
+1994 hade vi Brolin, Dahlin och Ravelli. Vi hade en sommar som aldrig tog slut. Det var ett VM som kände som kärlek.
 
-Det här VM:et hade allt. Drama. Orättvisor. Norge som föll för tidigt. Sverige som kämpade. Och ett Bajen-hjärta i Farsta som slog lite extra varje gång det smällde till på planen.
+Det här VM:et? Det var kaos, drama och Ecuador som slog Tyskland. Det var Norge som vann mot Brasilien. Det var Spanien som vann alltihop med ett enda mål.
 
-Fotboll spelas av människor. Det är därför vi älskar det.
+Det är därför vi älskar fotboll.
 
 ---
 
 ## Slutord från Farsta
 
-Tack för den här turneringen, VM-vänner. Det har varit en resa. Lasse har druckit mer kaffe än vanligt. Bosse katten har lämnat rummet vid minst tre tillfällen under dåliga matcher.
+Tack för det här VM:et, allihopa. Bloggen läggs ner tills nästa gång Sverige – eller Norge – kvalar in.
 
-Bajen är fortfarande bäst. Det förändras inte av vare sig Spanien eller Argentina.
+Bajen är fortfarande bäst. Det ändras inte av något VM.
 
-Och Håland... ja. Han spelade bra. Pojken är begåvad. Jag
+Lasse sa att det var skönt att slippa höra om Håland ett tag. Jag svarade att jag bara ville jämföra bågar på glasögon lite till.
+
+Han köpte det inte.
+
+*Brittan, Farsta*
