@@ -4,40 +4,54 @@ title: "VM-tips 2026-08-02"
 date: 2026-08-02
 ---
 
-# God morgon VM-vänner – 2 augusti 2026
+# God morgon från Farsta – 2 augusti 2026
 
-Kaffe nummer två. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på en duva med den där blicken som säger att han är övertygad om sin sak men aldrig riktigt levererar. Lite som vissa tippare jag känner.
+Kaffe nummer två. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på en fågel med den koncentration som bara katter och riktigt bra defensiva mittfältare besitter.
 
-Förra natten var det VM-fotboll i mängder. Och vad var det vi fick se?
+Jag har suttit uppe för länge. Men fotboll väntar inte.
+
+---
 
 ## Nattens matcher
 
-Sverige vann med 5–1 mot Tunisien i gruppspelet. Det ska man inte fnysa åt. Tunisien är inget Rumänien 1994, men ändå – fem mål är fem mål. Sedan gick det sämre. Japan–Sverige slutade 1–1 och Frankrike–Sverige slutade 3–0. Till slut åkte Sverige ut av Frankrike med huvudet tryckt neråt. Det gör ont. Det gör alltid ont.
+Låt oss börja med det viktigaste: **Sverige–Frankrike 0–3**. Det svider. Det är inte ovärdigt, Frankrike är ett fantastiskt lag, men det svider ändå. Jag tänker på Brolin, på Dahlin, på den sommaren 1994 när vi visade hela världen att Sverige kan. Nu åkte vi ut av Frankrike. Livet är orättvist.
 
-Norge vann mot Irak med 4–1. Sedan mot Elfenbenskusten med 2–1. Sedan förlorade man mot Frankrike med 1–4 och slutligen mot England med 1–2. Hjärtat säger att Norge förtjänade mer. Men Håland gav det han hade. Att pojken dessutom ser ut som en vikingahövding i solnedgången är ju en helt irrelevant observation från min sida.
+**Norge–England 1–2** däremot – det var en match med hjärta. Norge kämpade. Norge gav allt. Och om man ser det ur ett nordiskt perspektiv är det en fin insats. Håland sprang och sprang och såg... ja, han såg ut som han brukar se ut. Koncentrerad. Målfarlig. Allmänt imponerande på ett sätt som är svårt att ignorera. Lasse frågade om jag sov under matchen. Jag sa att jag analyserade taktiken.
 
-Spanien vann hela vägen till titeln. 1–0 mot Argentina i finalen. Det var vacker fotboll. Det var kontrollerat. Det var lite för snyggt för att riktigt riva sönder en. Bajen hade gjort det snyggare. Men det är inte ett mätbart påstående.
+**Spanien–Argentina 1–0** var turneringens final och den var – trots allt – värd att se. Spansk kontroll mot argentinsk passion. Spanien vann. Det finns något nästan rättvist i det.
+
+**Frankrike–England 4–6** i semifinal. Vad i hela friden. Det där hade aldrig hänt 1994. Eller jo. Men inte med sådana frisyrer.
+
+---
 
 ## Tipskollen
 
-Toppen hålls av **Mollie** och **Wilma** med 166 rätt av 369. Det är ett imponerande facit och de förtjänar en lång applåd. Kloka damer uppenbarligen.
+Toppen hålls av **Mollie och Wilma** med 166 rätt av 369. Solida. Respektabla. Förmodligen fruktansvärt nöjda med sig själva just nu.
 
-**Johan Nilsson** – min kära Johan – sitter på 132 rätt. Det är inte toppen. Det vet vi båda. Men när man tittar på hans rad förstår man ändå. Han tippade Argentina starkt hela vägen. Han trodde på Frankrike. Grundtanken var det inget fel på. Fotbollen gav honom bara inte det han förtjänade.
+**Johan Nilsson** – käre Johan – sitter på 132 rätt. Det är inte toppenskiktet, nej. Men Johan har haft en rad med logik och hjärta. Han tippade Argentina rätt, han tog England rätt på sina håll. Problemet är att turneringen vägrat följa Johans resonemang. Det är turneringens fel, om du frågar mig.
 
-Johan hade fel. Men på ett väldigt genomtänkt sätt.
+**Andreas2** på 121 poäng håller bottenskansen. Det är modigt, på sitt sätt.
+
+---
 
 ## Dagens ros
 
-**Mollie och Wilma** delar äran. 166 rätt. Man behöver inte vara Einstein för att förstå att det är bra gjort.
+**Mollie och Wilma** – ni delar toppen och ni förtjänar varsin applåd. Ni har läst turneringen rätt fler gånger än de flesta.
+
+---
 
 ## Dagens stolleprov
 
-**Andreas2** – 121 rätt av 369. Det är under ett genomsnitt som redan är tufft. Jag säger ingenting. Men Bosse katten lämnade rummet när jag läste upp siffran högt.
+Den som tippade **Frankrike–England** till någon av de två vanligaste utfallen – ni vet vilka ni är. 4–6 är inte ett resultat. Det är ett hjärtanfall i matchform.
+
+---
 
 ## Brittans fundering
 
-Sverige åkte ut. Norge åkte ut. Spanien vann. Fotboll är orättvist och perfekt på samma gång. Någonstans i allt detta finns ändå ett slags skönhet. Som en gammal kärlek man aldrig riktigt ger upp.
+Spanien är världsmästare. Det är fint. Men djupt inne i mitt Bajenshjärta undrar jag om inte fotboll ändå är som livet på Söder: det handlar inte om vem som vinner. Det handlar om resan, gemenskapen och att man ändå var där.
 
-Lasse håller inte med. Han har haft fel förr.
+Bajen hade gjort det snyggare. Det är inte en åsikt.
 
-*Ha det bra, allihopa. Det är därför vi älskar fotboll.*
+Lasse höll inte med. Han har haft fel förr.
+
+*– Brittan, Farsta*
