@@ -4,52 +4,56 @@ title: "VM-tips 2026-08-03"
 date: 2026-08-03
 ---
 
-# God morgon VM-vänner – 3 augusti 2026!
+# God morgon VM-vänner – 3 augusti 2026
 
-Kaffet är påsatt. Bosse katten ligger på fjärrkontrollen igen. Lasse sover fortfarande. Det regnar i Farsta. Alltså: perfekta förutsättningar för att gå igenom nattens VM-cirkus.
+Kaffe nummer två redan. Lasse sover fortfarande. Bosse katten har tagit hans plats i soffan och ser ut att ha starka åsikter om turneringen. Det känns rätt.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja. **Sverige–Japan slutade 1–1** i gruppspelet, vilket är ungefär vad man kan förvänta sig när ett lag spelar lite för snällt i framkanten. Jag har sett Bajen avgöra matcher med mer hunger i en träningsmatch i november. Men vi är kvar. Det räcker.
+Sverige! Mina kära blågula hjältar!
 
-**Norway–Frankrike slutade 1–4.** Det gör ont. Jag tittar inte på Norge för Hålands skull, det har jag sagt förut. Men när det där resultatet trillade in kände jag ändå ett litet styng någonstans. Pojken kämpade. Det gör han alltid.
+Frankrike–Sverige slutade 3–0 och det är klart att det svider. Men innan vi kom dit hade Sverige 5–1 mot Tunisien och 1–1 mot Japan. Det finns heder kvar. Det finns stolthet. Tomas Brolin hade nickat igenkännande åt den energin 1994, även om han förmodligen haft bättre frisyr.
 
-**Spanien–Argentina i finalen** slutade 1–0. En finalmatch som avgjordes med ett mål. Det finns något vackert i det. Eller så var det feg fotboll i 89 minuter. Jag säger inte att jag har lösningen. Men 1994 hade det åtminstone hänt med bättre frisyrer.
+Norge slog Ivory Coast med 2–1. Självklart. Nordisk pålitlighet. Rak fotboll. Håland... spelar Håland i det laget? Ja, det gör han. Det märkte man. Jag säger inte mer än så.
+
+Den absoluta snackisen: Tyskland–Paraguay slutade 4–5. Fyra–fem. Jag har sett värre. Men inte mycket värre. Det är därför vi älskar fotboll.
+
+Och Spanien vann till slut hela kalaset. 1–0 mot Argentina i finalen. Elegant. Något kallt och tekniskt vackert i det. Bajen hade gjort det snyggare, men nu var det Spanien.
 
 ---
 
 ## Tipskollen
 
-Ledare i tävlingen just nu är **Mollie och Wilma** – båda på strålande **166 rätt av 369**. Det är imponerande. Jag vet inte vem de är men de tippar tydligen bättre än hälften av männen i sällskapet. Det säger något.
+I toppen tronar **Mollie och Wilma** med hela **166 rätt av 369**. Det är imponerande. Det är nästan irriterande. Grattis, ladies.
 
-**Johan Nilsson** – min Johan – har **132 rätt av 369** och håller sig i nedre halvan av tabellen. Nu ska man vara rättvis: Johan tippade Norge rätt på flera håll i gruppspelet, men Norge-trådarna hängde sedan ihop som en gammal målvaktsnät. Tanken var rätt. Fotbollen var det inte. Det händer de bästa.
+**Andreas1** på 159 är bästa killen i gänget. Inte illa.
 
----
-
-## Dagens ros
-
-**Mollie och Wilma** delar bucklan idag. Två namn, en träffsäkerhet som gör gamla sportreportrar lite avundsjuka. Hatten av, tjejer.
+Längst ner hittar vi **Andreas2** med 121 rätt. Det är modigt att delta. Det ska man ha sagt.
 
 ---
 
-## Dagens stolleprov
+## Johans rad – J Nilsson
 
-**Andreas2 – 121 rätt av 369.** Käre vän. Det är inte ett tippresultat, det är ett existentiellt tillstånd. Jag säger inte att det är omöjligt att vända det. Men jag säger inte heller att det är troligt.
+Johan. Min kära Johan. Han landar på **132 rätt av 369**. Det är inte toppen av tabellen, ska vi inte låtsas om det. Men det är Johan. Han såg saker andra inte såg. Han tippade med hjärtat. Att resultaten inte alltid höll med hjärtat – det kan man inte klandra fotbollen för.
+
+Norge mot Senegal tippade han X. Det slutade 3–2 till Norge. Tanken var rätt. Magkänslan var på rätt spår. Otur, helt enkelt.
 
 ---
 
 ## Brittans fundering
 
-Norge föll mot Frankrike. Spanien är VM-mästare. Sverige spelade kryss mot Japan.
+Spanien vann VM. Argentina föll i finalen. Det finns en rättvisa i fotboll som inte alltid syns med detsamma, men till slut – till slut – brukar den dyka upp.
 
-Livet är orättvist, fotboll är orättvist, och ändå sätter vi oss framför teven varje kväll och hoppas.
-
-Det är därför vi älskar fotboll.
-
-**Bajen hade gjort det snyggare. Men det är en annan historia.**
+Det finns något vackert i det.
 
 ---
 
-*Hälsningar från Farsta. Bosse katten har precis lämnat rummet. Det säger ändå något.*
+## Slutord från Farsta
+
+Lasse vaknade. Frågade om Norge var ute. Jag sa att de förlorade mot Frankrike i utslagsskedet. Han såg ledsen ut. Jag likaså.
+
+Bosse katten lämnade rummet. Det säger ändå något.
+
+*Brittan, Farsta*
