@@ -6,50 +6,50 @@ date: 2026-08-04
 
 # God morgon VM-vänner – 4 augusti 2026
 
-Kaffe är bryggd, Bosse katten sitter i fönstret och stirrar misstänksamt på grannes hund, och jag har precis gått igenom nattens resultat med en röd penna och stigande puls.
+Kaffe nummer två. Lasse sover fortfarande. Bosse katten stirrar på mig med den där blicken som säger *"du vet precis vad du håller på med"*. Och det gör jag.
 
-Det har spelats fotboll. Mycket fotboll. Och inte alltid av det vackra slaget.
+Det är alltså dags att summera nattens VM-kalas – och vad en natt det var.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det självklara: **Sverige–Japan slutade 1–1**. Jag vet inte om det är en skandal eller en rimlig spegling av verkligheten, men jag vet att det svider. Japan är ett lag som spelar med precision och utan skam. Det respekterar jag. Men ett kryss mot Japan är aldrig en meritlista. Bajen hade tagit tre poäng. Jag säger inte att jag har lösningen. Men.
+Sverige mötte Frankrike och åkte på en välförtjänt 3–0-smäll. Jag säger välförtjänt för att det inte gagnar någon att ljuga. Les Bleus är vackra att titta på. Det smärtar att erkänna, men fotboll spelas av människor, och de människorna spelade bra fotboll.
 
-**Frankrike–Spanien 0–2** var kvällens riktiga buller. Spanien spelade sig till finalen och gjorde det med stil. Det finns något vackert i det – det spanska pasningsspelet har en tidlöshet som påminner mig om sommaren 1994, fast utan Brolins pannband.
+Det stora snackiset är annars att **Norge slog Brasilien med 2–1**. Jag säger det igen. Norge. Brasilien. 2–1. Lasse skakade på huvudet. Jag grälade inte. Det finns något vackert i det – den raka, nordiska viljestyrkan mot sydamerikanskt solsken. Och Håland... ja. Han spelade bra. Det är allt jag säger. Glasögonreklamen kan vänta till imorgon.
 
-**Norge slog England 1–2** i slutspelet. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar sticka ut som en vikingahövding i regnet kan jag inte hjälpa.
+**Spanien** är löjligt bra. 2–1 mot Portugal i det som egentligen var ett finaldrama i förtid. Snyggt. Kliniskt. Nästan irriterande.
 
-**England–Argentina 1–2** och sedan **Frankrike–England 4–6**. Det är turneringsslutspel med stort E. Det är det här vi lever för.
+**England** åkte ur mot Argentina med 1–2 i vad som var en match full av engelsk ilska och argentinskt lugn. Det där hade faktiskt hänt 1994 också – men med sämre t-shirts.
 
 ---
 
 ## Tipskollen
 
-Tabellen i topp: **Mollie och Wilma delar ledningen med 166 rätt av 369**. Det är imponerande. Det är irriterande. Det är VM.
+I toppen kämpar **Mollie och Wilma** axel mot axel på 166 poäng. Respekt. De vet vad de gör.
 
-**J Nilsson – alltså Johan – sitter på 132 rätt.** Det är inte toppen. Det är inte ens mitten. Men Johan tippar med hjärtat, och det respekterar jag mer än andras Excel-ark. Johan hade rätt om USA–Paraguay. Han hade rätt om Argentina. Han ser fotboll, Johan. Resultaten är olydiga mot honom just nu, men sanningen är på hans sida.
+**J Nilsson** – alltså Johan – sitter på 132 av 369. Det ser tungt ut på pappret. Men jag har tittat igenom hans rad och det är inte klokapen som tryter – det är turen. Han tippade rätt matchbild gång på gång men fick fel utfall. Fotboll är inte alltid rättvis. Det vet vi som älskar Bajen bättre än de flesta.
+
+**Andreas2** ligger sist med 121 poäng. Jag säger ingenting. Men jag tänker det.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** delar äran idag. 166 rätt är siffror som talar för sig själva. Hatten av.
+Mollie och Wilma delar segern. Schysst ändå att det är två damer som leder det här skeppet.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippade kryss på **Frankrike–England** när det slutade 4–6 – ni vet vilka ni är. Det var antingen genialt eller fullständigt i blindo. Troligast det senare.
+Den som tippade Paraguay att slå Australien – och sedan Paraguay att slå igen – och sedan Paraguay att vinna *igen*. Paraguay! Australien vann 2–0. Det kallas envishet, inte magkänsla.
 
 ---
 
 ## Brittans fundering
 
-Norge är ute. Frankrike är ute. Finalen är Spanien–Argentina. Det är som om fotbollsgudarna läst manus från 1994 och bestämt sig för att skriva om det med lite mer solkräm.
+Norge slog Brasilien. Sverige åkte på stryk av Frankrike. Spanien vinner turneringar i sömnen. Och Johan har rätt – han har bara inte rätt *tid* för det.
 
-Lasse sa att Spanien vinner. Jag sa att Argentina vinner. Vi är överens om att det blir en fin match.
+Det är därför vi älskar fotboll.
 
-Bosse katten lämnade rummet. Det säger ändå något.
-
-*Heja Bajen. Och heja alla som tippar med hjärtat.*
+Kram från Farsta. Bosse katten har redan gett upp för dagen.
