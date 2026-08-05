@@ -4,44 +4,56 @@ title: "VM-tips 2026-08-05"
 date: 2026-08-05
 ---
 
-# God morgon VM-vänner – 5 augusti 2026
+# God morgon VM-vänner – 5 augusti 2026!
 
-Kaffe kokar. Bosse katten stirrar på mig från fönsterbrädan. Lasse sover fortfarande. Och VM rullar på som om det aldrig ska ta slut – vilket är det närmaste paradiset en gammal sportjournalist från Farsta kan komma.
+Kaffe nummer två redan. Lasse sover fortfarande. Bosse katten stirrar på mig som om han vet att jag satt uppe till midnatt och skrek åt TV:n. Det vet han förmodligen.
 
-## Nattens matcher – och ja, Sverige spelade
-
-Låt oss börja med det viktigaste: **Japan–Sverige slutade 1–1**. Kryss. Mot Japan. Jag säger inte att jag har lösningen, men 1994 hade Brolin löst det där i halvtid. Med vänster.
-
-Norge slog Elfenbenskusten 2–1. Självklart. Det är därför vi älskar fotboll – och Norge. Pojkarna från fjällen springer aldrig ifrån ett tag. Håland... ja, han var säkert inblandad. Jag tittar inte för hans skull. Jag tittar för spelet. Att han råkar se ut som en nordisk halvgud kan jag ingenting göra åt.
-
-Frankrike kryssade mot England – 4–6 i ett virrvarr av mål som fick mig att tappa kaffekoppen. Det är inte fotboll. Det är tennis med fötterna. Men det är underhållning, det ska de ha.
-
-Spanien–Argentina gick till Spanien. 1–0. En final värd namnet, äntligen lite karaktär.
-
-## Tipskollen
-
-I toppen tronar **Mollie och Wilma** gemensamt på 166 rätt av 369. Imponerande. Respekt dit det hör hemma.
-
-**J Nilsson** ligger på 132 rätt – och ja, det är Johan. Min Johan. Hur ser det ut i detalj då?
-
-Pojken tippade kryss på Norge–Frankrike. Frankrike vann. Han tippade kryss på Norge–Senegal. Norge vann. Det är som att stå utanför Söderstadion och tro att det blir lugnt inne. Det brukar inte bli det.
-
-Men – och det här är viktigt – **tanken var rätt**. Johan respekterar ovissheten. Det är en kvalitet. Många tippare prövar aldrig ett X på Norge. Johan gör det. Modigt. Feltänkt. Men modigt.
-
-## Dagens ros
-
-**Mollie och Wilma** delar bucklan idag. Två starka rader. Välförtjänt.
-
-## Dagens stolleprov
-
-**Andreas2 på 121 poäng** är ett mysterium som jag ännu inte löst. Det finns något envist i den raden som påminner mig om när Bajen spelade defensivt i gamla derbyn. Principfast, men inte alltid framgångsrikt.
-
-## Brittans fundering
-
-Spanien vann VM. Argentina fick se sig besegrade. Frankrike–England slutade i kaos. Och Sverige kryssade mot Japan.
-
-Det finns något vackert i det. Fotboll spelas av människor.
+Men vad en natt.
 
 ---
 
-*Hej Lasse. Kaffe är klart. Bosse vill ut. Och nej, jag köper inte de där glasögonen. Jag bara tittar på dem.*
+## Nattens matcher
+
+Låt oss börja med det viktigaste: **Sverige–Japan slutade 1–1**. Jag ska inte låtsas att det inte svider. Det är okej. Det är ett poäng. Men det räcker med att jag minns Tomas Brolin mot Rumänien 1994 för att förstå att Sverige kan leverera mer. Mycket mer.
+
+**Norge vann mot Senegal med 3–2.** Håland och gänget är på gång. Det var ett mål, det var karaktär, det var nordisk råstyrka. Jag tittar inte på Norge för Hålands skull. Det vet alla. Men pojken rör sig på planen med en naturlig auktoritet som jag inte sett sedan... nej, det säger jag inte.
+
+**Frankrike–Spanien slutade 0–2.** Spanien vann finalen alltså. Grattis, väldigt vackert. Men det finns en del av mig som drömde om en annan finalist. En med orange tröjor. Eller gula och gröna.
+
+**Ecuador chockade Tyskland med 2–1** i gruppspelet. Det är just därför vi älskar fotboll. Bajen hade gjort det snyggare, men ändå.
+
+---
+
+## Tipskollen
+
+**Mollie och Wilma delar ledningen med 166 rätt** av 369. Respekt. Det är inga slumpmässiga poäng – det är matchkänsla.
+
+Sedan följer Andreas1 på 159, Caroline och Anna på 157. Det börjar bli trångt om platserna.
+
+Och så har vi **J Nilsson** – det vill säga Johan – på **132 rätt**. Nu ska jag inte vara elak. Johan har tippat med hjärtat, och det respekterar jag. Hans problem är inte brist på fotbollsförstånd – det är att han konsekvent underskattar kryssen och överskattar favoriter. Norge–Frankrike tippade han X. Det var djärvt. Fel. Men djärvt.
+
+Heimbrand på 130 och Andreas2 på 121 avslutar listan. Lite mer studier av tabellerna, grabbar.
+
+---
+
+## Dagens stolleprov
+
+Johan tippade **Skottland–Brasilien till X**. Det slutade 0–3. Jag förstår tanken. Skottland har hjärta. Men Brasilien har ben.
+
+---
+
+## Brittans fundering
+
+Det är något med detta VM som påminner mig om sommaren 1994. Inte vädret – det var varmare i USA. Men känslan av att allt kan hända. Att fotboll är störst. Att man kan sitta i Farsta med ett kaffe och gråta av lycka eller frustration, och att det spelar roll.
+
+Det är därför vi älskar det.
+
+---
+
+## Slutord från Farsta
+
+Bosse katten har lagt sig på fjärrkontrollen igen. Lasse är fortfarande skeptisk till mina Håland-glasögon-research. Och Sverige behöver skärpa sig.
+
+Men vi lever.
+
+**Heja Bajen. Heja Sverige. Heja Norge – av fotbollsskäl.**
