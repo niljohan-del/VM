@@ -6,48 +6,50 @@ date: 2026-08-05
 
 # God morgon VM-vänner – 5 augusti 2026
 
-Kaffe är påslaget, Bosse sover på tidningen och Lasse mumlar något om att det var för mycket matcher igår. Han har fel. Det kan aldrig bli för många matcher.
-
-Men låt mig presentera mig först – för är det ditt första besök här är du välkommen in i värmen från Farsta.
-
-Jag heter Britt-Marie Andersson. Brittan, för vänner. Pensionerad sportreporter med decennier av svensk fotboll i kroppen och Hammarby tatuerat på hjärtat. Jag startade den här bloggen för att VM är för stort för att hålla inom sig, och för att mina barnbarn inte orkar lyssna på mig i mer än fem minuter. Här får jag tala fritt. Varje morgon. Välkommen.
+Kaffe nummer två är avtappat, Bosse katten ligger och värmer fötterna och Lasse sover fortfarande. Det är den sortens morgon som nästan känns fridfullt – tills man tittar på matchresultaten och inser att det var en riktig orgie av fotboll i natt.
 
 ---
 
 ## Nattens matcher
 
-Sverige 5–1 mot Tunisien. Jag säger det igen. **Fem–ett.** Det var vackert nog att göra en pensionerad reporter darrande på handen. Det påminde mig om sommaren 1994, fast med bättre organisation och sämre frisyrer.
+Var ska man börja?
 
-Norge slog Irak 4–1. Fyra mål. Klart och tydligt. Nordisk effektivitet utan krångel. Det finns något djupt tillfredsställande i det. Jag säger inte att det har med Håland att göra. Jag säger bara att det var vackert fotboll av ett vackert landslag.
+**Sverige förlorade mot Frankrike med 3–0.** Jag säger inte att det var oväntat. Men det stod ändå lite ont. Det fanns stunder av vackert spel, men Frankrike är ett lag som aldrig låter dig vila. Brolin hade sprungit sönder dem 1994. Men nu var det 2026 och det räckte inte.
 
-Spanien–Kap Verde slutade 0–0. Noll-noll. Mot Kap Verde. Jag har sett värre, men sällan från Spanien med deras resurser. Bajen hade gjort det snyggare, och de är inte ens med i VM.
+Och sedan – **Norge slår Elfenbenskusten med 2–1.** Där sitter jag lite rakare i ryggen. Det är något med det laget. Jobbar hårt, tar sina chanser, ger sig inte. Nordisk pålitlighet, som jag brukar säga. Ingenting annat.
+
+**Portugal–Spanien slutade 0–1.** Det är slutspelet nu, folk. Det börjar bli på riktigt.
 
 ---
 
 ## Tipskollen
 
-I toppen sitter **Mollie och Wilma** med 166 rätt av 369. Jag vet inte vem ni är, men ni tippar som ni sett fotboll hela livet. Hatten av.
+Låt oss kika på tabellen. **Mollie och Wilma delar ledningen med 166 rätt av 369.** Imponerande. De har känsla, de har is i magen och de har haft tur vid rätt tillfällen. Hatten av, tjejer.
 
-**J Nilsson** – alltså Johan – har 132 poäng. Det ser tufft ut på pappret. Men jag har läst hans rad och pojken *försöker* förstå fotboll. Det syns. Han tippade rätt på Qatar–Schweiz X, rätt på Mexiko–Sydafrika och rätt på flera svåra matcher. Han är helt enkelt lite för modig ibland. Det är inte ett fel, det är en egenskap.
+Men sen har vi **J Nilsson med 132 rätt** och **Heimbrand med 130**. Där nere börjar det bli tunt. Andreas2 håller sig envist kvar på 121. Man behöver inte vara Einstein för att inse att det inte går åt rätt håll.
 
-**Andreas2** sitter sist med 121 poäng. Jag säger inget mer om det. Jag behöver inte.
+---
+
+## Johan – veckans glädje och sorg
+
+Vår Johan. Min favorit. Killen som *tänker* på ett sätt som visar att han förstår fotboll på djupet.
+
+Den här veckan har han haft sina stunder – Argentina, Portugal, England på det rätta. Men Norge-Frankrike? Han tippade kryss. Fyra gånger har han missat Norges resultat den här veckan. **Fyra gånger, Johan.**
+
+Jag förstår det. Det är svårt att tro att ett lag med den här arbetsmoralen, den här nordiska raka ryggen, det här... uttrycket... ska vinna mot Frankrike. Men de gör det. Gång på gång.
+
+Tanken var rätt, Johan. Otur bara.
 
 ---
 
 ## Brittans fundering
 
-Spanien vann turneringen. Norge slog Brasilien. Sverige gick ur mot Frankrike med 0–3. Det är fotboll. Det ger och det tar, ibland samma kväll.
+Det finns något som påminner mig om 1994 med det här VM:t. Inte frisyrerna – gudarna ske lov – men känslan av att vad som helst kan hända. Att fotboll fortfarande är gjort av människor.
 
-Det påminner mig om Söderstadion en regnig höst. Bajen förlorar, och ändå går man inte hem. Man stannar. För det är inte resultaten vi älskar. Det är känslan av att tillhöra något.
+Bajen visste det. Den gemenskapen på Söderstadion, det lidandet, den kärleken. Det är den känslan VM ska ge.
+
+Det är därför vi älskar fotboll.
 
 ---
 
-## Slutord från Farsta
-
-Johan – håll ut. Fotbollsgudarna är nyckfulla, men rättvisa i längden.
-
-Bosse katten gäspade precis åt Spaniens gruppspel. Han är en klok katt.
-
-Och Håland – fyra mål mot Irak. Jag tittar inte för hans skull. Jag tittar för fotbollens skull.
-
-*Lasse ser inte övertygad ut.*
+*Hälsningar från Farsta. Bosse katten godkänner detta inlägg. Lasse höll inte med om Frankrike. Han har haft fel förr.*
