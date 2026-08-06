@@ -4,66 +4,55 @@ title: "VM-tips 2026-08-06"
 date: 2026-08-06
 ---
 
-# God morgon VM-vänner – 6 augusti 2026!
+# God morgon VM-vänner! 6 augusti 2026 – en natt som gav och tog
 
-Kaffe nummer två är påtaget. Bosse katten ligger på fjärrkontrollen och Lasse sover fortfarande. Det är halvåtta på morgonen i Farsta och jag har redan sett mer fotboll än en människa egentligen borde klara av på en vecka.
-
-Men det är därför vi älskar det här. Det är därför vi älskar fotboll.
+Kaffe påfyllt. Bosse katten ligger och stirrar på ingenting i hörnet – precis som han brukar när fotbollen varit både vacker och brutal på samma gång. Lasse sover fortfarande. Han missar allting. Som vanligt.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det uppenbara: **Norge slog Brasilien med 2–1**. Jag vet inte hur jag ska säga det utan att låta partisk, men det var en prestation av rang. Rakt, hårt, nordiskt. Håland styrde upp det där anfallet i andra halvlek med en... ja. En viss närvaro. Atletisk. Koncentrerad. Lasse frågade varför jag höjde rösten. Jag sa att det var för offsidefällan.
+Var ska man börja?
 
-Han såg inte övertygad ut.
+**Sverige–Japan slutade 1–1.** Jag satte mig ner med kaffet och höll andan. Ett kryssresultat mot Japan är inte en katastrof, men det är heller ingen fest. Vi vet att Sverige kan bättre. 1994 hade vi Brolin. Nu har vi... lite mer kollektivt spel och lite mindre magi. Men jag har sett värre.
 
-**Sverige mot Japan slutade 1–1**, och det är ett resultat som smakar som en varm lättöl. Inte dåligt. Inte bra. Japan är ett välorganiserat lag och vi ska respektera det. Men Fotbollsromantikern i mig ville mer. Bajen hade gjort det snyggare.
+**Norge slaktade Ivory Coast 2–1.** Jag säger inget mer om det. Jo, ett: Håland. Pojken spelar som om fjällen driver honom framåt. Det är nordisk karaktär. Det är rak fotboll. Att han dessutom ser ut som en vikingahövding har ingenting med saken att göra. Ingenting alls.
 
-**Spanien vann finalen mot Argentina med 1–0** och tog hem hela skansen. Det var effektivt. Lite kallt. Men Spanien kan spela fotboll, det ska de ha.
+**Spanien vann VM-finalen mot Argentina 1–0.** Det är klart. Teknisk, tålmodig och förbannat effektiv fotboll. Argentina kämpade som alltid. Men i slutändan vann den vackrare fotbollen. Det finns något vackert i det.
+
+**Frankrike åkte ut mot England 4–6.** Jag tvättar händerna. Det är kaos, det är drama, det är precis varför vi älskar det här spelet.
 
 ---
 
 ## Tipskollen
 
-Topplistan ser ut såhär just nu: **Mollie och Wilma delar ledningen med 166 rätt** av 369. Starkt jobbat, tjejer. Verkligen.
+I täten hittar vi **Mollie och Wilma** med 166 rätt av 369. Imponerande. Respekt ska ges där respekt hör hemma.
 
-Sedan följer Andreas1, Caroline, Anna och Mats tätt. Det är jämnt som ett derby i regn.
+**J Nilsson** – alltså Johan – sitter på **132 rätt**. Det är inte tabellens topp, det ska jag inte låtsas om. Men Johan tippade rätt på flera av de svåraste matcherna. Han hade rätt känsla på Qatar–Schweiz. Han såg att Spanien var för bra för Kap Verde. Johan är en man som tänker fotboll. Att resultatsidan inte alltid håller med är fotbollens tragik, inte Johans fel.
 
-Och vår käre **J Nilsson – Johan** – sitter på **132 rätt**. Det ser tufft ut, och jag ska inte ljuga om det.
-
-Johan har ett problem som jag känner igen från gamla Bajentider: han tänker för mycket. Han läser matchen rätt men hamnar snett på utfallet. Det finns en viss tragik i det. En nästan poetisk orättvisa. **Johan hade rätt anda men fel siffra**, och i tippningsbranschen är det tyvärr inte anda som räknas.
-
-Men jag har sett honom tippa bra. Jag vet att han kan det.
+**Heimbrand på 130 och Andreas2 på blygsamma 121** – vad ska man säga. Det är tappert att fortsätta. Det är fotbollens mänsklighet.
 
 ---
 
 ## Dagens ros 🌹
 
-**Mollie och Wilma** delar äran idag. Två poäng i topp utan att mucka. Det är det vi kallar konsistens.
+**Mollie och Wilma** delar tronen. Välförtjänt. Man kan inte säga annat.
 
 ---
 
-## Dagens stolleprov 🃏
+## Dagens stolleprov 🤦
 
-**Andreas2 – 121 rätt av 369.** Kära nån. Det är som att gå in i ett derby med ögonbindel och ändå hoppas på övertidsmål. Jag säger inte att jag har lösningen. Men.
+**Andreas2 med 121 rätt av 369.** Inte för att vara elak. Men vid det här laget i turneringen börjar man undra om tipsen görs med ögonen öppna. Kärleksfullt sagt.
 
 ---
 
 ## Brittans fundering
 
-Norge slår Brasilien. Det händer alltså. Det är den här sortens magi som fick mig att älska fotboll från första början – samma känsla som när Kennet Andersson nickade in det där mot Rumänien 1994 och hela landet exploderade.
+Norge är ute. Frankrike är ute. Det är bara Spanien som jublar ikväll. Men fotboll är inte bara om att vinna. Det är om att känna något. Det kände vi alla i natt.
 
-Fotboll spelas av människor. Inte av odds.
+Bajen hade gjort det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
 
 ---
 
-## Slutord från Farsta
-
-Bosse katten har somnat om. Lasse har vaknat och undrar varför jag ler.
-
-Jag säger att det är för kaffet.
-
-Ha en strålande dag, VM-vänner. Och Johan – ge inte upp. Det vänder.
-
-*/ Brittan*
+*Farsta, 6 augusti 2026. Brittan ut.*
+*Bosse katten har lagt sig igen. Lasse är fortfarande med de oskyldiga. Och glasögonen som Håland gör reklam för – jag tittar bara för att de verkar praktiska.*
