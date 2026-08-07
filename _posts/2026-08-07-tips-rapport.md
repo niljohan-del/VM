@@ -4,56 +4,56 @@ title: "VM-tips 2026-08-07"
 date: 2026-08-07
 ---
 
-# God morgon VM-vänner! — 7 augusti 2026
+# God morgon VM-vänner – 7 augusti 2026!
 
-*Från Farsta, med kaffe och lite besvikelse i bröstet.*
+Kaffe i muggen. Bosse spinner på knät. Lasse sover fortfarande och missade halva kvällens matcher. Typiskt.
 
----
-
-Kaffe är pådraget, Bosse katten sitter på fönsterkarmen och stirrar på en duva han aldrig kommer att fånga, och Lasse sover fortfarande. Somliga har det gott.
-
-Jag däremot satt uppe och tittade på fotboll. Som man gör.
+Det har varit en natt av mäktiga proportioner, mina vänner. Jag satt uppe alldeles för länge. Jag ångrar ingenting.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Japan. 1–1. Jag vill inte prata om det. Jo, det vill jag faktiskt. Sverige hade chanser, Japan hade teknik, och någonstans mittemellan försvann tre poäng ut i augustinatten. Det är därför vi älskar fotboll. Och hatar det. Samtidigt.
+Låt oss börja med det viktigaste: **Sverige–Japan slutade 1–1**. Kryssigt, lite frustrerande, men inte skamligt. Det finns en gnutta 94-känsla fortfarande kvar i det svenska bröstkorgen, även om den sitter lite löst.
 
-Det stora dramat på slutet: **Norge besegrar Frankrike 4–1** i en match som fick mig att hälla om kaffe och resa mig upp från soffan. Fyra mål. Mot Frankrike. Jag säger inte att det handlade om Håland, men pojken stod mitt i alltihop som en välbyggd vikingahövding med glasögon man kan beställa online för ungefär 1 400 kronor. Praktiska bågar, för övrigt.
+**Norge vann mot Frankrike med 1–4.** Läste om det tre gånger. Sedan en gång till. Det finns något nordiskt och magnifikt i det. Håland spelade förstås. Han springer som ett väderväderfel som inte går att förklara med meteorologi. Jag tittar inte på Norge för Hålands skull. Det är fotbollen. Lasse köpte inte det heller.
 
-Lasse frågade vad jag tittade på klockan halv tolv. Jag sa att jag studerade taktik. Han gick tillbaka och lade sig.
+**Spanien körde över Argentina i finalen med 1–0.** En välspelad fotboll-föreställning. Bajen hade nog gjort det snyggare, men ändå.
 
-**Ecuador slår Tyskland 2–1.** Det där hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone hänt med bättre frisyrer.
+**Ecuador slog Tyskland med 2–1.** Det är därför vi älskar fotboll. Och varför vi ibland hatar det.
 
 ---
 
 ## Tipskollen
 
-Ledningen i tävlingen innehas just nu av **Mollie och Wilma** – båda på **166 rätt av 369**. Det är respektingivande. Bra jobbat, tjejer.
+I toppen skrattar **Mollie och Wilma** åt alla oss andra – 166 rätt var. Klassen. Syrligt nog är de båda före samtliga herrar i sällskapet. Notera det.
 
-**J Nilsson – det vill säga Johan – ligger på 132 poäng.** Det är inte toppen av tabellen. Det vet Johan. Men jag vet också att Johan tänker rätt, han har bara haft lite otur med hur fotbollen bestämt sig för att spelas. Resultatet blev inte som Johan trodde. Matcherna borde däremot ha blivit det.
+**Andreas1** på 159 och **Caroline och Anna** på 157 håller sig fina. Stabilt. Respekt.
 
----
-
-## Dagens ros 🌹
-
-**Mollie och Wilma**, delat ledarskap. Det är elegant. Det är generöst. Det påminner mig om hur Bajen delar glädje på läktaren. Fast med tipskuponger.
+Och så har vi **J Nilsson – Johan** – på 132 rätt av 369. Nu ska vi vara rättvisa: Johan har tippar med *hjärta*, inte med kalkylator. Det syns i raden. Han tippade Norge vinna mot Senegal – och fick rätt. Han tippade Argentina hela vägen – och fick rätt. Han tippade bort sig ibland, ja. Men på ett sätt som vittnar om fotbollsromantik, inte slarv.
 
 ---
 
-## Dagens stolleprov 🏆
+## Dagens ros
 
-Johan tippade **Paraguay–Australien: 1** och fick ett kryss. Han tippade **Turkiet–Paraguay: 1** och fick en tvåa. Han är konsekvent fel på just det här gänget av lag, och det finns något nästan konstnärligt i det.
+**Mollie och Wilma** delar äran idag. 166 rätt. Det är inte tur. Det är skicklighet. Hatten av, damer.
+
+---
+
+## Dagens stolleprov
+
+**Andreas2** sitter på 121 rätt och sjunker. Jag säger inte att det ser mörkt ut. Men jag säger inte att det ser ljust ut heller.
 
 ---
 
 ## Brittans fundering
 
-Norge slår Frankrike. Sverige spelar kryss mot Japan. Världen är orättvis och fotboll är inte rättvist och det är precis som det ska vara. Bajen hade spelat det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
+Det är VM. Det är sommar. Norge slår Frankrike. Ecuador slår Tyskland. Sverige kryss med Japan.
+
+1994 hade vi Brolin, Dahlin och Kennet. 2026 har vi… hopp, kaffe och Bosse katten.
+
+Det räcker.
 
 ---
 
-**Ha en fin fredag, allihop. Lasse vaknar snart. Bosse katten missade duvan. Norge vann.**
-
-*– Brittan, Farsta*
+*Farsta, fredag morgon. Lasse vaknade precis och frågade vem som vann. Jag sa Spanien. Han sa "vad bra". Han vet inte varför det är bra. Det är kärlekens pris.*
