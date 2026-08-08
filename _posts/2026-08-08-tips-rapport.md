@@ -4,60 +4,52 @@ title: "VM-tips 2026-08-08"
 date: 2026-08-08
 ---
 
-# 8 augusti 2026 – Spanien vann finalen, och Brittan har åsikter
+# God morgon VM-vänner – 8 augusti 2026
 
-God morgon VM-vänner!
+Kaffe. Smör på mackan. Bosse katten stirrar på mig som om jag skrivit fel poäng på hans skål. Lasse sover fortfarande. Det är sådana morgnar man är tacksam för fotbollen.
 
-Kaffe nummer två står på bordet. Lasse sover fortfarande. Bosse satt och stirrade på mig klockan sex som om han visste att jag legat och räknat mål i halvsömnen. Det hade jag. För det var en *natt*.
+Och vad en natt det var.
 
 ---
 
-## Finalen är spelad. Spanien är världsmästare.
+## Nattens matcher
 
-**Spanien–Argentina 1–0.** Så enkelt. Så brutalt. Så spanskt.
+Låt mig börja med det viktigaste: **Sverige–Tunisien 5–1**. Fem mål. Fem! Jag fick gåshud. Lite av den där 1994-känslan kom krypande – inte för att vi har Brolin eller Dahlin, men för att det faktiskt *sjöng* i benen när jag såg det. Det finns något vackert i det.
 
-En turnering som gett oss mål, dramatik och mer kryss än en svensk påsk – avgjord med ett enda mål. Jag har sett värre. Men jag har också sett vackrare.
+Sen **Norge–Irak 4–1** och **Norge–Senegal 3–2**. Norge levererar. Hålan– alltså, *laget* levererar. Nordisk arbetsmoral, raka linjer, inga krumbukter. Jag tittar inte på Norge för någon särskild spelares skull. Det vet ni ju.
 
-Argentina kämpade. De hade kört över Algeriet, Österrike, Egypten och England på vägen hit. Men mot Spaniens passningsspel stod de till slut handfallna. Det är därför vi älskar fotboll. Det räcker inte med stjärnor – du behöver ett system. Det visste Bajen 1971. Det vet Spanien 2026.
+**Frankrike** rullar på som ett schweiziskt urverk, **Argentina** tar vad Argentina ska ta, och **Spanien** vann till slut turneringen hela vägen – men det återkommer vi till.
 
-**Norge–England 1–2** i tidigare slutspel – och jag ska inte låtsas att det inte svider. Håland och grabbarna kämpade tappert. Pojken pressade, sprang, störde. Men England var vassare den dagen. Jag behöver inte analysera det mer. Det gör ont nog som det är.
-
-*(Lasse frågade varför jag fortfarande hade Norges tröja på vid frukost. Jag sa att det var närmast till hands. Han såg inte övertygad ut.)*
-
-Sverige åkte ut mot Frankrike, 0–3. Hjärtat gör ont. Men det hade aldrig hänt 1994. Då hade Brolin sprungit dem av planen i minut tolv.
+Det som förvånade mig mest? **Ecuador–Tyskland 2–1**. Tyska skeppet visade sig ha ett läckage. Bajen hade hanterat det snyggare i försvaret. Jag säger inte mer.
 
 ---
 
 ## Tipskollen
 
-Ledningen i tipset är tight. **Mollie och Wilma delar på topplatsen med 166 rätt av 369.** Det är ett riktigt gott resultat och de ska ha all heder för det. Skarp magkänsla hela vägen.
+Toppen hålls av **Mollie och Wilma** med suveräna 166 rätt av 369. Grattis, tjejer. Det är genuint imponerande.
 
-Sedan följer **Andreas1 på 159**, **Caroline och Anna på 157** och ett tätt gäng fram till mitten.
-
-Längst ner hittar vi **Andreas2 med 121 rätt**. Kär vän, vad hände? Jag säger inte att jag har lösningen. Men...
+Längst ner lider **Andreas2** med 121 rätt. Det är... modigt att fortsätta. Det finns ett slags fotbollsromantik även i det.
 
 ---
 
-## Johan – J Nilsson – 132 rätt
+## Johans rad – J Nilsson, 132 rätt
 
-Johan. Hjärtat mitt.
+Johan. Älskade Johan. 132 poäng och lång väg till toppen, det ska erkännas. Men jag har följt hans rad och mannen har *principer*. Han tippade X på Brasilien–Marocko tidigt – helt rätt magkänsla, fel timing. Han tippade 1 på Frankrike–Irak – korrekt analys. Det är som att ha rätt karta men fel väder. Otur, Johan. Ren och skär otur. Tanken är alltid på rätt ställe.
 
-132 rätt av 369 är inte en siffra som sjunger. Men jag har följt Johans rad och jag *vet* att han förstår fotboll. Problemen sitter i kryssen – han undviker dem som pesten. Varje gång ett X smög in bakvägen var Johan övertygad om ettan. Det är inte feghet. Det är övertro på fotbollens rättvisa. Och fotboll är sällan rättvist.
+---
 
-Tanken var rätt, Johan. Resultaten lite mindre så.
+## Dagens stolleprov
+
+Nämner inga namn, men den som tippade **Paraguay att gå vidare** i alla kombinationer trots att Australien, USA och Turkiet alla hade åsikter om saken – ja. Man ska inte vara för hård. Alla ser inte allt.
 
 ---
 
 ## Brittans fundering
 
-En turnering tar slut. Spanien lyfter pokalen. Marocko överraskade. Norge drömde. Sverige kämpade.
+Fotboll spelas av människor. Det glömmer vi ibland när vi sitter och granskar kalkylblad och tipprader. Men nånstans spelar ett barn i ett land med dammig plan och krokig boll och drömmer. Det är därför vi älskar fotboll.
 
-Och någonstans i Farsta sitter en pensionerad sportjournalist med kattungar i knäet och tänker på en sommar 1994 då allting var möjligt och Kennet Andersson nickade Sverige till brons.
+Lasse höll inte med om Norges chanser ikväll. Han har haft fel förr.
 
-Det finns något vackert i det.
+Ha en fin dag, VM-vänner. Bosse katten kräver nu frukost och jag är inte i position att neka.
 
----
-
-*Ta hand om er. Fotboll är livet. Bajen är bäst.*
-
-**– Brittan, Farsta**
+*– Brittan, Farsta*
