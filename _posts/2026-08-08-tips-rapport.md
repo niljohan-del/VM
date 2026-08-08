@@ -4,58 +4,60 @@ title: "VM-tips 2026-08-08"
 date: 2026-08-08
 ---
 
-# 8 augusti 2026 – Spanien tar hem det. Och Bosse katten sover redan.
+# 8 augusti 2026 – Spanien vann finalen, och Brittan har åsikter
 
-*God morgon VM-vänner!*
+God morgon VM-vänner!
 
-Kaffe är drucket. Lasse snarkar fortfarande. Bosse katten ligger på mittuppslaget av Aftonbladet från igår. Det är morgon i Farsta, och vi har haft **en final**.
+Kaffe nummer två står på bordet. Lasse sover fortfarande. Bosse satt och stirrade på mig klockan sex som om han visste att jag legat och räknat mål i halvsömnen. Det hade jag. För det var en *natt*.
 
 ---
 
-## Finalnattens match
+## Finalen är spelad. Spanien är världsmästare.
 
-**Spanien–Argentina 1–0.**
+**Spanien–Argentina 1–0.** Så enkelt. Så brutalt. Så spanskt.
 
-Det var så det slutade. En enda träff, ett enda mål, och argentinarna fick gå hem utan pokalen. Messi och sällskap hade tagit sig hela vägen – men i allra sista matchen räckte det inte.
+En turnering som gett oss mål, dramatik och mer kryss än en svensk påsk – avgjord med ett enda mål. Jag har sett värre. Men jag har också sett vackrare.
 
-Jag ska inte säga att Spanien inte förtjänade det. De har spelat vacker, kontrollerad fotboll hela turneringen. Passningstempot, rörligheten, den tekniska elegansen – det är fotboll som får en gammal journalist att sucka av välbehag.
+Argentina kämpade. De hade kört över Algeriet, Österrike, Egypten och England på vägen hit. Men mot Spaniens passningsspel stod de till slut handfallna. Det är därför vi älskar fotboll. Det räcker inte med stjärnor – du behöver ett system. Det visste Bajen 1971. Det vet Spanien 2026.
 
-Men hjärtat låg hos Argentina. Det gör det alltid.
+**Norge–England 1–2** i tidigare slutspel – och jag ska inte låtsas att det inte svider. Håland och grabbarna kämpade tappert. Pojken pressade, sprang, störde. Men England var vassare den dagen. Jag behöver inte analysera det mer. Det gör ont nog som det är.
 
-Det finns något vackert i det – att komma så nära och ändå falla. Det är därför vi älskar fotboll.
+*(Lasse frågade varför jag fortfarande hade Norges tröja på vid frukost. Jag sa att det var närmast till hands. Han såg inte övertygad ut.)*
+
+Sverige åkte ut mot Frankrike, 0–3. Hjärtat gör ont. Men det hade aldrig hänt 1994. Då hade Brolin sprungit dem av planen i minut tolv.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma delar ledningen med 166 rätt av 369.** Imponerande. Riktigt imponerande. De tippade ihop sig till toppen och vägrar flytta sig. Respekt, flickor.
+Ledningen i tipset är tight. **Mollie och Wilma delar på topplatsen med 166 rätt av 369.** Det är ett riktigt gott resultat och de ska ha all heder för det. Skarp magkänsla hela vägen.
 
-**Andreas1** är bäste man med 159 – tre poäng bakom ledarna. Nästan där. *Nästan.*
+Sedan följer **Andreas1 på 159**, **Caroline och Anna på 157** och ett tätt gäng fram till mitten.
 
-Och nu till **J Nilsson** – vår Johan – som sitter på 132 rätt av 369. Det är inte toppskiktet, det ska vi inte låtsas som. Men Johan har haft en turnering som liknar ett Bajenmöte på bortaplan: ofta rätt tanke, ofta fel resultat. Han tippade Spanien vinna finalen. Det stämde. Han såg det ingen annan såg när det begav sig.
+Längst ner hittar vi **Andreas2 med 121 rätt**. Kär vän, vad hände? Jag säger inte att jag har lösningen. Men...
 
-Johan hade fel på vägen dit. Men på ett väldigt genomtänkt sätt.
+---
 
-**Heimbrand** på 130 och **Andreas2** på 121 får dela på årets tröstpris. Tappra insatser, båda två. Fotboll spelas av människor – och tips tydligen också.
+## Johan – J Nilsson – 132 rätt
+
+Johan. Hjärtat mitt.
+
+132 rätt av 369 är inte en siffra som sjunger. Men jag har följt Johans rad och jag *vet* att han förstår fotboll. Problemen sitter i kryssen – han undviker dem som pesten. Varje gång ett X smög in bakvägen var Johan övertygad om ettan. Det är inte feghet. Det är övertro på fotbollens rättvisa. Och fotboll är sällan rättvist.
+
+Tanken var rätt, Johan. Resultaten lite mindre så.
 
 ---
 
 ## Brittans fundering
 
-Norge åkte ut tidigare än vad mitt hjärta orkade med. Men **Norge–Senegal 3–2** var en av turneringens bästa matcher. Håland var... ja. Han var Håland. Stor. Blond. Kraftfull.
+En turnering tar slut. Spanien lyfter pokalen. Marocko överraskade. Norge drömde. Sverige kämpade.
 
-Jag läste om de där glasögonreklamerna igen i morse. Det är för att jag jämför bågar. Det är ingen annan anledning.
+Och någonstans i Farsta sitter en pensionerad sportjournalist med kattungar i knäet och tänker på en sommar 1994 då allting var möjligt och Kennet Andersson nickade Sverige till brons.
 
-Lasse höll inte med. Han har haft fel förr.
+Det finns något vackert i det.
 
 ---
 
-## Slutord från Farsta
+*Ta hand om er. Fotboll är livet. Bajen är bäst.*
 
-Spanien är världsmästare 2026. En fin turné. Men nästa gång Sverige är med – och det *kommer* en nästa gång – ska vi gå hela vägen.
-
-Bajen hade gjort det snyggare.
-
-Ha det gott, allihop. 🟢⚫
-
-*– Brittan*
+**– Brittan, Farsta**
