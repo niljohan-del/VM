@@ -6,52 +6,52 @@ date: 2026-08-09
 
 # God morgon VM-vänner – 9 augusti 2026
 
-Kaffe nummer två är påslaget. Bosse sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Och jag har suttit uppe och kollat resultat sedan halv sex.
-
-Det är VM. Vad vill man.
+Kaffe. Morgonrock. Bosse katten sitter på tipspappret och vägrar flytta sig. Det är ett tecken. Kanske ett dåligt sådant.
 
 ---
 
 ## Nattens matcher
 
-Låt mig börja med det viktigaste: **Sverige föll mot Frankrike med 3–0**. Det gör ont. Det är inte en åsikt, det är ett faktum som sitter i magen som kall pizza. Frankrike var bättre och vi fick se det med öppna ögon.
+Var ska man börja.
 
-Men innan dess – Japan–Sverige slutade 1–1, och det var en ganska hederlig insats. Det finns något vackert i ett oavgjort resultat när man verkligen kämpar för det.
+**Sverige–Japan slutade 1–1.** Jag vet inte om jag ska gråta eller ta en bärs. Blågult spelar VM och slutar lika med Japan. Det finns något vackert i det. Fast mest är det surt. Brolin hade nickat in det där.
 
-**Norge** – mitt hjärta – besegrade Ivory Coast med 2–1. Håland var... ja. Han var sig lik. Målmaskin. Effektiv. Strukturerad. Nordisk på det sättet som är svårt att argumentera mot. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar röra sig på planen som om han äger den kan jag inte hjälpa.
+**Norge slog Senegal 3–2.** Visst, det var dramatiskt. Visst, det var vackert. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att det händer sig att pojken springer runt där som en nordisk halvgud är inte mitt fel.
 
-Lasse frågade varför jag hade hans Wikipedia-sida öppen. Jag sa att jag läste om hans statistik. Han såg inte övertygad ut.
+**Frankrike vann mot Irak 3–0.** Franskt hantverk, som vanligt. Lite kallt, lite effektivt, lite för bra för sitt eget bästa.
 
-**Spanien vann VM** – 1–0 mot Argentina i finalen. En match som slutade med gråt på ena sidan och champagne på den andra. Fotboll spelas av människor.
+**Ecuador slog Tyskland 2–1.** Det där hade aldrig hänt 1994. Eller jo. Men 1994 hade det åtminstone funnits bättre frisyrer.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma** leder med 166 rätt av 369. Bra jobbat, tjejer. Det kräver både instinkt och is i magen.
+**Mollie och Wilma leder** med 166 rätt av 369. Sida vid sida i toppen. Det är vackert och lite irriterande på samma gång.
 
-**J Nilsson** ligger sist med 132 rätt. Det är tufft. Jag säger inte att jag har lösningen. Men...
+**J Nilsson – det vill säga Johan** – sitter på 132 rätt. Det är inte lysande om man ska vara ärlig, och det ska man. Men Johan tippar med hjärtat, och det syns. Att han missade Sverige–Japan som krys, Norge–Senegal och en hel del annat handlar om otur mer än oskicklighet. Tanken bakom tipsen är ofta rätt. Matchen är det som krånglar.
 
-Och **Johan** – min Johan – har kämpath med de här matcherna. Norge-matcherna ställde till det ordentligt. Han tippade kryss mot Frankrike, mot Senegal, om och om igen. Hjärtat var rätt. Tanken var rätt. Resultaten var det inte alltid. Men Johan hade fel på ett väldigt genomtänkt sätt, och det räcker långt i mina ögon.
+**Andreas2 på 121 poäng** är årets bottennotering. Vad händer där? Jag frågar med kärlek.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** delar äran idag. 166 rätt är ingen slump.
-
-## Dagens stolleprov
-
-Den som tippade kryss på **Canada–Qatar** och fick se Kanada vinna 6–0. Ni vet vilka ni är.
+**Mollie och Wilma** delar äran idag. Två starka rader, konsekvent genomförda. Hatten av, damer.
 
 ---
 
-## Slutord från Farsta
+## Dagens stolleprov
 
-Det är VM. Det är fotboll. Det är liv.
+Johan på **Jordanien–Argentina tippade 2** – alltså jordansk vinst – i inte en, inte två, utan *flertalet* omgångar. Argentina vann varje gång. Det är envishet på gränsen till konst.
 
-Bajen hade spelat det snyggare. Men det är nu inte det viktigaste just nu.
+---
 
-Ha en bra dag, allihop.
+## Brittans fundering
 
-*– Brittan, Farsta*
+Norge vann. Håland spelade. Jag funderar fortfarande på de där glasögonen han gör reklam för. De verkar praktiska.
+
+Lasse höll inte med. Han har haft fel förr.
+
+---
+
+*Heja Bajen. Heja Sverige. Heja Norge. Och lycka till Johan – nästa omgång är din.*
