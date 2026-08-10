@@ -6,46 +6,52 @@ date: 2026-08-10
 
 # God morgon VM-vänner – 10 augusti 2026!
 
-Kaffe nummer två är påfyllt, Bosse katten har lagt sig på fjärrkontrollen igen och Lasse sover fortfarande. Det är måndag, det är sommar, och det har spelats VM-fotboll hela natten. Livet kunde vara värre.
+Kaffe nummer två. Bosse katten sitter i fönstret och stirrar på en duva med samma koncentration som Ravelli hade inför en straff. Lasse sover fortfarande. Det är måndag. Eller vad det nu är. Under VM tappar jag bort veckodagarna.
+
+Det spelar ingen roll. Det är fotboll. Det räcker.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det viktigaste: **Sverige–Japan slutade 1–1**. Okej. Jag andas. Det är ett kryss, inte en katastrof. Men vi hade hoppats på mer, och det vet vi alla. Åtminstone bär vi oss bättre åt än på bronstiden 1994 – fast då hade vi Brolin och Dahlin, och det är svårt att slå.
+**Sverige 5–1 mot Tunisien.** Ja, du läste rätt. Fem mål. Jag satt med kaffet och skrek så högt att Bosse föll ner från fönsterbrädan. Förlåt, Bosse. Det var värt det. Det här var riktig fotboll – framåt, modigt, lustfyllt. Det påminde mig lite om sommaren 1994 när Martin Dahlin dansade sig förbi försvar som om de stod stilla. Inte lika vackert kanske. Men andan var densamma.
 
-**Norge** vann mot Senegal med 3–2. Jag tittar på Norge för fotbollens skull, det vet ni. Att en viss lång blond pojke med bra glasögon råkar spela i laget kan jag inte hjälpa. Lasse frågade varför jag googlade de där bågarna igen. Jag sa att jag jämförde modeller. Han gick ut i köket.
+**Norge slog Senegal 3–2.** Jag tittade. Naturligtvis tittade jag. Jag tittar alltid på Norge. För fotbollens skull. Att Håland springer som en ångmaskin med ansiktet på en vikingahövding är helt irrelevant. Lasse frågade varför jag hade bänkat mig så nära TV:n. Jag sa att det var för att se taktiken bättre. Han såg inte övertygad ut.
 
-**Spanien** gick vidare och slog Argentina i finalen med 1–0. Det är fotboll. Det är vackert och det gör ont på samma gång. Lite som att vara Bajensupporter, faktiskt.
-
-**Frankrike** åkte ur mot England med 4–6. Den matchen var mer mål än taktik. Bra show, men lite väl kaotisk för min smak. Bajen hade gjort det snyggare.
+**Spanien–Argentina i finalen: 1–0.** Det är vad det är. Spanskt tålamod mötte argentinsk hunger. Det räckte med ett mål. Det finns något vackert i det. Ont gör det ändå.
 
 ---
 
 ## Tipskollen
 
-I toppen delar **Mollie** och **Wilma** ledningen med hela **166 rätt av 369**. Imponerande. Riktigt imponerande. Hatten av, damer.
+Toppen styrs av **Mollie och Wilma** på solida **166 rätt av 369**. Stabilt. Respektabelt. Jag hör av mig till er om ni behöver jobb som sportjournalister.
 
-**J Nilsson** – det vill säga vår käre Johan – ligger på **132 rätt**. Det är inte toppen av listan, det ska vi inte låtsas om. Men Johan tippade Norge rätt, han såg Spaniens väg framåt, och han hade känslan för flera av de svårare matcherna. Resultaten gör honom inte rättvisa. Det händer de bästa.
+Längst ner hittar vi **Andreas2 på 121 poäng**. Det är inte ett resultat. Det är en bekännelse.
 
-Längst ner i källaren hittar vi **Andreas2** med **121 rätt**. Det är ett heroiskt försök, Andreas. Nästa VM kanske?
+---
 
-**Heimbrand** med 130 och **Magnus** med 139 hade båda tillfällen att klättra men tycks ha fastnat i kryss-fällan. Feg fotboll skapar fega tips. Det är ett samband jag har sett förr.
+## Johans rad
+
+Stackars Johan. Kära Johan. **J Nilsson står på 132 rätt** och det syns i hans matchrad varför. Han tippade Norge–Frankrike till X. Det blev 2. Han tippade Japan–Sverige till X. Det blev X. Mannen är inte fel ute – han är bara lite tidigt ute, eller sent, beroende på hur man ser det. Tanken bakom tipsen är ofta rätt. Fotbollen är bara en idiot ibland.
+
+Johan hade fel. Men på ett väldigt genomtänkt sätt.
 
 ---
 
 ## Brittans fundering
 
-Det finns något vackert i ett VM som är så oförutsägbart att ingen – inte ens de bästa tipparna – kan hänga med. Det påminner mig om att fotboll spelas av människor. Inte algoritmer, inte kalkylblad.
+Sverige femma mot Tunisien. Norge tar poäng. Håland springer. Spanien vinner VM.
 
-Och Spanien är världsmästare. Det kan man säga om det. Bajen hade spelat finalen annorlunda. Men Bajen är Bajen, och det är ett grundvillkor.
+Det finns stora turneringar och det finns vackra turneringar. Den bästa fotbollen spelas inte alltid av det bästa laget. Det vet vi som sett Bajen hänga kvar när allt talade emot. Det är därför vi älskar fotboll.
 
 ---
 
 ## Slutord från Farsta
 
-Bosse katten är tillbaka i knät. Lasse har vaknat och frågar om jag "skriver om den där norrmannen igen."
+Bosse katten har återtagit sin plats i fönstret. Lasse vaknade och frågade hur det gick för Norge. Jag sa att de vann. Han nickade och gick och satte på kaffet.
 
-Jag svarade inte.
+Det är ett bra liv.
 
-Ha en fin måndag, VM-vänner. 🟢
+Håland – grattis förresten. Praktiska glasögon, det där.
+
+*/ Brittan*
