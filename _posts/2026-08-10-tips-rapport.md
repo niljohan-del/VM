@@ -4,54 +4,56 @@ title: "VM-tips 2026-08-10"
 date: 2026-08-10
 ---
 
-# God morgon VM-vänner – 10 augusti 2026!
+# VM-dagbok från Farsta – 10 augusti 2026
 
-Kaffe nummer två. Bosse katten sitter i fönstret och stirrar på en duva med samma koncentration som Ravelli hade inför en straff. Lasse sover fortfarande. Det är måndag. Eller vad det nu är. Under VM tappar jag bort veckodagarna.
+**God morgon, VM-vänner!**
 
-Det spelar ingen roll. Det är fotboll. Det räcker.
+---
+
+Jag heter Britt-Marie Andersson. Brittan. Pensionerad sportreporter, Farstabo, Bajens dotter till hjärtat och hustru till Lasse som aldrig håller med mig om någonting – men som ändå tittar på varenda match.
+
+Den här bloggen startade jag för att någon måste säga som det är. Ni får förvänta er passion, syrlighet, fotbollsromantik och ärlig tipskoll varje morgon. Kaffe i handen, Bosse i knät, sanning på bordet.
+
+Nu kör vi.
 
 ---
 
 ## Nattens matcher
 
-**Sverige 5–1 mot Tunisien.** Ja, du läste rätt. Fem mål. Jag satt med kaffet och skrek så högt att Bosse föll ner från fönsterbrädan. Förlåt, Bosse. Det var värt det. Det här var riktig fotboll – framåt, modigt, lustfyllt. Det påminde mig lite om sommaren 1994 när Martin Dahlin dansade sig förbi försvar som om de stod stilla. Inte lika vackert kanske. Men andan var densamma.
+Sverige. Mina älskade blågula. 5–1 mot Tunisien i gruppspelet – det sjöng om det i hjärtat. Så kom Japan och svarade med 1–1 i nästa omgång. Sedan Frankrike med sina tre mål och ett nollresultat mot oss. Det är det där som är fotboll. Upp och ner och upp igen och sedan rakt ner i källaren.
 
-**Norge slog Senegal 3–2.** Jag tittade. Naturligtvis tittade jag. Jag tittar alltid på Norge. För fotbollens skull. Att Håland springer som en ångmaskin med ansiktet på en vikingahövding är helt irrelevant. Lasse frågade varför jag hade bänkat mig så nära TV:n. Jag sa att det var för att se taktiken bättre. Han såg inte övertygad ut.
+Norge slog Frankrike! Ja, ni läste rätt. 1–0 i ett dramatiskt möte och sedan en storseger mot Senegal med 3–2. Det var vackert. Det var nordiskt. Håland sprang som en vikingahövding med vinden i håret. Jag tittade av rent fotbollsliga skäl, det vill jag understryka.
 
-**Spanien–Argentina i finalen: 1–0.** Det är vad det är. Spanskt tålamod mötte argentinsk hunger. Det räckte med ett mål. Det finns något vackert i det. Ont gör det ändå.
+Lasse frågade varför jag hade Norges matchprotokoll uppslaget vid frukostbordet. Jag sa att jag jämförde taktiska formationer. Han såg inte övertygad ut.
 
 ---
 
 ## Tipskollen
 
-Toppen styrs av **Mollie och Wilma** på solida **166 rätt av 369**. Stabilt. Respektabelt. Jag hör av mig till er om ni behöver jobb som sportjournalister.
+**Mollie och Wilma delar ledningen med 166 poäng av 369.** Det är imponerande. Korrekt. Värdigt beröm.
 
-Längst ner hittar vi **Andreas2 på 121 poäng**. Det är inte ett resultat. Det är en bekännelse.
+**Andreas1 på 159**, Caroline och Anna på 157. Tabellen andas jämnhet och förtjänad kamp.
+
+Längst ner hittar vi **Andreas2 på 121**. Jag säger ingenting. Jag behöver inte säga någonting. Siffrorna talar.
 
 ---
 
-## Johans rad
+## Johans rad – J Nilsson, 132 poäng
 
-Stackars Johan. Kära Johan. **J Nilsson står på 132 rätt** och det syns i hans matchrad varför. Han tippade Norge–Frankrike till X. Det blev 2. Han tippade Japan–Sverige till X. Det blev X. Mannen är inte fel ute – han är bara lite tidigt ute, eller sent, beroende på hur man ser det. Tanken bakom tipsen är ofta rätt. Fotbollen är bara en idiot ibland.
+Johan. Gubben min. 132 poäng är inte strålande på papper, det medger jag. Men Johan tippade rätt på saker som ingen annan vågade tro på. Han var inne på rätt tanke mot Australien. Han såg Uzbeikstan–Colombia korrekt när andra blundade.
 
-Johan hade fel. Men på ett väldigt genomtänkt sätt.
+Resultatmässigt haltar det. Men fotbollsmässigt? Johan har rätt instinkter. Det är bara utfallen som inte hängt med. Det händer de bästa. Fråga Ravelli efter straffarna mot Rumänien 1994.
 
 ---
 
 ## Brittans fundering
 
-Sverige femma mot Tunisien. Norge tar poäng. Håland springer. Spanien vinner VM.
+Det finns en sorts skönhet i att ha fel med övertygelse. Det är bättre än att ha rätt av slentrian.
 
-Det finns stora turneringar och det finns vackra turneringar. Den bästa fotbollen spelas inte alltid av det bästa laget. Det vet vi som sett Bajen hänga kvar när allt talade emot. Det är därför vi älskar fotboll.
+Bajen hade aldrig tippat kryss av feghet.
 
----
+Lasse höll inte med. Han har haft fel förr.
 
-## Slutord från Farsta
+*Bosse katten sov igenom hela tipsdiskussionen. Det säger ändå något.*
 
-Bosse katten har återtagit sin plats i fönstret. Lasse vaknade och frågade hur det gick för Norge. Jag sa att de vann. Han nickade och gick och satte på kaffet.
-
-Det är ett bra liv.
-
-Håland – grattis förresten. Praktiska glasögon, det där.
-
-*/ Brittan*
+**Heja Sverige. Heja Norge. Och alltid – heja Bajen.**
