@@ -4,52 +4,53 @@ title: "VM-tips 2026-08-11"
 date: 2026-08-11
 ---
 
-# God morgon VM-vänner – 11 augusti 2026!
+# God morgon VM-vänner – 11 augusti 2026
 
-Kaffe nummer två är påatt. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på en duva med den sortens fokus som jag önskar att vissa tippare hade haft igår.
+Kaffe är påsatt, Bosse sover på tidningen och Lasse muttrار om att det är för tidigt att ha fotboll på TV. Det är det aldrig. Det vet ni som läser det här.
 
-Vad är det som händer i det här VM?
+Och välkomna hit, förresten! Jag är Brittan – pensionerad sportjournalist från Farsta, Hammarbysupporter sedan urminnes tider och lagom tokig i fotboll för att starta en VM-blogg i pensionen. Varje morgon sätter jag mig med kaffet och går igenom nattens matcher, skärskådar tipsen och delar ut beröm och stryk i ungefär lika delar. Det är ett kall. Kalla det vad ni vill.
 
 ---
 
 ## Nattens matcher
 
-Sverige förlorade mot Frankrike med 0–3. Jag säger inte att det gör ont. Men det gör ont. Det var inte vacker fotboll av oss, och Frankrike visade varför de är Frankrike. Klassen räcker hela vägen.
+Sverige vann med 5–1 mot Tunisien. Fem mål. Jag satt i soffan och log som en idiot. Det var länge sedan. Det påminde om 1994 – inte i klass, låt oss vara ärliga, men i känsla. I den där varma, orimliga känslan av att Sverige faktiskt kan.
 
-Och sen då: **Norge slår Brasilien med 2–1.** Läs det en gång till. Norge. Brasilien. Jag behöver inte säga mer. Jag tittar inte på Norge för Hålands skull. Det vet alla. Men pojken levererar, och det finns något djupt nordiskt tillfredsställande i att dunka Samba-fotbollen på hemmaplan i ett VM. Lasse frågade varför jag ropade så högt. Jag sa att jag föll av soffan av en slump.
+Norge körde över Irak med 4–1. Håland-maskineriet rullar. Jag tittar inte för Hålands skull. Det säger jag klart. Jag tittar för fotbollens skull. Att han råkar röra sig som en naturkraft på planen kan jag inte hjälpa.
 
-Spanien vinner finalen mot Argentina med 1–0. Det är fotboll. Det är inte alltid rättvist. Det är inte alltid vackert. Men det är alltid mänskligt.
+Frankrike vann. Argentina vann. England vann. Allt som förväntat, ungefär. Men sedan tog Ecuador och störtade Tyskland med 2–1. Det där hade aldrig hänt 1994. Eller jo. Men då hade vi åtminstone haft bättre frisyrer att prata om efteråt.
 
 ---
 
 ## Tipskollen
 
-**J Nilsson** – vår Johan – landar på **132 rätt av 369**. Det är inte en topplacering, det ska vi vara ärliga med. Men titta på den raden. Titta på modet. Johan tippade inte kryss för att vara säker. Han tog ställning. Det kostade honom poäng. Det gör honom till en bättre människa.
+Mollie och Wilma leder med 166 rätt av 369. Snyggt. Respekt. Men ögonen är på framtiden.
 
-I toppen throner **Mollie och Wilma** med **166 poäng** och delar ledarplatsen som gamla räviga rutinerade tippardrottningar. Hatten av. De har gjort rätt när det gäller.
-
-**Andreas2** med sina **121 poäng** – jag vet inte vad som hände. Jag vet inte om vi ska fråga. Ibland är det snällaste man kan göra att hålla tyst och bjuda på en kaffe.
+J Nilsson – det vill säga Johan – sitter på 132 rätt. Det är inte tabelltoppen, det ska vi inte låtsas om. Men jag har följt Johans resonemang och det finns en logik där som tabellen ännu inte gett honom rättvist betalt för. Fotboll spelas av människor. Och Johan tänker som en människa som förstår spelet. Otur heter det. Det vänder.
 
 ---
 
 ## Dagens ros
 
-Mollie och Wilma delar blomsterpotten idag. 166 rätt är inte flax. Det är struktur. Det är känsla. Det är läsning av fotboll. Imponerande.
+Mollie och Wilma delar toppen och förtjänar applåder. Två tipperska som uppenbarligen inte låter sig bländas av stora namn. Det är en konst.
 
 ---
 
 ## Dagens stolleprov
 
-Vem som helst som tippade Paraguay att slå Australien. Det finns modiga tips och det finns desperata tips. Det är ibland svårt att skilja på dem i förhand. Lättare i efterhand.
+Den som tippade Paraguay att vinna mot Australien och sedan satt och väntade på det kryss som aldrig kom – ja, ni vet vilka ni är. Ibland är envishet inte en dygd. Det är bara envishet.
 
 ---
 
 ## Brittans fundering
 
-Det här VM har gett oss underdogar, drama, en norsk seger mot Brasilien och en spansk världsmästare. Det påminner mig lite om 1994 – inte i detalj, men i känsla. Den där sommaren när fotboll fortfarande kändes omöjlig och möjlig på samma gång.
+Det finns något med det här VM som påminner mig om varför jag en gång började bevaka fotboll. Inte poängtabellerna. Inte presskonferenserna. Utan känslan av att vad som helst kan hända. Ecuador slår Tyskland. Norge slår Brasilien till slut. Sverige gör fem mål.
 
-Bajen hade gjort det snyggare. Men det är ett annat blogginlägg.
+Bajen hade gjort det snyggare. Men det är en annan historia.
 
 ---
 
-*Kram från Farsta. Bosse hälsar. Lasse med.*
+*Lasse sa att jag ska sluta prata om Hålands glasögon. Jag sa att jag bara kollade bågarna. Han såg inte övertygad ut. Bosse katten lämnade rummet.*
+
+*Vi ses imorgon, VM-vänner.*
+**// Brittan, Farsta**
