@@ -4,61 +4,48 @@ title: "VM-tips 2026-08-12"
 date: 2026-08-12
 ---
 
-# God morgon VM-vänner – 12 augusti 2026!
+# God morgon, VM-vänner! – 12 augusti 2026
 
-Kaffe kokar. Bosse katten sitter på tipsblocket. Lasse sover fortfarande. Och jag? Jag har suttit uppe sedan halv fem och stirrat på resultat som fått mig att skaka på huvudet, le som en idiot och muttra lite om 1994.
+*Välkommen till min blogg – jag som skriver den heter Britt-Marie Andersson, kallad Brittan, pensionerad sportjournalist från Farsta och bajare i märg och ben. Jag har bevakat svensk fotboll i decennier, älskat varje sekund, inklusive de som gjort ont. Det är många. Nu är det VM och jag tänkte att om jag ändå sitter med kaffet och skriker åt TV:n varje morgon kan jag lika gärna skriva ner det. Lasse tyckte det var en bra idé. Bosse katten sa ingenting men han verkar nyfiken. Välkommen hit – det blir varmt, syrligt och ärligt.*
 
-Det är VM. Det är morgon i Farsta. Och det är dags för en liten sanningens stund.
+---
+
+Kaffe är gjort. Lasse sover. Bosse katten sitter i fönstret och stirrar på en duva med ett uttryck som säger att han vet precis vad han vill göra men saknar energin.
+
+Precis som tyska försvaret mot Ecuador.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det uppenbara: **Sverige–Japan** slutade 1–1. Det är inte en katastrof, men det är heller inte 1994. Martin Dahlin hade inte accepterat ett kryss mot Japan. Det säger jag.
+**Sverige vann mot Tunisien med 5–1.** Jag ska inte låtsas att det inte kändes. Det kändes. Väldigt mycket. Sedan fick vi stryk av Nederländerna med 5–1 och sedan spelade vi 1–1 mot Japan och åkte ut. Det är fotboll. Det är också lite hjärtskärande. Men det finns något vackert i att ha varit med.
 
-**Norge slog Frankrike med 1–0** i gruppspelet. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken verkar ha sprungit in i den franska försvarslinjen som en lavin kan jag inte hjälpa. Lasse frågade varför jag log. Jag sa att det var vädret.
+**Norge slog Senegal 3–2** och fick stryk av Frankrike. Men de tog sig vidare. Håland spelade som en man besatt. Jag tittar inte på Norge för hans skull. Det vet ni. Men när han rusar in i straffområdet med det håret och de där... praktiska glasögonen han gör reklam för... Nä. Fotbollen. Jag tittar på fotbollen.
 
-**Spanien körde ut Uruguay 1–0**. Rent och snyggt. Det finns något vackert i det, när en stormakt levererar utan att skryta.
+**Ecuador slog ut Tyskland.** Säg det igen. Ecuador–Tyskland 2–1. Det där hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone hänt med bättre frisyrer.
 
-**Argentina fortsätter** som ett schweiziskt urverk. 3–0 mot Algeriet, sen vidare mot toppen. Bajen hade gjort det snyggare, men det är en annan diskussion.
+**Slutfinalen Spanien–Argentina** slutade 1–0 till Spanien. Argentina fick se sig besegrade i den allra sista matchen. Jag har sett värre. Men det är ändå bittert att se Messi-generationens arvtagare falla i finalen.
 
 ---
 
 ## Tipskollen
 
-Toppen hålls just nu av **Mollie och Wilma** – båda på **166 rätt av 369**. Respekt. Det är stabilt, konsekvent och irriterande välgjort.
+I toppen kämpar **Mollie och Wilma** om ledningen med 166 rätt vardera av 369. Det är ett gott hantverk. Respekt.
 
-Sen kommer **Andreas1 med 159**, **Caroline och Anna på 157**. Hedervärt sällskap.
+**J Nilsson – Johan** – min kära tipsvän – sitter på 132 rätt. Det är inte toppen. Det vet han. Men Johan tippade med hjärtat och en del av hans missar handlar om att han vågade ha åsikter. Det gör man inte alltid rätt av. Men man är alltid mer intressant att läsa.
 
-Och sedan – ack – **J Nilsson på 132**. Det är Johan. Min Johan.
-
-Johan har haft en rad som borde ha fungerat. Tanken var rätt. Känslan var rätt. Resultaten samarbetade bara inte. Det händer de bästa. Det händer Brolin. Det händer alla.
-
-Men jag noterar att Johan tippade **rätt på Uzbekistan–Colombia (2)** när andra zappade förbi. Det är fotbollsblick. Den köper man inte på rea.
-
----
-
-## Dagens ros
-
-**Mollie och Wilma** delar äran idag. Ni håller leden. Ni levererar. Hatten av.
-
----
-
-## Dagens stolleprov
-
-Den som tippade Paraguay att gå hela vägen ut ur gruppspelet med segrar – ni vet vilka ni är. Jag säger inte mer. Bosse katten lämnade rummet. Det säger ändå något.
+**Andreas2 landar på 121 rätt.** Sist i klassen. Det är djärvt på sitt eget sätt.
 
 ---
 
 ## Brittans fundering
 
-Det finns en anledning till att vi vakar till halv fem för att se Uzbekistan möta Colombia. Det handlar inte om statistik. Det handlar inte om form eller tabellplacering.
+Jag tänker på Kenta. På Söderstadion. På gamla derbyn där hela Söder vibrerade. Fotboll är inte bara resultat – det är gemenskap, lidande och kärlek i samma andetag.
 
-Det handlar om att fotboll är det enda spelet där vem som helst kan slå vem som helst. Det visste vi 1994. Det vet vi nu.
-
-Lasse håller inte med. Han har haft fel förr.
+Det är därför vi älskar fotboll.
 
 ---
 
-*Brittan – pensionerad sportreporter, Bajens eviga dotter, Farstaborna*
-*Hälsningar från soffan med kaffemuggen och Bosse i knät*
+*Hej då från Farsta. Bosse katten har nu bestämt sig för att lägga sig på fjärrkontrollen. Lasse ska nog snart vakna och ha fel om något.*
+
+**– Brittan**
