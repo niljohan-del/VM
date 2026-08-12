@@ -6,52 +6,59 @@ date: 2026-08-12
 
 # God morgon VM-vänner – 12 augusti 2026!
 
-Kaffe på bordet, Bosse katten i fönstret och Lasse som redan muttrар om att jag ska sluta kolla telefonen vid frukost. Livet är normalt i Farsta.
+Kaffe kokar. Bosse katten sitter på tipsblocket. Lasse sover fortfarande. Och jag? Jag har suttit uppe sedan halv fem och stirrat på resultat som fått mig att skaka på huvudet, le som en idiot och muttra lite om 1994.
 
-Men fotbollen? Fotbollen är allt annat än normal just nu.
+Det är VM. Det är morgon i Farsta. Och det är dags för en liten sanningens stund.
 
 ---
 
 ## Nattens matcher
 
-Sverige–Japan slutade 1–1. Jag ska inte låtsas som att det är ett hissnande resultat, men det finns något vackert i att Japan tvingar oss att jobba. De spelar en fotboll som påminner om att det inte räcker att ha rätt tröjfärg. Hade vi haft lite mer Kenta-mentalitet i anfallet hade det blivit ett annat läge.
+Låt oss börja med det uppenbara: **Sverige–Japan** slutade 1–1. Det är inte en katastrof, men det är heller inte 1994. Martin Dahlin hade inte accepterat ett kryss mot Japan. Det säger jag.
 
-Norge krossade Irак med 4–1. Fyra mål. Fyra. Håland var väl... produktiv, som han brukar vara. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar springa som en artillerigranат kan jag inte hjälpa. Lasse frågade varför jag pausade reprisen tre gånger. Jag sa att jag kontrollerade offsideläget.
+**Norge slog Frankrike med 1–0** i gruppspelet. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken verkar ha sprungit in i den franska försvarslinjen som en lavin kan jag inte hjälpa. Lasse frågade varför jag log. Jag sa att det var vädret.
 
-Frankrike–Senegal slutade 3–1. Vacker och välsmord maskin, Frankrike. Lite för välsmord om du frågar mig. Det saknas något rusigt. Men 1994 hade Brolin också retat sig på det franska spelet. En del saker förändras inte.
+**Spanien körde ut Uruguay 1–0**. Rent och snyggt. Det finns något vackert i det, när en stormakt levererar utan att skryta.
+
+**Argentina fortsätter** som ett schweiziskt urverk. 3–0 mot Algeriet, sen vidare mot toppen. Bajen hade gjort det snyggare, men det är en annan diskussion.
 
 ---
 
 ## Tipskollen
 
-I tabellen toppar **Mollie och Wilma** med 166 rätt av 369. Det är imponerande. Det är faktiskt väldigt imponerande. Grattis, tjejer – ni ser fotboll med öppna ögon.
+Toppen hålls just nu av **Mollie och Wilma** – båda på **166 rätt av 369**. Respekt. Det är stabilt, konsekvent och irriterande välgjort.
 
-Längst ner hittar vi **Andreas2 med 121 rätt**. Det är... ett resultat. Det är i alla fall ett resultat.
+Sen kommer **Andreas1 med 159**, **Caroline och Anna på 157**. Hedervärt sällskap.
+
+Och sedan – ack – **J Nilsson på 132**. Det är Johan. Min Johan.
+
+Johan har haft en rad som borde ha fungerat. Tanken var rätt. Känslan var rätt. Resultaten samarbetade bara inte. Det händer de bästa. Det händer Brolin. Det händer alla.
+
+Men jag noterar att Johan tippade **rätt på Uzbekistan–Colombia (2)** när andra zappade förbi. Det är fotbollsblick. Den köper man inte på rea.
 
 ---
 
 ## Dagens ros
 
-Johan – min kära J Nilsson – sitter på 132 rätt. Inte i toppen, nej. Men jag har läst igenom hans rad och det finns en logik där som jag respekterar. Han tippade rätt på USA–Paraguay, på Uzbekistan–Colombia och på Qatar–Schweiz. Det är inte enkla picks. Tanken är rätt. Det är otur och lite fotbollsgudarna som svikit honom, inte hjärnan.
-
-Johan hade fel på flera matcher. Men på ett väldigt genomtänkt sätt.
+**Mollie och Wilma** delar äran idag. Ni håller leden. Ni levererar. Hatten av.
 
 ---
 
 ## Dagens stolleprov
 
-Att tippa Paraguay att slå Australien och sedan se Australien vinna... ja. Det händer. Fotboll spelas av människor, inte kalkylblad.
+Den som tippade Paraguay att gå hela vägen ut ur gruppspelet med segrar – ni vet vilka ni är. Jag säger inte mer. Bosse katten lämnade rummet. Det säger ändå något.
 
 ---
 
 ## Brittans fundering
 
-Norge slår Irak. Sverige kryssar mot Japan. Och Spanien vinner till slut – precis som de alltid gör till slut.
+Det finns en anledning till att vi vakar till halv fem för att se Uzbekistan möta Colombia. Det handlar inte om statistik. Det handlar inte om form eller tabellplacering.
 
-Det påminner mig lite om Bajen. Man lider. Man tvivlar. Men man slutar aldrig tro.
+Det handlar om att fotboll är det enda spelet där vem som helst kan slå vem som helst. Det visste vi 1994. Det vet vi nu.
 
-Det är därför vi älskar fotboll.
+Lasse håller inte med. Han har haft fel förr.
 
 ---
 
-*Ha en fin dag, VM-vänner. Lasse håller inte med om att Norge förtjänade fyra mål. Han har haft fel förr.*
+*Brittan – pensionerad sportreporter, Bajens eviga dotter, Farstaborna*
+*Hälsningar från soffan med kaffemuggen och Bosse i knät*
