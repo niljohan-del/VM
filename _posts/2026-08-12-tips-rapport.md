@@ -4,62 +4,54 @@ title: "VM-tips 2026-08-12"
 date: 2026-08-12
 ---
 
-# God morgon VM-vänner! | 12 augusti 2026
+# God morgon VM-vänner – 12 augusti 2026!
 
-*— skrivet från köksbordet i Farsta, med tredje koppen kaffe och Bosse katten i knät*
+Kaffe på bordet, Bosse katten i fönstret och Lasse som redan muttrар om att jag ska sluta kolla telefonen vid frukost. Livet är normalt i Farsta.
 
-Innan jag sätter igång måste jag presentera mig. Jag heter Britt-Marie Andersson, kallas Brittan, bor i Farsta med Lasse och katten Bosse, och jag har bevakat svensk fotboll i mer år än jag tänker avslöja. Pensionerad sportjournalist. Bajensupporter sedan födseln. Har sett Söderstadion skaka och hjärtan brista mer gånger än jag kan räkna.
-
-Den här bloggen startade jag för att VM är för stort för att tiga om – och för att en grupp tippare behöver sin samvete. Välkommen. Du kommer att trivas här.
+Men fotbollen? Fotbollen är allt annat än normal just nu.
 
 ---
 
 ## Nattens matcher
 
-**Sverige–Tunisien 5–1.** Herregud. Det var som att se ett lag som faktiskt menar allvar. Fem mål. Jag grät lite. Det säger jag inte till Lasse.
+Sverige–Japan slutade 1–1. Jag ska inte låtsas som att det är ett hissnande resultat, men det finns något vackert i att Japan tvingar oss att jobba. De spelar en fotboll som påminner om att det inte räcker att ha rätt tröjfärg. Hade vi haft lite mer Kenta-mentalitet i anfallet hade det blivit ett annat läge.
 
-**Norge–Senegal 3–2.** Hjärtat slog lite extra. Håland var... ja. Praktisk. Effektiv. Man kan inte hjälpa att man tittar. Det är fotbollsskäl, alltså.
+Norge krossade Irак med 4–1. Fyra mål. Fyra. Håland var väl... produktiv, som han brukar vara. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar springa som en artillerigranат kan jag inte hjälpa. Lasse frågade varför jag pausade reprisen tre gånger. Jag sa att jag kontrollerade offsideläget.
 
-**Brasilien–Norge 1–2.** Stanna kvar. Läs igen. *Norge slog Brasilien.* Det finns något vackert i det som påminner om varför vi älskar fotboll.
-
-**Ecuador–Tyskland 2–1.** Schockmatch. Tyska försvarsspelet var så öppet att Bajen hade kunnat utnyttja det. Och det säger ändå något.
-
-**Frankrike–England 4–6.** Åtta mål. Ingen defensiv organisation, bara frenetisk framåtanda. Det är inte 1994. Men det är inte tråkigt heller.
+Frankrike–Senegal slutade 3–1. Vacker och välsmord maskin, Frankrike. Lite för välsmord om du frågar mig. Det saknas något rusigt. Men 1994 hade Brolin också retat sig på det franska spelet. En del saker förändras inte.
 
 ---
 
 ## Tipskollen
 
-Ledarna heter **Mollie och Wilma** med 166 rätt av 369. Välförtjänt. De läser spelet med is i magen.
+I tabellen toppar **Mollie och Wilma** med 166 rätt av 369. Det är imponerande. Det är faktiskt väldigt imponerande. Grattis, tjejer – ni ser fotboll med öppna ögon.
 
-Sedan trängs ett gäng runt 155–160: Andreas, Caroline, Anna, Mats, Norman, Samuel L. Respektabelt sällskap.
-
-Längst ner hittar vi **Andreas2 med 121 rätt**. Det är inte ett misstag. Det är ett livsverk av felbedömningar. Jag säger det med kärlek.
+Längst ner hittar vi **Andreas2 med 121 rätt**. Det är... ett resultat. Det är i alla fall ett resultat.
 
 ---
 
 ## Dagens ros
 
-Jag har kikat på **Johan Nilssons** rad. Han sitter på 132 rätt och det är, ska vi säga, *mitt i fältet*. Men Johan – det märks att du *tänker*. Mexiko rätt. USA rätt. Flera Argentina-matcher stämmer som ett ur. Tanken är rätt, Johan. Olyckorna är matematikens fel, inte fotbollshjärtats.
+Johan – min kära J Nilsson – sitter på 132 rätt. Inte i toppen, nej. Men jag har läst igenom hans rad och det finns en logik där som jag respekterar. Han tippade rätt på USA–Paraguay, på Uzbekistan–Colombia och på Qatar–Schweiz. Det är inte enkla picks. Tanken är rätt. Det är otur och lite fotbollsgudarna som svikit honom, inte hjärnan.
+
+Johan hade fel på flera matcher. Men på ett väldigt genomtänkt sätt.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2**. 121 av 369. Det är 33 procent. En slantsingel ger 33 procent. Jag säger inte mer. Jo, ett sista: han tippade Paraguay att slå Australien. Paraguay–Australien slutade 0–0. Det var inte nära.
+Att tippa Paraguay att slå Australien och sedan se Australien vinna... ja. Det händer. Fotboll spelas av människor, inte kalkylblad.
 
 ---
 
 ## Brittans fundering
 
-Norge slog Brasilien. Sverige gjorde fem mål. Håland existerar.
+Norge slår Irak. Sverige kryssar mot Japan. Och Spanien vinner till slut – precis som de alltid gör till slut.
 
-Det är en bra dag att vara nordisk.
+Det påminner mig lite om Bajen. Man lider. Man tvivlar. Men man slutar aldrig tro.
 
-Lasse frågade om jag ville ha mer kaffe. Jag sa att jag var för rörd för att svara.
+Det är därför vi älskar fotboll.
 
-**Ha det fint, VM-vänner. Vi ses imorgon — från Farsta, med kärlek och syrlighet i ungefär lika delar.**
+---
 
-*— Brittan*
-
-> *"Det finns större klubbar. Det finns rikare
+*Ha en fin dag, VM-vänner. Lasse håller inte med om att Norge förtjänade fyra mål. Han har haft fel förr.*
