@@ -4,9 +4,9 @@ title: "VM-tips 2026-08-13"
 date: 2026-08-13
 ---
 
-# God morgon VM-vänner – 13 augusti 2026!
+# God morgon VM-vänner! Torsdag den 13 augusti 2026 – och fotbollen sover aldrig
 
-Kaffe nummer två är påfyllt, Bosse katten sitter i fönstret och tittar misstänksamt på grannen, och Lasse sover fortfarande. Det är morgon i Farsta, och VM rullar på som ett tåg utan bromsar.
+Kaffe nummer två är hällt. Bosse katten sitter i fönstret och stirrar på en duva med den där intensiteten som påminner mig om Kenta framför mål. Lasse sover fortfarande. Han missar allt.
 
 ---
 
@@ -14,42 +14,56 @@ Kaffe nummer två är påfyllt, Bosse katten sitter i fönstret och tittar misst
 
 Var ska man börja?
 
-**Sverige mot Japan slutade 1–1.** Jag har sett värre. Men jag har också sett bättre. Det finns en otillfredsställd känsla i kroppen efter ett sånt kryssresultat – som när man köper en kanelbulle och den visar sig sakna kardemumma. Juridiskt en bulle. I realiteten en besvikelse.
+**Sverige–Frankrike slutade 0–3.** Jag säger inte att det var oväntat. Men det gjorde ont. Vi hade en fin turnering, grabbar. Det finns något vackert i att ha kommit så här långt, men mot Frankrike stod vi där som vanliga dödliga. Mbappé och kompisar visade varför de är favoriter.
 
-**Norge slog Senegal 3–2.** Tre mål. Vackert, energiskt, målmedvetet. Precis som man förväntar sig av ett lag som liksom bär fjällen på ryggen in på planen. Att Håland verkar vara i strålande form gör inte saken sämre. Det är fotboll för fotbollens skull. Det är därför vi älskar fotboll.
+Och så finalen då. **Spanien–Argentina 1–0.** Det enda rätta utfallet, om man frågar mig. Spanien spelade fotboll som Bajen spelar på sina allra bästa dagar – korta pass, rörelse, intelligens. Argentina kämpade. Men kämpa räcker inte alltid mot vacker fotboll. Det är därför vi älskar fotboll.
 
-**Spanien finalvann mot Argentina med 1–0.** Tekniskt överlägset. Vackert på ett kliniskt sätt. Bajen hade gjort det snyggare, men okej.
+**Frankrike–England 4–6** i semifinalen var ett under av galenskapens kategori. Åtta mål. Ravelli hade fått en hjärtattack.
 
-**Frankrike–England i den stora uppgörelsen slutade 4–6.** Läs det igen. 4–6. England vinner med sex mål mot Frankrike. Det hade aldrig hänt 1994. Inte på det viset. Då handlade det om känsla, dramatik, frisyrer. Det här var nästan för mycket.
+Och **Norge** – mina kära norska vänner – åkte ut mot England. 1–2. Det svider. Men de gav järnet hela vägen. Håland kämpade som en björn. En vältränad, fotbollsklok, ovanligt välseende björn. Jag kollar fortfarande på de där glasögonen. Det är för att de verkar praktiska.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma leder tabellen med 166 poäng** och det är väl förtjänat. De tippar modigt och träffsäkert. Hatten av.
+369 matcher inlämnade och nu är dammet nästan lagt. Här är läget:
 
-**Johan Nilsson** – käre Johan – ligger på 132 poäng. Det är inte botten, men det är heller inte toppen. Johan tippade X på Norge–Senegal. Norge vann med 3–2. Johan tippade X på Frankrike–Irak. Frankrike vann 3–0. Mönstret börjar skönjas: Johan älskar kryss som fotboll älskar regn. Ofta, lite oväntat, och inte alltid välkommet.
+**Mollie och Wilma leder** suveränt med **166 rätt** var. Gemensam ledning. Imponerande. Jag vet inte vem ni är, men ni har öga för fotboll.
 
-Men Johan hade rätt om Mexiko–Sydafrika i inledningsomgången. Det ska sägas. Tanken var rätt, tidslinjen komplicerad.
+**Andreas1** på tredje plats med 159. Stabil som en centerhalf.
+
+Och så **J Nilsson – Johan** – på 132 rätt. Sist bland de som räknas. Jag ska vara ärlig: det ser tufft ut på pappret. Men Johan, käre Johan – du tippade med *hjärtat*. Det är inte alltid det räcker. Men det är alltid det som betyder mest.
+
+---
+
+## Dagens ros
+
+Mollie och Wilma. Delade på kransen. Ni kan fotboll, tjejer.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2 med 121 poäng** är en gåta insvept i ett mysterium. 369 matcher spelade, 121 rätt. Det är matematiskt möjligt. Det är också lite imponerande på sitt vis. Man behöver inte vara Einstein – men lite Einstein hade inte skadat.
+**Heimbrand** på 130 och **Andreas2** på 121. Andreas2, vad hände? Det är fler fel än rätt. Jag har sett värre. Men inte många.
 
 ---
 
 ## Brittans fundering
 
-Det finns något vackert i ett VM som bjuder på kaos, kryss och comebacks. Fotboll spelas av människor. Och människor är oförutsägbara.
+Spanien vann VM. Fotbollen vann också. Det är inte alltid samma sak, men den här gången var det det.
 
-Norge är fortfarande kvar. Håland spelar. Jag tittar på fotbollen.
-
-Det råkar bara vara att han ser ut som en vikingahövding. Det kan jag inte hjälpa.
+1994 vann vi brons. Vi hade Brolin, Dahlin, Kennet. Den sommaren smakade allt lite bättre. Det gör den här sommaren också, på sitt eget sätt.
 
 ---
 
-*Lasse frågade vem jag hejar på nu när Sverige kryssade. Jag sa Norge. Han såg inte förvånad ut. Bosse katten lämnade rummet. Det säger ändå något.*
+## Slutord från Farsta
 
-**Ha en fin dag, allihop. Bajen är bäst. Det är inte en åsikt.**
+Lasse vaknade precis. Frågade vem som vann VM. Jag sa Spanien. Han sa "vad bra" och gick och hällde kaffe.
+
+Bosse katten hade redan lämnat rummet. Det säger ändå något.
+
+Tack för den här sommaren, VM-vänner. Det finns bara ett Bajen. Men det finns bara ett VM heller.
+
+Vi ses 2030. 🖤💚
+
+*– Brittan, Farsta*
