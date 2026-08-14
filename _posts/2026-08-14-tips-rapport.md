@@ -4,44 +4,46 @@ title: "VM-tips 2026-08-14"
 date: 2026-08-14
 ---
 
-# God morgon VM-vänner! Fredag den 14 augusti 2026 – och vad en natt det var
+# 14 augusti 2026 – Spanien är mästare, Norge fick hjärtat krossat och J Nilsson gömmer sig i garderoben
 
-Det är fredag, allihopa. **FREDAG.** Solen kryper upp över Farsta, kaffet är färdigkokat, Bosse sitter i fönstret och stirrar på en duva med en intensitet som påminner mig om José Mourinho på presskonferens. Lasse sover fortfarande. Han missar allt.
+God morgon från Farsta, allihopa.
 
-Och det är fredag. Det förtjänar upprepas. Skål med en god öl ikväll – jag rekommenderar en välkyld **Norrlands Guld fatöl** om man vill hålla det nordiskt och ärligt. Precis som norsk fotboll.
+Kaffet är på. Bosse katten sitter i fönstret och stirrar på duvan som inte fattar att den borde flytta sig. Lasse sover fortfarande. Och jag har suttit uppe och tittat på det som bara kan beskrivas som ett VM-avslut med allt – hjärtskärande, storslaget och lite orättvist.
 
 ---
 
-## Nattens matcher – kort och syrligt
+## Finalen och semifinalerna
 
-Norge vann mot Ivory Coast med 2–1. Norge vann mot Senegal med 3–2. Sedan förlorade de mot Frankrike med 1–4, och mot England med 1–2. Det är ett VM som speglar livet: lysande stunder, sedan smärta. Håland spelade. Jag tittade. Det var för fotbollens skull. Det var absolut inte för att pojken springer som en välbyggd halvgud från Voss. Lasse frågade varför jag satt så nära teven. Jag sa att glasögonen behövde bytas.
+**Spanien–Argentina: 1–0.** Det är mästarna. Ett mål. Räcker. Så är det ibland med riktigt stor fotboll – den behöver inte skrika för att höras.
 
-Sverige gick ut med 5–1 mot Tunisien, 1–1 mot Japan, sedan 0–3 mot Frankrike och 5–1 mot Nederländerna **emot** oss. Det är fotboll. Det är lidande. Det är liv. Bajen hade spelat vackrare ut.
+Innan dess: **Frankrike–England: 4–6** i semifinal. Fyra–sex. Jag säger det igen. Fyra. Sex. Det hade aldrig hänt 1994. Eller jo, men då hade det åtminstone skett med bättre frisyrer.
 
-Spanien tog till slut hem turneringen med 1–0 mot Argentina i finalen. Ordning och reda. Lite trist. Men man behöver inte vara Einstein för att förstå att Spanien är bra på det här.
+Och **Norge–England: 1–2** i kvartsfinalen. Jag ska inte låtsas att det inte svider. Norge spelade vacker, rak, nordisk fotboll hela turneringen. Men England var kalla och effektiva. Håland kämpade som en viking i stormen och det räckte inte. Pojken lämnar turneringen med huvudet högt. Det gör ändå något med en.
 
 ---
 
 ## Tipskollen
 
-I topp: **Mollie och Wilma** delar första plats med 166 rätt av 369. Grattis, damer. Det är imponerande, och jag böjer mig.
+**Mollie och Wilma delar ledningen med 166 rätt av 369.** Respekt. Det är en imponerande rad.
 
-Längst ner: **Andreas2** med 121 poäng. Jag säger inte mer. Jag behöver inte.
+Men vi måste prata om **J Nilsson på 132 poäng.** Sist i ligan med god marginal. Johan – min Johan – hamnar på plats 25 av 27. Det är inte vackert skrivet, men sanningen har sällan vackra kläder på sig.
 
----
+Nu till saken: Johan tippade fel på Norge hela vägen. Han tippade kryss mot Frankrike, kryss mot Senegal, kryss hit och kryss dit. Johan – norrmännen spelar *framåt*. De kryxar inte. Det borde du ha känt i magen.
 
-## Johans rad – J Nilsson
-
-132 rätt. Inte tabelltoppen, nej. Men Johan – käre Johan – tippade med *hjärta*. Han såg saker andra inte vågade se. Han tippade Norge, han tippade Argentina, han höll fast vid sina övertygelser. Att utfallen inte alltid följde med är turnerings-VM:s fel, inte Johans. Resultatet blev inte som Johan trodde. Matchen borde däremot ha blivit det.
+Tanken bakom Johans tips är ofta rätt. Det är tajmingen som sviker honom. Det är som med Bajen i gamla derbyn – vi *visste* att vi var bättre. Det syntes bara inte alltid på tavlan.
 
 ---
 
-## Brittans fredagsfundering
+## Brittans fundering
 
-Det finns något vackert i ett VM som slår dig i ansiktet och ändå får dig att komma tillbaka varje morgon. Precis som Bajen. Man lider. Man älskar. Man fortsätter.
+Spanien är mästare. De vann utan att skräna, utan att gråta inför kameran, utan att göra spektakel av det hela. De spelade fotboll tills det var slut.
 
-Det är därför vi älskar fotboll.
+Det finns något vackert i det.
 
-Ha en god fredag, ta en öl, och kom ihåg: det finns bara ett Bajen.
+Jag saknar redan Norge i turneringen. Och Håland hade faktiskt riktigt fina glasögon på presskonferensen efteråt. Praktiska sådana. Jag har sneglat på de ramarna ett tag nu. Det är för att de verkar ergonomiska.
+
+Lasse höll inte med. Han har haft fel förr.
+
+Bajen hade gjort det snyggare.
 
 *– Brittan, Farsta*
