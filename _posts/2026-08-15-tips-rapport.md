@@ -4,58 +4,44 @@ title: "VM-tips 2026-08-15"
 date: 2026-08-15
 ---
 
-# VM-dagbok från Farsta – 15 augusti 2026
+# God morgon VM-vänner – lördag 15 augusti 2026!
 
-*av Britt-Marie "Brittan" Andersson*
-
----
-
-God morgon, VM-vänner!
-
-Kaffet är upphällt, Bosse ligger på tidningen och Lasse sover fortfarande. Perfekt läge att sätta sig ner med gårdagens resultat.
+Kaffe nummer två är påsatt. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på en duva med den där blicken som säger *jag har planer*. Och jag har just gått igenom nattens resultat med en blandning av glädje, förtvivlan och ren fotbollskärlek.
 
 ---
 
-## Nattens matcher
+## Nattens matcher – vad hände egentligen?
 
-Sverige vann mot Tunisien med 5–1 i gruppspelet. Fem mål. Fem. Jag satt och kände hur något varmt spred sig i bröstet som inte bara var kaffet. Sedan förlorade vi mot Nederlanderna med 1–5 och Japan höll oss till 1–1. Livet är fotboll och fotboll är ojämnt.
+Börjar med det viktigaste: **Sverige vann med 5–1 mot Tunisien**. Fem mål. Fem! Jag vet inte om det var Brolin-vibbar eller bara en riktigt bra dag, men det var underbart. 1994 kändes plötsligt nära. Det luktade sommar och bronsbravad.
 
-Norge slog Irak med 4–1. Sedan vann man mot Senegal med 3–2. Kämpigt, dramatiskt, nordiskt. Man tackar. Att Håland tog ansvar förvånar ingen. Han spelar fotboll som om han bär bergen på sina axlar och tycker att det är rimligt. Lasse frågade varför jag hade norska matchhighlights igång på telefonen klockan elva på kvällen. Jag sa att jag analyserade spelsystemet. Han såg inte övertygad ut.
+Sen fick vi se **Germany krossa Curaçao med 7–1** – vilket är imponerande på pappret men säger mer om matchupplägg än fotbollsgeni. **England vann mot Kroatien med 4–2**, vilket var roligare än det borde vara. **USA körde över Paraguay 4–1**, och Frankrike visade klass mot Senegal, **3–1**.
 
-Frankrike tryckte ihop Uruguay 4–2 i slutomgångarna. England vann mot Argentina med 2–1 i semifinal. Och i finalen vann Spanien mot Argentina med 1–0. En avgjord turn·ering. Det finns något vackert i det, även om det gör lite ont.
+Och så Norge. *Norge.* Fyra mål mot Irak. Jag tittar inte för Hålands skull, det har jag sagt förut. Men pojken spelar som om fjällen själva knuffade honom framåt. Lasse frågade varför jag kollade reprisen tre gånger. Jag sa att jag studerade presspelet.
 
 ---
 
 ## Tipskollen
 
-Ledarna just nu är **Mollie och Wilma** – båda på **166 rätt av 369**. Bra tippat, tjejer. Ni har känsla för det här.
+Poängtoppen leds av **Mollie och Wilma med 166 rätt av 369**. Det är imponerande. De har näsa för kryss på ett sätt som gör mig både avundsjuk och misstänksam. Bra jobbat, tjejer.
 
-**Johan Nilsson** ligger på **132 rätt**, vilket är... hur ska man säga detta varsamt... inte precis i toppen. Men Johan tippade 1 på Mexiko–Sydafrika och fick rätt. Han tippade rätt på USA–Paraguay. Han hade fel på väldigt många andra matcher, men på ett sätt som visar att han *försökte förstå fotbollen*, inte bara fylla i kryss för säkerhets skull. Det är något det.
-
----
-
-## Dagens ros
-
-Mollie och Wilma delar äran idag. 166 poäng är ett hantverk.
+**Andreas2 har 121 poäng**. Det finns inte mycket mer att säga om det. Jo – det är synd om honom.
 
 ---
 
-## Dagens stolleprov
+## Johan Nilssons rad
 
-**Andreas2** landar på **121 rätt av 369**. Det är modigt. Det är konsekvent. Det är kanske lite väl originellt.
+Kära Johan. Min favorit bland tipparna. Han har **132 rätt av 369** och det är... det är en siffra. Men Johan tippade rätt på flera tuffa matcher – Qatar–Schweiz, Brasilien–Marocko, Egypten–Iran. Han har känsla för krysset när det gäller. Problemet är att han är lite för generös med ettor när motståndarna är svårlästa. Det är inte feghet. Det är optimism. Det är en skillnad.
+
+Johan hade rätt på ett väldigt genomtänkt sätt igår. Resultaten höll inte alltid med, men tanken var god.
 
 ---
 
 ## Brittans fundering
 
-Norge förlorade mot Frankrike. Sedan mot England. Men de vann mot Brasilien. Brasilien. Det är inte en slump. Det är nordisk envishet mot samba. Och envisneten vann en gång.
+Det finns något vackert i ett VM där Sverige slår Tunisien med fem mål och Norge vinner med fyra. Fotboll spelas av människor – och ibland spelar de som de menar det.
 
-Det påminner mig lite om 1994. Sverige slog Rumänien på straffar och hela landet stod still. Det behöver inte vara de bästa som vinner. Det behöver bara vara de som vill det mest just den dagen.
+Bajen hade gjort det snyggare. Men det hade nog inte blivit fler mål.
 
-Bajen förstår det. Det är därför vi älskar fotboll.
+Ha en fin lördag, VM-vänner. Lasse vaknar snart. Duvan är fortfarande kvar i fönstret. Bosse katten har inte gett upp.
 
----
-
-*Ha en fin lördag, allihopa. Lasse vaknar snart och undrar vad jag håller på med. Bosse katten har redan lämnat rummet. Det säger ändå något.*
-
-**// Brittan, Farsta**
+*Det är därför vi älskar fotboll.*
