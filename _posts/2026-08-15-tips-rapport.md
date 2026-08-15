@@ -4,54 +4,58 @@ title: "VM-tips 2026-08-15"
 date: 2026-08-15
 ---
 
-# God morgon VM-vänner – 15 augusti 2026
+# God morgon VM-vänner – 15 augusti 2026!
 
-Kaffe nummer två är pågjort. Bosse katten sitter i fönstret och stirrar på en duva med den sortens focus som Johan borde ha haft på sina tips. Lasse sover fortfarande. Smart karl.
+Kaffe nummer två i handen, Bosse ligger på tidningen och Lasse sover fortfarande. Perfekt läge för lite VM-svada från Farsta.
 
 ---
 
 ## Nattens matcher
 
-Sverige! Fem–ett mot Tunisien i gruppspelet och ett hyfsat kryss mot Japan. Hjärtat värmer sig. Det är inte 1994, det är inte Brolin som slår igenom på Pontiac Silverdome – men det finns något vackert i det ändå. Det finns hopp i den där svenska truppen.
+Sverige–Tunisien slutade 5–1. Fem mål. Jag grät lite. Det är okej. Bajen hade gjort det snyggare, men det duger gott.
 
-Norge slog Irak med fyra mål. Sedan föll de mot Frankrike med ett. Sedan vann de mot Senegal. Håland rullar på. Lasse frågade varför jag tittade på höjdpunkterna tre gånger. Jag sa att jag analyserade presspelet. Han såg inte övertygad ut.
+Sen kom smällen: Nederländerna–Sverige, 5–1 åt fel håll. Fotboll spelas av människor, och ibland är de människorna holländare. Det är därför vi älskar fotboll, och ibland hatar det.
 
-Brasilien åkte ut mot Marocko. Frankrike bröt ihop mot England i en galen 4–6-match i slutskedet. Spanien vann till slut det hela. Fotboll är orättvist, oförutsägbart och fullständigt oemotståndligt. Det är därför vi älskar det.
+Norge besegrade Irak med 4–1 i gruppspelet. Sedan slog man Senegal med 3–2. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken springer som en nordnorsk älg och tar plats som en fjällvägg kan jag inte hjälpa.
+
+Spanien gick hela vägen och vann finalen mot Argentina med 1–0. Portugal–Spanien slutade 0–1. Det borde ha väckt mer debatt. Det kanske hade gjort det 1994. Då hade vi haft Brolin att prata om.
 
 ---
 
 ## Tipskollen
 
-Ledare: **Mollie och Wilma**, båda på 166 rätt av 369. Starkt. Riktigt starkt. Respekten är genuin.
+Mollie och Wilma leder med 166 rätt av 369. Imponerande. Riktigt imponerande. Beröm dit beröm ska.
 
-**Johan** – käre Johan – landar på 132 rätt som **J Nilsson**. Det är inte tabelltoppen. Det är inte ens mitten. Men Johan tippade rätt på Mexiko–Sydafrika, USA–Paraguay och Turkiet–Paraguay, och det är en man som förstår sig på power play. Han hade rätt på sak. Utfallet samarbetade bara inte alltid.
+Andreas2 har 121 rätt. Det är under hälften av vad Mollie och Wilma har. Jag säger inte att det är katastrof. Men det är det.
+
+**Johan Nilsson** har 132 rätt. Det är inte lysande på pappret – det vet Johan också. Men jag har läst hans rad, och pojken har haft rätt tanke vid fel tillfälle, om och om igen. Han tippade Norge–Frankrike som X. Frankrike vann. Men *hjärtat* var på rätt plats. Det räknas.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** delar priset idag. Ingen av dem flaxade runt med fega kryss på uppenbara ettor. Det märks.
+**Mollie och Wilma** delar tronen. 166 rätt är genuint bra fotbollstänkande. Hattarna av, damer.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2**, 121 rätt. Kära nån. Det är inte ett resultat, det är ett rop på hjälp. Jag säger inte att jag har lösningen. Men jag anar att den inte börjar med ett X på Spanien–Saudiarabien.
+Andreas2. 121 rätt av 369. Man behöver inte vara Einstein. Men man behöver vara lite mer Einstein än så.
 
 ---
 
 ## Brittans fundering
 
-Spanien vann turneringen. Vacker, kontrollerad, ibland lite för steril fotboll. Inte feg, men inte heller Bajen-puls i magen. Det där sista steget – det råa, det levande – det hade en annan sorts lag. Norge kom nära. Håland kom nära.
-
-Det är därför vi håller på. För att nästan räknas. Fråga vilken Bajensupporter som helst.
+Norge slog Frankrike i slutet. 1–4 visserligen – men Norge *vann* den matchen tidigare i cupen. Det finns något vackert i det. Nordisk envishet mot gallistisk elegans. Lasse höll inte med. Han har haft fel förr.
 
 ---
 
 ## Slutord från Farsta
 
-Bosse katten gäspar. Lasse vaknar snart och frågar hur det gick för Norge. Jag ska låtsas att jag inte vet.
+Spanien är världsmästare. Argentina fick se sig slagna. Sverige åkte ut men lämnade ändå ett leende. Bosse katten sov igenom allt.
 
-Bajen är bäst. Det är inte en åsikt. Det är ett grundvillkor.
+Det är fotboll. Det är livet. Och det finns bara ett Bajen.
 
-Vi ses imorgon, VM-vänner. 🟢⚪
+*Ha en fin dag, VM-vänner. Vi hörs imorgon.*
+
+– **Brittan, Farsta**
