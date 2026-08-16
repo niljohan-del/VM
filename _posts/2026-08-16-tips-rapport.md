@@ -4,52 +4,68 @@ title: "VM-tips 2026-08-16"
 date: 2026-08-16
 ---
 
-# God morgon VM-vänner! — 16 augusti 2026
+# God morgon VM-vänner – 16 augusti 2026!
 
-Kaffe nummer två är påtaget. Bosse katten ligger på fjärrkontrollen och Lasse sover fortfarande. Utmärkt. Då kan jag skriva i fred.
+Kaffe. Morgonrock. Bosse katten i knät och Lasse som gnäller på att jag hade TV:n på för sent igår. Det är sommar och det är VM och livet är faktiskt ganska bra.
 
-Det har varit en *natt*, det kan jag säga.
+Mycket att gå igenom. Vi börjar.
 
 ---
 
 ## Nattens matcher
 
-Sverige–Frankrike slutade 0–3. Jag vill inte prata om det. Jo, det vill jag faktiskt — för det är precis den typen av match som gör att man förstår vad fotboll kostar. Frankrike var kliniska, kalla och vackra på ett obehagligt sätt. Sverige kämpade. Det räckte inte. Vi reser oss.
+Sverige vann med 5–1 mot Tunisien. Jag satt och grät lite. Inte för att det var 1994 igen – det är det aldrig – men för att det finns något genuint vackert i ett Sverige som spelar med den här typen av tillförsikt. Brolin hade nickat gillande. Kanske till och med Ravelli hade klappat händerna. Kanske.
 
-Norge slog England med 1–2. Låt mig ta det en gång till. **Norge slog England.** Håland — som för övrigt verkar ha bytt glasögonbågar igen, jag kollade av rent intresse — styrde och ställde. Lasse frågade varför jag hoppade upp från soffan. Jag sa att det var krampen.
+Norge slog Irak 4–1. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar se ut som om han mejslades ur en fjällvägg utanför Ålesund kan jag inte hjälpa. Jag läste förresten lite om de där glasögonen igen. Bara för att jämföra bågar.
 
-Spanien vann finalen mot Argentina 1–0. En final värd namnet. Tight, vuxet, nervigt. Det är därför vi älskar fotboll.
+Tyskland körde 7–1 mot Curaçao. Imponerande. Lite väl ordnat för min smak. Bajen hade gjort det snyggare.
+
+Frankrike–England slutade 4–6 i en absolut kaosfilm till match. Det är därför vi älskar fotboll.
 
 ---
 
 ## Tipskollen
 
-Mollie och Wilma delar ledningen med **166 rätt av 369** spelade matcher. Det är respektingivande. De har läst det här VM rätt och de vet det.
+Mollie och Wilma leder med 166 rätt av 369. Det är stabilt. Det är respektabelt. Grattis, tjejer.
 
-Johan — vår J Nilsson — ligger på **132 rätt**. Det är inte tabelltoppen, det ska jag inte ljuga om. Men Johan är en man som tänker på fotboll, inte bara tippar den. Hans rad är full av logik som världen tyvärr inte alltid delar. Norge som tvåa mot England? Det hade de flesta inte vågat. Johan tippade det troligtvis av rätt anledning. Otur är en del av spelet. Jag säger inte att han har lösningen. Men...
+Andreas1 på tredje plats med 159. Följs av Caroline och Anna på 157 vardera. Fint sällskap.
 
-Andreas2 på **121 rätt** kan vi inte helt ignorera. Det är snällt sagt att det ser kämpigt ut. Bosse katten lämnade rummet när jag läste hans rad. Det säger ändå något.
+Längst ner hittar vi Andreas2 med 121 rätt. Det är ett modigt projekt. Jag säger inte att jag har lösningen. Men.
 
 ---
 
-## Dagens ros
+## Johan – J Nilsson – 132 rätt
 
-Mollie och Wilma — ni är skarpa. Ni förtjänar varsin hedersbärs.
+Käre Johan. Du sitter på 132 rätt av 369 och jag ska inte låtsas att det är bra. Men jag ska säga att jag förstår hur det gått till.
+
+Du tippade rätt på Mexiko–Sydafrika. Du hade koll på Argentina. Du såg det Norge såg. Det är en rad med fotbollshjärta.
+
+Men du har fastnat i en loop med kryss på matcher som sedan exploderar åt alla håll. Det händer de bästa. Det är inte strategi som sviker dig, Johan. Det är universum. Universum är opålitligt. Det vet alla som följt Bajen tillräckligt länge.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippade Paraguay att gå vidare på bekostnad av Frankrike. Ni vet vilka ni är. Det är okej. Fotboll spelas av människor.
+Heimbrand på 130 rätt. Strax under Johan, och det säger sitt. Jag vill inte vara elak. Men om man tippar VM och hamnar under en Bajen-supporter från Farsta som dricker morgonkaffe i morgonrock så kanske man ska se över sin process.
+
+Kärleksfullt menat.
 
 ---
 
 ## Brittans fundering
 
-Spanien–Argentina 1–0. Det påminde mig om sommaren 1994. Inte i stil — men i känsla. Den där kvävande tystnaden sekunden innan det avgörande målet. Brolin hade förstått det. Dahlin hade förstått det.
+Det var ett VM 1994 då Sverige gick till semifinal och hela landet stod stilla. Jag stod på ett torg och skrek. Lasse var bredvid mig. Han minns det annorlunda. Han har haft fel förr.
 
-Det finns något vackert i det. Det finns alltid något vackert i det.
+Det finns ingenting som samlar människor som fotboll. Inte politik. Inte väder. Ingenting.
+
+Bosse katten lämnade rummet under Frankrike–England. Det säger ändå något.
 
 ---
 
-*Brittan från Farsta. Bajen är bäst. Det är inte en åsikt.*
+## Slutord från Farsta
+
+Ha en fortsatt fin söndag, VM-vänner. Sverige lever. Norge lever. Håland lever – med eller utan de glasögonen.
+
+Och Johan – nästa omgång bär det sig. Det lovar jag ingenting om. Men jag hoppas det.
+
+*// Brittan
