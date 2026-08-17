@@ -4,67 +4,62 @@ title: "VM-tips 2026-08-17"
 date: 2026-08-17
 ---
 
-# God morgon VM-vänner – måndag 17 augusti 2026
+# Finalen är spelad – och Farsta gråter snyggt | 17 augusti 2026
 
-Kaffe nummer två. Bosse katten sitter i fönstret och stirrar på en duva med samma intensitet som jag stirrade på de där slutspelsmatcherna i natt. Lasse sover fortfarande. Han missar allt det roliga.
+God morgon VM-vänner!
 
-Välkommen till **Brittans VM-blogg** – din dagliga dos fotbollsromantik, syrliga sanningar och ofiltrerade åsikter från en pensionerad sportreporter i Farsta som fortfarande har saker att säga. Och tro mig, jag har alltid saker att säga.
-
-Varför startade jag den här bloggen? För att fotboll är för viktigt för att lämnas åt algoritmer och tyckare som aldrig sett ett derby på Söderstadion i regn. Följ med. Det blir en resa.
+Det är måndag morgon i Farsta. Kaffet är klart. Bosse katten sitter i fönstret och ser ut som om han förstår allvar bättre än de flesta tränare jag sett. Lasse sover fortfarande. Han missade finalen. Det säger ändå något.
 
 ---
 
-## Nattens matcher
+## Finalnattens stora match
 
-Nu har vi nått slutfasen och det är på allvar. **Spanien vann finalen** mot Argentina med 1–0. Rent, effektivt, spanskt. Argentinarna kämpade som alltid men La Roja hade mer att ge.
+**Spanien–Argentina: 1–0.**
 
-Innan dess: **Frankrike åkte ut mot England** med hela 4–6. I en VM-semifinal. Fyra mål räckte inte. Det är fotboll. Det är vackert och brutalt på samma gång. Det där hade aldrig hänt 1994. Eller jo. Men inte mot England.
+Där är det. VM 2026 är slut. Spanien är världsmästare. Och jag sitter med kallt kaffe och varmt hjärta.
 
-**Norge föll mot England** i kvartsfinalen 1–2. Det gör ont. Håland och hans gäng gav allt de hade. Pojken kämpade som en vikingahövding i storm. Att det inte räckte säger mer om England än om Norge.
+Det var inte alltid vackert. Men fotboll behöver inte alltid vara vackert. Det räcker att det är äkta. Och den här turneringen har varit äkta från första vissling. Frankrike föll mot England i semifinal (4–6, gode nåd), Norge åkte ut mot England i kvartsfinalen, och nu har Spanien stängt butiken med ett mål och en hel nations stolthet.
 
-Jag säger inte att jag är ledsen. Men Bosse katten lämnade rummet. Det säger ändå något.
+Norge nådde inte hela vägen. Men de slog Brasilien. Jag säger det igen: **Norge slog Brasilien**. Det är fotboll. Det är nordisk karaktär. Att Håland såg ut som en vikingahövding i regnet när han firade – det var ren poesi. Jag köper de glasögonen. Det är för att de verkar praktiska.
 
 ---
 
 ## Tipskollen
 
-Topplistan ser ut såhär när vi är i mål med 369 matcher:
+369 matcher. Och vem toppar? **Mollie och Wilma**, axel mot axel på **166 rätt**. Det är imponerande. Det är också lätt irriterande för alla oss som trodde vi förstod fotboll.
 
-🥇 **Mollie & Wilma** – 166 rätt. Delade ledning. Imponerande, båda två.
-🥈 **Andreas1** – 159 rätt. Tredje plats och stolt nog att skryta lite.
+Andreas1 på 159, Caroline och Anna på 157. Hyfsat. Respekt.
 
-Längst ner sitter **Andreas2** med 121 rätt. Det är ett gap som kräver förklaring. Eller vila.
+Och sedan finns **J Nilsson** på **132 rätt av 369**. Det är Johan. Min Johan. Jag ska vara ärlig: det är inte toppresultat. Men – och det är ett viktigt men – Johan tippade modigt. Han tippade med hjärtat. Qatar–Schweiz kryssade han. Rätt! Colombia–Portugal kryssade han. Rätt! Han kände av matcherna, han bara förväxlade ibland känsla med säkerhet.
 
----
-
-## Johans rad
-
-**J Nilsson** slutar på 132 rätt av 369. Det är inte toppen, det ska vi inte låtsas om.
-
-Men jag har läst hans rad. Johan tippade bra på Argentina genomgående. Han hade rätt om Spanien i finalen. Han hade rätt på många svåra matcher där andra kyssade tummen och tippade kryss.
-
-Det blev fel på en del – särskilt Norge och Frankrike torterade honom rejält. Men tanken var rätt. Det är fotboll. Resultatet och förtjänsten sitter inte alltid i samma stol.
-
-**Johan hade fel på ett väldigt genomtänkt sätt.** Det respekterar jag.
-
----
-
-## Dagens ros
-
-**Mollie och Wilma** delar äran. 166 rätt är ett fint VM. Hade de spelat ihop hade de vunnit med komfort.
+Johan hade fel på många matcher. Men på ett väldigt genomtänkt sätt.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippade **Frankrike att åka ut i semifinalen** med 4–6 mot England och ändå är nöjd med sig själv. Du vet vilka ni är. Ingen annan visste det. Inte ens Frankrike.
+**Andreas2: 121 rätt av 369.**
+
+Jag säger ingenting mer. Jo, en sak: fotboll spelas av människor. Tippning likaså.
 
 ---
 
 ## Brittans fundering
 
-Spanien är världsmästare. Det är välförtjänt. Men någonstans, djupt inne i fotbollsromantikens mörka källare, önskar jag att Norge hade gått hela vägen.
+Spanien vann. Argentina förlorade en final till. Frankrike åkte ur mot England i en match som slutade 4–6 och som jag förmodligen behöver bearbeta i flera dagar till.
 
-Inte för Hålands skull.
+Det påminner mig om 1994. Inte resultaten. Men känslan. Att ett VM tar slut och världen plötsligt känns lite tystare. Att man sitter i Farsta med kallt kaffe och inser att det dröjer fyra år.
 
-För
+Bajen hade spelat det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
+
+---
+
+## Slutord från Farsta
+
+Tack för det här VM-vänner. Det har varit skoj, syrligt och ibland hjärtskärande. Precis som fotboll ska vara.
+
+Lasse vaknade just och frågade vem som vann. Jag sa Spanien. Han nickade och gick och la sig igen.
+
+Bosse katten lämnade rummet. Det säger ändå något.
+
+*/ Brittan, Farsta*
