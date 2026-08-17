@@ -4,54 +4,42 @@ title: "VM-tips 2026-08-17"
 date: 2026-08-17
 ---
 
-# God morgon VM-vänner – 17 augusti 2026!
+# God morgon VM-vänner! – 17 augusti 2026
 
-Kaffe nummer två är påtaget. Bosse katten sover på fjärrkontrollen. Lasse harklade sig när jag berättade om gårdagens resultat och sa "jaha" – det klassiska svaret från en man som inte vill erkänna att han missat något viktigt. Utomhus är det grått i Farsta. Men inomhus brinner det.
+Hej allihopa! Innan vi sätter igång måste jag presentera mig själv ordentligt.
+
+Jag heter Britt-Marie Andersson, men alla kallar mig Brittan. Pensionerad sportjournalist, bosatt i Farsta sedan tidernas begynnelse, gift med Lasse som inte förstår sig på fotboll men ändå alltid har en åsikt. Vi har katten Bosse, som däremot har utmärkt omdöme. Jag har bevakat svensk fotboll i decennier, suttit på läktare i regn och sol, och känt hjärtat hoppa till när Bajen gjort det omöjliga möjligt på Söderstadion.
+
+Nu är det VM. Och jag tänker skriva om det varje morgon tills det är slut eller tills Lasse drar ut sladden.
+
+Välkommen hit. Det blir ärligt, varmt och ibland lite syrligt.
 
 ---
+
+Kaffe. Morgonrock. Bosse sitter i fönstret och blänger på duvorna. Jag sitter med resultaten från gårdagen och känner den där blandningen av förtjusning och förtvivlan som bara fotboll kan ge.
 
 ## Nattens matcher
 
-Var ska man börja?
+Var ska man börja? **Sverige vann mot Tunisien med 5–1** i gruppspelet. Fem mål! Det är inte illa det. Det hade Tomas Brolin nickat gillande åt. Sedan förlorade vi mot Nederländerna med 1–5 och det var jobbigare att se på. Men Japan fixade ett kryss mot oss, och det var hedervärt av dem.
 
-**Sverige–Japan slutade 1–1.** Jag satt uppe. Lasse gick och lade sig. Bosse katten stannade kvar, vilket jag tolkar som solidaritet. En poäng är en poäng, men det är inte det vi drömmer om. Sverige ska spela med bröstkorgen framåt, inte trampa vatten.
+**Norge–Irak slutade 4–1** och det var precis så det borde sluta. Norge spelar rakt, hårt och ärligt. Det finns en nordisk pålitlighet i det laget som värmer. Håland styr och ställer där framme med sin... ja, sin väldigt effektiva spelstil. Det är därför man tittar. Fotbollen. Ingenting annat.
 
-**Norge besegrade Senegal med 3–2.** Tre mål. Rak fotboll. Nordisk arbetsmoral. Jag säger inte att det handlade om annat än taktik och laganda. Men pojken upp i spetsen spelade bra. Väldigt bra. Jag kollade hans glasögonreklam igen efteråt – bara för att jämföra bågar, förstås.
+**Frankrike–Senegal** 3–1. **England–Kroatien** 4–2. **Tyskland–Curaçao** 7–1. Stora lag som körde över mindre. Det finns något vackert i det, men också något lite tråkigt. Bajen hade gjort det snyggare.
 
-**Frankrike–Spanien slutade 0–2.** *Le Bleu* slogs ut av *La Roja*. Det var vackert och lite sorgligt på samma gång. Spanien spelar fotboll som man skriver brev – med omsorg och precision. Det finns något vackert i det.
-
-**England–Argentina: 1–2.** Argentinerna klättrade vidare. Det hade Brolin aldrig tillåtit 1994 – men 1994 var en annan tid och ett bättre hår.
-
----
+**Spanien–Argentina** i finalen slutade 1–0 och det var ett mästerskap för de som älskar taktik och lider av sömnbrist. Men Spanien vann. Det är åtminstone ett lag som kan spela fotboll.
 
 ## Tipskollen
 
-**Mollie och Wilma leder med 166 rätt av 369.** Bra jobbat, tjejer. Det är respekt det.
+**Mollie och Wilma** leder med 166 rätt av 369. Det är respektabelt. Riktigt respektabelt. Jag hälsar er med en väl förtjänt nick.
 
-**Andreas1 på 159** håller sig stark. Caroline och Anna delar 157.
+Längst ner hittar vi **Andreas2 med 121 rätt**. Det är inte ett resultat man skriver hem om. Eller, jo, det kanske man gör – för att varna anhöriga.
 
-Och sen har vi **J Nilsson på 132** och **Heimbrand på 130**. Det börjar bli lite ensamt längst ner. Andreas2 på 121 – käraste vän, det är ett stolpigt VM.
+## Dagens ros 🌹
 
----
+**Johan Nilsson** – min favorittippare – håller sig på 132 rätt. Det är inte toppen av listan, det ska jag inte låtsas om. Men Johan tippade rätt på flera svåra matcher. Han såg saker andra inte såg, och det ska man ha respekt för. Att resultaten inte alltid följde med är fotbollens orättvisa, inte Johans fel.
 
-## Johans rad
+Johan hade rätt tankar. Bollen studsade fel. Det händer de bästa.
 
-Johan – min kära Johan – tippade **Mexiko–Sydafrika rätt. USA–Paraguay rätt. Argentina rätt på flera matcher.** Pojken har öga för de stora nationerna, det ska han ha. Men sen sätter han X på Norge–Frankrike. *X.* Norge med Håland mot Frankrike och Johan tror på oavgjort. Jag förstår tanken. Jag gör det inte. Men jag förstår den.
+## Dagens stolleprov 🃏
 
-Johan tippade rätt på tanken. Matchen hade bara annan uppfattning.
-
----
-
-## Brittans fundering
-
-Det är det här med fotboll. Du kan ha rätt om allting – taktiken, lagen, spelarna – och ändå ha fel på kupongen. Precis som livet i allmänhet. Och precis som varje derby på Söderstadion någonsin. Bajens hjärta slår rätt. Resultaten följer ibland efter.
-
----
-
-## Slutord från Farsta
-
-Bosse katten har vaknat och gäspar. Lasse frågar om vi har mjölk. Norge är kvar i turneringen.
-
-Det räcker gott för en måndag.
-
-*– Brittan, Farsta*
+Jag tittar på listan och funderar på alla som envist tippade kryss på Norway–Frankrike utan att ta hänsyn till att Norge faktiskt
