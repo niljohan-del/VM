@@ -6,50 +6,48 @@ date: 2026-08-18
 
 # God morgon VM-vänner – 18 augusti 2026
 
-Kaffe nummer två. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på en duva med den där intensiteten som påminner mig om en defensiv mittfältare som väntar på att slå till.
-
-Och jag? Jag satt uppe alldeles för länge igår och tittade på matcher.
-
-Det ångrar jag inte ett dugg.
+Kaffe. Mjölk. Bosse katten stirrar på mig som om jag vet svaren på universums alla frågor. Det gör jag inte. Men jag vet att det spelades en hel del fotboll i natt, och det ska vi prata om.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det självklara: **Sverige–Tunisien 5–1**. Mina hjärtslag, vad det kändes bra. Det är inte Söderstadion och det är inte 1994, men det finns något i det svenska spelet just nu som påminner om Brolin på hans bästa dagar – lätt till foten, snabbt framåt, ingen onödig krångel. Jag hade tårar i ögonen. Inte för att jag är sentimental. Utan för att fotboll ibland är precis så vackert det ska vara.
+Var ska man börja? **Sverige–Tunisien 5–1** – ja, det är svårt att hålla tyst om det. Femton poäng från Farsta, folkfest i vardagsrummet, Lasse tittade upp från sin bok. Det där var en kväll som nästan påminde om sommaren 1994. Nästan. Tomas Brolin hade nog gjort minst tre av dem med sin blåa banderoll flaxande i vinden.
 
-**Norge–Senegal 3–2** däremot. Hjärtattack i fyra akter. Norge ledde, Norge vacklare, Norge vann ändå. Det är nordisk pålitlighet det. Håland styrde och ställde i anfallet med den där... ja, med den där effektiviteten. Praktisk. Rationell. Inget att tjafsa om.
+Sedan körde **Frankrike** på som de brukar – 3–1 mot Senegal, metodiskt och lite kallt. Vackert på sitt sätt, men inte på det sättet som värmer.
 
-*(Lasse frågade varför jag ropade "jaaa pojken!" när han nickade in 2–1. Jag sa att det var ett bra mål. Han såg inte övertygad ut.)*
+**Norge** malde ner Irak 4–1. Självklart. Effektivt. Rakt. Nordiskt. Jag tittar på den matchrapporten och tänker ingenting speciellt på Håland. Ingenting alls. Bosse katten lämnade rummet. Det säger ändå något.
 
-**Frankrike–Spanien 0–2** i finalen. Spanien vann hela VM. Elegant, tekniskt, lite kallt. Men man ska ge dem det – de spelar fotboll som om det är självklart. Det är det inte. Det är aldrig självklart.
+**Ecuador** slängde ut Tyskland 2–1 i sin grupp. Det där hade aldrig hänt 1994. Eller jo, men då hade det hänt med bättre frisyrer.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma** delar topplatsen med 166 rätt av 369. Välförtjänt. De har haft ögonen öppna hela turneringen.
+I toppen hittar vi **Mollie och Wilma** som delar ledningen med 166 rätt av 369. Imponerande. Respekt. Genuint.
 
-**J Nilsson** – det vill säga Johan – sitter på 132 rätt. Och ja, jag vet vad ni tänker. Men lyssna nu. Johans rad är ett verk av ambition. Han har vågat, han har chansningat, han har ibland haft rätt på ett sätt som fått mig att nicka instämmande med kaffekoppem halvvägs till munnen. Att resultaten inte alltid följt hans fotbollslogik är turneringens fel, inte hans.
+Men vi pratar om **J Nilsson** – det vill säga Johan – som sitter på 132 rätt. Nu ska jag vara rättvis: Johan har en svårare väg att vandra. Han verkar ha hittat på ett eget system som ibland är briljant och ibland är... något annat. Det är modet jag beundrar. Tanken är alltid rätt hos Johan, det är bara verkligheten som inte alltid håller med.
 
 ---
 
 ## Dagens ros
 
-Mollie och Wilma – ni är skarpa. Hatten av.
+**Mollie och Wilma** – ni är det här turnerings lugna öga. Bra fotbollsblick. Fortsätt så.
+
+---
 
 ## Dagens stolleprov
 
-Den som tippade kryss på **Spanien–Saudiarabien** och sedan 2 i finalronden. Det krävs mod. Det krävs också lite mer koll på verkligheten.
+**Andreas2** på 121 rätt. Snälla vän. Det är ett VM, inte ett gissningslek om nästa veckas väder. Jag säger inte att jag har lösningen. Men.
 
 ---
 
 ## Brittans fundering
 
-Sverige femma mot Tunisien. Norge besegrade Senegal. Brasilien föll för Marocko längs vägen – det hade inte hänt 1994, eller jo, men då hade det i alla fall hänt med bättre frisyrer.
+Fotboll spelas av människor. Det glömmer vi ibland när vi tittar på statistik och tipprader. Men i natt, när Sverige klev ut och vann med fem mål, kände jag det där igen – den där bubblan i bröstet. Som på Söderstadion. Som Kenta. Som ett derby.
 
-Det är därför vi älskar fotboll.
+Det finns bara ett Bajen. Men just nu finns det också ett landslag som gör mig stolt.
 
 ---
 
-*Hej och hå från Farsta. Bosse jagade aldrig duvan. Han är klokare än de flesta tippare.*
+*Lasse sa att jag log i sömnen. Jag nekade. Norge vann 4–1. Ingen mer kommentar.*
