@@ -6,54 +6,56 @@ date: 2026-08-19
 
 # God morgon VM-vänner – 19 augusti 2026
 
-Kaffe. Halvt uppätet knäckebröd. Bosse katten stirrar på mig som om jag gjort något fel. Kanske har jag det.
-
-Lasse sov igenom hela nattens matcher. Det säger en del om vem av oss som verkligen förstår fotboll.
+Kaffe nummer två. Bosse sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Ute i Farsta är det grått men hjärtat är varmt, för i natt hände saker.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det vackra: **Sverige slog Tunisien med 5–1**. Fem mål. Jag grät lite. Det är tillåtet när man är pensionerad och har kaffe framför sig i Farsta vid femtiden på morgonen.
+Sverige mot Japan slutade 1–1. Jag säger inte att det var fel. Men det gnager lite. Vi slog Tunisien med 5–1 och förlorade sedan mot Nederländerna med 1–5. Fotboll är ett sådant spel. Det skäms inte.
 
-Sedan kom den där kniven rakt i hjärtat: **Nederländerna–Sverige slutade 5–1**. Åt fel håll. Jag skyller på domaren. Och på Lasse, som inte var vaken och kunde ta på sig skulden.
+Frankrike vann finalen mot England med hela 4–6 – och om det verkar konstigt har du inte sett tillräckligt med fotboll ännu. Det händer. Det är därför vi älskar fotboll.
 
-**Frankrike** maler på. **Argentina** maler på. **England** slår Kroatien med 4–2, vilket nästan fick mig att gilla engelsmännen. Nästan.
+Argentina vann slutligen turneringen – Spanien fick böja sig 0–1. Det var vackert och lite trist på samma gång, som all bra fotboll ska vara.
 
-Och så **Norge**. Mina kära norrmän. 4–1 mot Irak. Sedan 3–2 mot Senegal. Sedan... 1–2 mot Frankrike i slutspelet. Jag säger inget om Håland. Det är fotboll, inte hjärtesorg. Men det liknar varandra ibland.
-
-Finalen då: **Spanien–Argentina 1–0**. En mål. Torrt. Effektivt. Det där hade aldrig hänt 1994. Då hade det slutat 4–3 efter förlängning och en hårresande stämning. Men det är en annan tid.
+Och Norge? Norge besegrade Brasilien med 2–1 i utslagsrundan. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar se ut som en vikingahövding kan jag inte hjälpa. Lasse frågade varför jag log åt telefonen klockan tre i natt. Jag sa att det var resultaten. Han såg inte övertygad ut.
 
 ---
 
 ## Tipskollen
 
-Ledare just nu är **Mollie och Wilma** – båda på 166 rätt av 369. Välförtjänt. De har läst spelet bättre än de flesta herrarna i sällskapet, vilket jag njuter av att konstatera.
+Ledartröjan delas av **Mollie** och **Wilma** med hela 166 rätt av 369. Imponerande. Stabilt. Rättvist.
 
-**Johan Nilsson** ligger på 132 rätt. Det är inte tabelltoppen, det ska vi vara ärliga med. Men Johan har en fotbollshjärna som tänker rätt även när resultatet tänker fel. Han tippade Uruguays vinst mot Spanien. Inte första gången. Inte sista.
+Bakom dem kämpar **Andreas1** på 159 och **Caroline** och **Anna** på 157 var.
+
+Och så har vi **J Nilsson** på 132. Alltså Johan. Min Johan.
+
+Johan tippade Mexiko–Sydafrika rätt. Han tippade USA–Paraguay rätt. Han visade gnistor av genialitet i ett hav av... tja, otur. För det är otur, Johan. Inte brist på fotbollsförstånd. Tanken var rätt. Världen hängde bara inte med.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** delar på bucklan idag. Ingen av dem verkar ha gissat – de verkar ha *vetat*. Det är en skillnad. En viktig skillnad.
+**Mollie och Wilma** – ni delar ledningen och ni har förtjänat varje poäng. Kloka tips, bra magkänsla. Hatten av.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2** på 121 rätt av 369. Jag säger det med kärlek. Men 121 poäng när turneringen börjar lida mot sitt slut är... modigt. På ett eget sätt.
+**Andreas2** ligger på 121 poäng. Av 369 möjliga. Det är ett snitt som inte ens Curaçao hade skämts för. Jag säger ingenting. Men jag tänker det.
 
 ---
 
 ## Brittans fundering
 
-Spanien är världsmästare. Bra fotboll. Organiserat. Lite fegt ibland, men det vinner man på.
+Det finns något vackert i ett VM som bjuder på 7–1-segrar och 4–6-finaler. Det påminner om 1994. Den sommaren var allt möjligt. Brolin, Dahlin, Ravelli mot rumänerna på straffar. Ingen visste vad som skulle hända. Det vet vi aldrig. Det är hela poängen.
 
-Det påminner mig om ett derby på Söderstadion. Bajen spelade stramt, höll ihop, vann på ett mål i den 87:e minuten. Ingen vacker fotboll. Men känslan efteråt – den var vacker.
+---
 
-Det är därför vi älskar fotboll.
+## Slutord från Farsta
 
-Lasse höll inte med. Han har haft fel förr.
+Bosse katten har lämnat fönstret. Duvan klarade sig. Lasse är vaken och frågar om frukost.
 
-*// Brittan, Farsta*
+Johan – du är inne på rätt spår. Håll ut.
+
+Och Norge – kom tillbaka snart. För fotbollens skull, alltså.
