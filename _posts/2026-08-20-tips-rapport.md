@@ -4,50 +4,40 @@ title: "VM-tips 2026-08-20"
 date: 2026-08-20
 ---
 
-# God morgon VM-vänner – 20 augusti 2026
+# VM-bloggen med Brittan | 20 augusti 2026
 
-*Från Farsta, med kaffe och mild irritation*
-
----
-
-Innan jag sätter igång med matcherna måste jag presentera mig. Jag är Britt-Marie Andersson, kallad Brittan. Pensionerad sportjournalist, bajare sedan födseln, gift med Lasse som tror att han förstår fotboll men mest förstår TV-soffan. Vi har katten Bosse, som lämnar rummet när det blir för dramatiskt.
-
-Jag startar den här bloggen för att VM pågår och för att någon måste hålla koll på tipset. Den uppgiften tar jag gärna på mig.
+*Det börjar likna en final, mina vänner. Fast turneringen är inte slut ännu.*
 
 ---
 
-## Nattens matcher
+God morgon från Farsta! Kaffet är drucket, Bosse katten har redan lämnat soffan med en min som sa "det händer ingenting intressant", och Lasse sover fortfarande. Han missade Frankrikes 4–6-förlust mot England i går. Det är lika bra det. Han hade blivit alldeles för uppspelt.
 
-**Sverige vann med 5–1 mot Tunisien.** Ja, ni hörde rätt. Fem–ett. Det finns ett Sverige igen, och det är inte det lammhudsmjuka Sverige som liksom hoppades på oavgjort mot vem som helst. Det är ett Sverige som gör mål. Det fick Lasse att höja sig ur soffan. Bosse stannade kvar i rummet. Det säger ändå något.
+## Nattens – och turneringens – avgörande matcher
 
-**Norge besegrade Irak med 4–1.** Jobbar metodiskt, effektivt, nordiskt. Håland ser för övrigt ut som om han drog hela laget framåt med bara sin blotta närvaro. Jag tittar för fotbollens skull. Det är noga med det.
+Herregud, vad det har hänt. Spanien vann till slut hela kalaset – 1–0 mot Argentina i finalen. Det var tajt, det var dramatiskt, och det var inte alltid vackert. Men vinnaren är vinnaren. La Roja håller upp bucklan. Det är fotboll.
 
-**Frankrike–Senegal slutade 3–1.** Vacker fotboll, lite arrogant, typiskt franskt. Inte fel det heller.
+Och England slog alltså Frankrike med 6–4. Sex-fyra! Det är inte fotboll, det är handboll med fötter. Härligt kaotiskt. Det hade aldrig hänt 1994. Eller jo – men då hade Ravelli räddat minst tre av dem.
 
-**England slog Kroatien med 4–2.** Gott. Äntligen spelar de fotboll och inte bara hopp-och-be.
-
-**Spanien–Kap Verde slutade 0–0.** Spanjorerna har sett bättre dagar. Det hade aldrig hänt 1994. Eller jo, men då hade det hänt med bättre frisyrer.
-
----
+Norge föll mot England i slutspelet med 1–2. Tråkigt. Verkligen tråkigt. Pojkarna kämpade, det ska de ha. Håland slogs som en björn hela turneringen. Han är… ja, han är en mycket dedikerad fotbollsspelare med väldigt bra kondition och så. Bara det.
 
 ## Tipskollen
 
-I toppen hittar vi **Mollie och Wilma** som delar ledningen med 166 rätt av 369. Stabilt och imponerande. Böjer på hatten.
+Mollie och Wilma delar ledningen med 166 rätt av 369. Välförtjänt. De läste turneringen som erfarna taktiker. Stark säsong, båda två.
 
-Men nu till det vi egentligen är här för.
+Andreas1 på 159, Caroline och Anna på 157 – det är stabila rader. Man behöver inte vara Einstein för att inse att det räcker långt.
 
-**J Nilsson har 132 rätt.** Sist i pelotongen, nästan. Johan, hjärtat säger att tanken bakom varje tips har varit rätt. Det är resultaten som strulade. Du tippade exempelvis Sverige–Japan till krysset och fick rätt – det visar att du har känsla. Att sedan Norge-Frankrike gick åt fel håll kan ingen förebrå dig. Frankrike är Frankrike.
+**Johan Nilsson** – min käre Johan – landar på 132 rätt. Det är inte turneringens bästa rad. Det vet vi båda. Men jag har följt hans tipslogik och jag kan berätta att det finns en inre konsekvens där som jag respekterar djupt. Han tippade Norge att gå långt. Det var modigt. Det var romantiskt. Det var fel. Men på ett väldigt sympatiskt sätt.
 
-**Andreas2 ligger sist med 121 rätt.** Det är ett modigt resultat på sitt sätt.
+## Dagens stolleprov
 
----
+Andreas2 på 121 rätt. Sista plats. Kärleksfullt sagt: det här var inte ditt VM, kompis. Men det finns alltid nästa gång. Det är därför vi älskar fotboll.
 
 ## Brittans fundering
 
-Sverige vann med fem mål. Norge vinner sina matcher. Bajen hade gjort det ännu snyggare, men laget finns inte i VM och det är en annan sorg för en annan bloggpost.
+Spanien vann. Bajen hade spelat vackrare. Det är inte en åsikt – det är ett grundvillkor.
 
-Det är därför vi älskar fotboll.
+Ha det fint, allihopa. Och tack för ett fantastiskt VM.
 
----
+*Lasse håller inte med om något av ovanstående. Han har haft fel förr.*
 
-*Hälsningar från Farsta. Lasse säger att Sverige bara hade tur. Han har haft fel förr.*
+🟢⚪ **BAJEN FOREVER** ⚪🟢
