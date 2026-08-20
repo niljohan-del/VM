@@ -4,40 +4,54 @@ title: "VM-tips 2026-08-20"
 date: 2026-08-20
 ---
 
-# VM-bloggen med Brittan | 20 augusti 2026
-
-*Det börjar likna en final, mina vänner. Fast turneringen är inte slut ännu.*
+# VM-dagbok med Brittan | 20 augusti 2026
 
 ---
 
-God morgon från Farsta! Kaffet är drucket, Bosse katten har redan lämnat soffan med en min som sa "det händer ingenting intressant", och Lasse sover fortfarande. Han missade Frankrikes 4–6-förlust mot England i går. Det är lika bra det. Han hade blivit alldeles för uppspelt.
+God morgon allihopa från Farsta!
 
-## Nattens – och turneringens – avgörande matcher
+Kaffet är påsatt, Bosse katten sover på Lasses tidning (som vanligt), och jag hann knappt sätta mig innan VM exploderade i ansiktet på oss igår. Vad var det egentligen som hände?
 
-Herregud, vad det har hänt. Spanien vann till slut hela kalaset – 1–0 mot Argentina i finalen. Det var tajt, det var dramatiskt, och det var inte alltid vackert. Men vinnaren är vinnaren. La Roja håller upp bucklan. Det är fotboll.
+---
 
-Och England slog alltså Frankrike med 6–4. Sex-fyra! Det är inte fotboll, det är handboll med fötter. Härligt kaotiskt. Det hade aldrig hänt 1994. Eller jo – men då hade Ravelli räddat minst tre av dem.
+## Nattens matcher – vad i hela världen?
 
-Norge föll mot England i slutspelet med 1–2. Tråkigt. Verkligen tråkigt. Pojkarna kämpade, det ska de ha. Håland slogs som en björn hela turneringen. Han är… ja, han är en mycket dedikerad fotbollsspelare med väldigt bra kondition och så. Bara det.
+Låt oss börja med det viktigaste: **Sverige förlorade mot Frankrike med 3–0** i slutspelet. Det svider. Det svider på ett gammalt, välbekant sätt som påminner om när man vet att det är slut men ändå hoppas. 1994 hade vi Brolin. Nu hade vi... tja. Vi hade hopp, åtminstone.
+
+Norge slog England med 1–2 och åkte sedan ut. Det är den sortens nordisk tragedi som är vacker på ett smärtsamt sätt. Norge kämpade. Norge höll ihopen. Och till slut gick det ändå åt skogen. Jag ska inte ljuga – jag hade tårar i ögonen. Det hade ingenting med Håland att göra. Ingenting alls.
+
+Spanien slog Argentina i finalen med 1–0. En mager seger, men en seger. Det är fotboll.
+
+---
 
 ## Tipskollen
 
-Mollie och Wilma delar ledningen med 166 rätt av 369. Välförtjänt. De läste turneringen som erfarna taktiker. Stark säsong, båda två.
+Tätt i toppen! **Mollie och Wilma delar ledningen med 166 rätt av 369**. Det är imponerande. Riktigt imponerande. Hattarna av.
 
-Andreas1 på 159, Caroline och Anna på 157 – det är stabila rader. Man behöver inte vara Einstein för att inse att det räcker långt.
+**Andreas1** på tredje plats med 159 är inte att förakta heller.
 
-**Johan Nilsson** – min käre Johan – landar på 132 rätt. Det är inte turneringens bästa rad. Det vet vi båda. Men jag har följt hans tipslogik och jag kan berätta att det finns en inre konsekvens där som jag respekterar djupt. Han tippade Norge att gå långt. Det var modigt. Det var romantiskt. Det var fel. Men på ett väldigt sympatiskt sätt.
+Längst ner hittar vi **Andreas2 med 121 rätt**. Käre Andreas2 – det finns en ny dag imorgon. Det finns alltid en ny dag.
 
-## Dagens stolleprov
+---
 
-Andreas2 på 121 rätt. Sista plats. Kärleksfullt sagt: det här var inte ditt VM, kompis. Men det finns alltid nästa gång. Det är därför vi älskar fotboll.
+## Johans rad – J Nilsson
+
+Johan. Min Johan. **132 rätt av 369.** Det är... inte bra. Det ska jag inte låtsas om.
+
+Men jag har granskat hans rad och vet ni vad? Johan tippade konsekvent. Han hade en tanke. Tanken var ibland fel, men den *fanns där*. Det är mer än man kan säga om en del andra.
+
+När Johan tippade Norge att vinna mot Senegal – och fick rätt – det var fotbollsmagkänsla av äkta slag. Resultatet som helhet gick inte hans väg. Men tanken var rätt.
+
+**Dagens stolleprov** går till den anonyma anda av feghet som tippade X på Canada–Qatar och sedan fick smaka 6–0. Det är inte ett kryss. Det är en kapitulation.
+
+---
 
 ## Brittans fundering
 
-Spanien vann. Bajen hade spelat vackrare. Det är inte en åsikt – det är ett grundvillkor.
+Spanien är världsmästare. Argentina är besegrade. England åkte ut för norska händer. Och Norge åkte ut för franska.
 
-Ha det fint, allihopa. Och tack för ett fantastiskt VM.
+Det finns något vackert i det ändå. Fotboll är orättvist, cirkulärt och totalt oemotståndligt.
 
-*Lasse håller inte med om något av ovanstående. Han har haft fel förr.*
+Bajen hade spelat det snyggare. Det är inte en åsikt.
 
-🟢⚪ **BAJEN FOREVER** ⚪🟢
+Lasse höll inte med. Han har haft fel förr.
