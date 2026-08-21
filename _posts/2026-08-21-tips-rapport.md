@@ -4,50 +4,48 @@ title: "VM-tips 2026-08-21"
 date: 2026-08-21
 ---
 
-# God morgon VM-vänner! Fredag den 21 augusti 2026 – och vilken natt det var!
+# God morgon VM-vänner – 21 augusti 2026!
 
-*Från Farsta, med kaffe i handen och Bosse katten i knät*
+Kaffe nummer två. Lasse sover fortfarande. Bosse katten sitter på min tidning och tittar på mig som om han vet något jag inte vet. Det gör han förmodligen.
+
+Sverige mötte Frankrike igår och förlorade 3–0. Jag säger inte att det var oväntat. Men jag säger att det svider. Det svider som ett bortaderby man visste man skulle förlora men hoppades på ändå. Sådant är fotboll. Sådant är livet.
 
 ---
-
-Det är **fredag**, mina vänner. Äntligen fredag. Lasse sover fortfarande. Kaffe nummer två är pågjutet. Och jag sitter här och försöker bearbeta vad som hände i natt.
-
-Och eftersom det är fredag: ta dig en **Norrlands Guld ikväll**. Enkel, pålitlig, rak. Precis som norsk fotboll.
 
 ## Nattens matcher
 
-Var ska man börja?
+Frankrike rullar på. 3–0 mot Sverige, 4–0 mot Irak – det är ett lag som vet vad det vill. Norge vann mot Senegal med 3–2, och jag lovar att det var för fotbollens skull jag tittade. Håland rörde sig med en naturlig elegans som påminner mig om... ja. Fjällen. Det är fjällen jag tänker på.
 
-**Sverige–Japan slutade 1–1.** Jag suckade. Sedan kom jag ihåg att vi faktiskt är kvar. Det finns något vackert i det. Inte mycket. Men något.
-
-**Spanien–Argentina** i finalen. 1–0. Spanjorerna vann VM. Tiki-taka lever, det är klart. Men hjärtat säger att Argentina borde ha vunnit. Messi är inte med längre, men arvet är. Det är därför vi älskar fotboll.
-
-**Frankrike–England 4–6** i semifinalen. Jag behövde skriva upp det tre gånger för att tro på det. Sex mål. Till England. Det hade aldrig hänt 1994. Eller jo. Men då hade det åtminstone hänt med bättre frisyrer.
-
-Och **Norge–Brasilien 2–1**. Jag säger inte att jag hoppade upp från soffan. Men Bosse katten hoppade upp från soffan. Av någon anledning. Håland syntes inte i den matchen (han spelar ju inte längre) men anden var där. Den nordiska, rakryggade, bergsfasta anden. Jag ska titta på de där glasögonen igen sedan.
-
-## Tipskollen
-
-**Mollie och Wilma leder** med 166 rätt av 369. Imponerande. Respekt. Jag bjuder er på en inbillad bärs.
-
-**Johan Nilsson** ligger på 132 rätt. Nu ska vi vara rättvisa: det här är ett extremt svårtippat VM. Johan har haft snäppet otur hela vägen – tippar X, det blir 1. Tippar 1, det blir X. Det är som att spela schack mot ett mygg. Tanken har ofta varit rätt. Bollarna har studsат fel.
-
-## Dagens ros
-
-**Mollie och Wilma** – ni har öga för fotboll. Raka, tydliga, modiga tips. Hatten av.
-
-## Dagens stolleprov
-
-**Andreas2** med sina 121 rätt. Käre Andreas. Det är inte din natt. Det har inte varit din turnering. Men du kommer tillbaka. Det gör vi alla.
-
-## Brittans fundering
-
-Spanien vann VM. Bra fotboll vann. Jag lever med det.
-
-Det påminner mig om 1994 – fast tvärtom. Då vann Brasilien. Då vann det vackra. Nu vann det taktiska. Men fotboll är fortfarande fotboll. Och Bajen hade ändå gjort det snyggare.
+Argentina krossar Algeriet 3–0. Spanien tar ut Frankrike ur turneringen med 2–1 i ett drömfinal av ett match. England åker ut mot Argentina. Paraguay slår ut Tyskland i en av de mest märkliga matcherna jag sett sedan – ja, sedan 1994 faktiskt. Och då hade åtminstone Brolin frisyren på sin sida.
 
 ---
 
-*Ha en fin fredag, allihopa. Ta en öl. Krama någon ni håller av.*
+## Tipskollen
 
-*– Brittan, Farsta*
+**Mollie och Wilma delar ledningen** med 166 rätt av 369. Det är imponerande. Jag applåderar. Hårt.
+
+Längst ner hittar vi **Andreas2 med 121 rätt**. Det finns en poesi i att tippa fel på det viset. Inte en vacker poesi. Men en poesi.
+
+---
+
+## Johans rad – J Nilsson
+
+Johan. Snälle Johan. 132 rätt av 369 placerar honom långt ner på listan, och det gör lite ont att skriva. Men Johan tippade rätt på Uzbekistan–Colombia tidigt, såg Skottland–Marocko komma och fick Paraguay–Australien. Det är en man med fotbollskänsla. Resultaten speglar det inte alltid. Men tanken finns där. Det är mer än vad man kan säga om en del andra.
+
+---
+
+## Dagens stolleprov
+
+Jag tänker inte peka ut någon specifik. Men den som tippade Paraguay att gå ut mot Australien, och sedan såg Paraguay slå ut Tyskland – den personen vet vem de är. Och det räcker.
+
+---
+
+## Brittans fundering
+
+Fotboll spelas av människor. Det glömmer vi ibland när vi fyller i våra rader och tror oss veta. Paraguay slår Tyskland 5–4. Ecuador slår ut Tyskland i gruppspelet. Världen är kaotisk och vacker och det är därför vi älskar det här.
+
+Bajen hade spelat med mer hjärta. Det är inte en åsikt.
+
+---
+
+*Lasse vaknade och frågade om Norge vann. Jag sa ja. Han nickade. Bosse katten lämnade rummet. Det säger ändå något.*
