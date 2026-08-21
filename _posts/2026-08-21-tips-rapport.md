@@ -6,58 +6,46 @@ date: 2026-08-21
 
 # God morgon VM-vänner – 21 augusti 2026!
 
-Kaffe. Halvt sovande Lasse i bakgrunden. Bosse katten som stirrar på mig som om jag gjort något fel. Och jag har precis plöjt igenom ett berg av matchresultat från ett VM som vägrar att bete sig.
-
-Det är fredag, mina vänner. **FREDAG.** Och det är dags för veckans längsta inlägg.
-
-Men först – presentationen. För den här bloggen är ny.
-
-Jag heter Britt-Marie Andersson. Kallad Brittan av alla som känner mig, och ett par som inte gör det. Jag är pensionerad sportjournalist från Farsta, gift med Lasse som tror att han förstår fotboll men mest förstår rallycross, och mor och mormor i ett hus som alltid luktar lite kaffe och lite katt. Jag har bevakat svensk fotboll i decennier. Jag var på plats 1994. Jag grät när Brolin gjorde sitt mål. Jag grät igen när vi tog brons. Jag skäms inte för det.
-
-Den här bloggen startar jag för att VM pågår och för att det finns ett gäng tippare där ute som behöver beröm, pik och ibland en kärleksfull känga i baken. Det ger jag gärna. Varje morgon. Med kaffe i handen och Bajen i hjärtat.
-
-Välkommen.
+Kaffe nummer två är pådrucket. Bosse katten sover på Lasses tidning. Lasse är sur. Jag bryr mig inte – **det var natt med fotboll av det slag som påminner mig om varför jag en gång valde bort ett jobb på Skansen för att bli sportjournalist.**
 
 ---
 
-## Nattens matcher – och de senaste dagarnas turbulens
+## Nattens matcher
 
-Var ska man börja.
+Var ska man börja?
 
-**Sverige 5–1 mot Tunisien.** Skönt. Rakt. Effektivt. Inte vackert som Bajen en bra dag på Söderstadion, men det funkade. Fem mål är fem mål.
+**Sverige förlorade mot Frankrike med 3–0.** Det gör ont. Men det gör mer ont att se hur vi kom dit – med Japan 1–1 och Nederländerna 5–1 i bakfickan. Det där 5–1:an mot Holland var en kalldusch. Bajens läktarkultur hade aldrig accepterat den sortens passivt defensivt halvhjärtat pladder. Men vi är ute nu, och det är som det är.
 
-Sen blev det jobbigare. **Frankrike 0–2 mot Spanien** i slutspelet – det kallas resultat. Spanien vann hela skiten. Jag respekterar det. Spanien spelar fotboll som om de har extra tid inbyggd i kroppen.
+**Norge besegrade Brasilien 2–1 i slutspelet.** Jag läser det igen. Norge. Slog. Brasilien. Jag höll nästan på att välta kaffekoppen. Håland – och ja, jag noterar att pojken presterar lika bra som han ser ut, vilket är synnerligen bra – var naturligtvis inblandad. Lasse frågade varför jag jublade. Jag sa att det var nordisk solidaritet. Han trodde inte på mig. Bosse lämnade rummet. Det säger ändå något.
 
-**England 1–2 mot Argentina i finalen.** Drama. Klassiker. Lite 1986 i luften, fast utan handen från Gud. Argentina vann VM. Messi-generationens arvtagare bär nu bucklan.
-
-Och **Norge** – mina kära norrmän – tog sig fram och visade framfötterna. Ivory Coast 1–2. Iraq 1–4. Brasilien föll mot dem med 1–2. Det är inte fjällen, det är inte arbetsmoral.
-
-Det är Håland.
-
-Jag tittar inte på Norge för Hålands skull. Det gör jag verkligen inte. Men jag har råkat läsa lite om de där glasögonen igen. Bågarna. De verkar praktiska.
-
-Lasse sa ingenting. Han visste bättre.
+**England vann till slut VM** genom att slå Frankrike 6–4 i finalen. Frankrike slog Spanien, Spanien slog Argentina. Det är en turnering som gett oss allt – målkalas, chockresultat och mer drama än vad Ravelli upplevde mot Rumänien 1994. Fast med sämre frisyrer.
 
 ---
 
 ## Tipskollen
 
-Poängtoppen ser ut såhär:
+Tabellen är spikad. Och i toppen sitter **Mollie och Wilma** med **166 rätt av 369** – axel mot axel som gamla lagkamrater. Det är imponerande. Det är rättvist. Det är värt en applåd.
 
-**Mollie och Wilma leder med 166 rätt av 369.** Imponerande. Stabilt. Snyggt jobbat, tjejer.
+**J Nilsson – alltså Johan** – har 132 rätt. Det ser tufft ut på pappret. Men titta på hans rad: han såg Qatar–Schweiz som ett kryss. Han tippade Norge rätt in i slutspelet. Han hade rätt matchkänsla många gånger – det är bara matchfotboll som ställde sig i vägen. Johan hade fel. Men på ett väldigt genomtänkt sätt.
 
-Sen följer Andreas1 (159), Caroline och Anna (157), Mats, Norman och Samuel L (156).
-
-Hedervärt. Men det är inte dem jag ska prata om.
+**Andreas2 med 121 rätt** hamnar sist. Det är en plats man förtjänar om man tippar med hjärtat i fel ficka hela turneringen. Jag säger det med värme. Lagom mycket värme.
 
 ---
 
-## Dagens ros – Johan Nilsson
+## Brittans fundering
 
-J Nilsson. **132 rätt av 369.**
+Det här VM gav oss norsk triumf, engelsk final och Sverige i tidig avresa. Det gav oss matcher vi minns. Det påminde mig om att fotboll inte är rättvist – men att det alltid är mänskligt.
 
-Ja, siffran ser inte bra ut. Jag ska inte ljuga om det.
+Och Norge slog Brasilien. Jag kan inte sluta tänka på det.
 
-Men jag har granskat Johans rad match för match, och jag kan säga er det här: Johan har en *tanke* bakom varje val. Ibland är tanken rätt. Ibland är den alldeles för ärlig för ett VM som inte förtjänar det.
+---
 
-Han tippade att Norge–Frankrike skulle bli
+## Slutord från Farsta
+
+Tack för det här VM, allihopa. Mollie och Wilma – välförtjänt. Johan – du är inte sist, och tanken var god hela vägen. Andreas2 – nästa turnering.
+
+Och Håland? Grattis, pojken. Vilken turnering. Jag tittar fortfarande på de där glasögonen. Det är fortfarande för att de verkar praktiska.
+
+*Bosse katten har återvänt. Det är ett gott tecken.*
+
+**/ Brittan, Farsta**
