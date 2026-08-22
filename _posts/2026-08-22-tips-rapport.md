@@ -4,48 +4,58 @@ title: "VM-tips 2026-08-22"
 date: 2026-08-22
 ---
 
-# VM-dagboken med Brittan: 22 augusti 2026 – Spanska drömmar och norska hjärteslag
+# God morgon VM-vänner – lördag 22 augusti 2026
 
-God morgon, VM-vänner!
+Kaffe. Halv sju. Farsta sover fortfarande men jag gör inte det.
 
-Brittan här, från Farsta, med kaffe i hand och Bosse i knät. Lasse sover fortfarande. Han missade Frankrike–England igår kväll. Hans förlust.
+Lasse mumlar något om att "det är ju lördag" och vänder sig mot väggen. Bosse katten sitter på fjärrkontrollerna och ser belåten ut. Jag sitter med matchlistan och ett milt kaos i bröstet.
+
+Det är VM. Självklart är jag vaken.
 
 ---
 
-## Nattens stora rubriker
+## Nattens matcher – eller rättare sagt: hela turneringens historia
 
-**Spanien vann VM-guld.** 1–0 mot Argentina i finalen. Methodiskt, vackert, lite skoningslöst. Det är fotboll på hög nivå, det är det. Inte Bajens sätt att göra det – vi hade gjort det med mer känsla och sämre ekonomi – men ändå. Man tar av sig hatten.
+Vi har nu 369 matcher spelat. Trehundrasextionio matcher. Jag bevakade VM 1994 från pressläktaren i Pasadena och ändå har jag aldrig sett ett sådant veritabelt kaos av resultat som det här VM producerat. Ecuador slår Tyskland. Paraguay slår – ja, *Paraguay slår* – ett tyskt lag med fem mål. Ned­erländerna förlorar mot Marocko med 3–4. Det är inte fotboll, det är konstinstallation.
 
-**Frankrike–England** slutade 4–6 i det som verkar ha varit en absurd semifinal. 4–6! Jag har sett underliga saker i det här spelet, men det där känns som om någon glömt stänga kranar i båda mål. Det var 1994 vi hade kontroll på sånt. Brolin hade inte tillåtit det.
+Sverige? Jo, Sverige körde på. 5–1 mot Tunisien i gruppen var vackert. Sedan fick vi 5–1 av Nederländerna, vilket var mindre vackert. Japan kryssade med oss. Frankrike körde över oss med 3–0. Ingen 1994-sommar den här gången, alltså.
 
-**Norge** tog sig hela vägen till semifinal innan England stoppade dem. 1–2. Jag är ledsen. Jag tittar inte på Norge för Hålands skull, det vill jag understryka. Jag tittar för fotbollens skull. Men det är ändå tråkigt. Pojken kämpade.
+Norge? Norge slog Brasilien. Norge SLOG BRASILIEN. Med 2–1. Jag satt och tittade tre gånger på highlightsen. Det är möjligt att Håland hade en viss roll i det hela. Jag noterar detta utan att göra ett stort nummer av det. Det är för fotbollens skull jag tittar. Bara för att vara tydlig.
 
-Lasse frågade varför jag satt med telefonen och läste om Hålands glasögon igen i morse. Jag sa att jag jämförde bågar. Han gick och hämtade mer kaffe utan att säga något. Det räcker.
+Spanien vann slutligen hela turneringen – 1–0 mot Argentina i finalen. En mållös final hade passat bättre för Bajen-plakat-estetiken, men ett mål är ju åtminstone ett mål.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma delar ledningen** – 166 rätt av 369. Det är imponerande. Rättvisa och skarpa. Hatten av.
+**Mollie och Wilma delar ledningen med 166 rätt av 369.** Det är 45 procent träffsäkerhet på det vildaste VM jag upplevt. Imponerande damer. Respekt.
 
-**J Nilsson** – det vill säga Johan – ligger på 132 rätt. Det är inte tabelltoppen, det ska erkännas. Men jag har följt hans rad och jag vet vad han försöker göra. Han tippade hjärta. Han tippade logik. Att Spanien tar hem det – det såg han. Att Norge–England gick åt fel håll, det var inte fel tanke, bara fel kväll.
+**J Nilsson** – ja, det är vår Johan – ligger på **132 rätt**. Det ser tufft ut. Men jag har läst hans rad och jag säger som jag alltid säger: Johan har inte tippat fel, han har tippat modigt. Han trodde på Australien när andra kröp till korset med krysset. Han trodde på Paraguay. Ibland går det illa när man har fotbollshjärta. Det är inte Johans fel att Ecuador slog Tyskland.
 
-**Andreas2** på 121 rätt. Jag säger inget mer. Jo, ett sak: mod är fint, men man måste också ha lite rätt ibland.
+---
+
+## Dagens ros
+
+**Mollie och Wilma** – oavsett vad som händer i livet är det alltid skönt när någon har koll. Grattis.
 
 ---
 
 ## Dagens stolleprov
 
-Den som tippade 2 på Frankrike–England och fick 2 – alltså England vann – och ändå hamnar långt ner i tabellen förtjänar ett visst igenkänningens leende. Fotboll spelas av människor. Ibland konstiga sådana.
+**Andreas2 – 121 rätt av 369.** Kära Andreas. Var du på semester? Jag frågar med kärlek. Det händer oss alla. Typ.
 
 ---
 
 ## Brittans fundering
 
-Det finns något vackert i ett VM-slut. Alla har kämpat. Spanien vann. Argentina förlorade med värdighet. Norge kom längre än de flesta trodde.
+Fotboll är orättvist. Det är därför vi älskar det. Ecuador slår inte Tyskland i en rättvis värld. Men världen är inte rättvis, och fotboll är inte matematik.
 
-Och Bajen? De är fortfarande bäst. Det är inte ett resultat. Det är ett grundvillkor.
+Bajen hade spelat med mer hjärta. Det är inte en åsikt.
 
-Ha en fin lördag, allihopa. Lasse winkar. Bosse bryr sig inte.
+---
 
-*– Brittan, Farsta*
+*Lasse sover. Bosse katten äter. Och jag ska ta en till kopp kaffe och tänka på om de där glasögonbågarna verkligen passar mitt ansikte.*
+
+*Ha det fint, VM-vänner. Vi ses imorgon.*
+
+**// Brittan, Farsta**
