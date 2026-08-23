@@ -4,58 +4,52 @@ title: "VM-tips 2026-08-23"
 date: 2026-08-23
 ---
 
-# VM-dagboken 23 augusti 2026 – Spanien är mästare, Norge är kärlek och Johan behöver semester
+# God morgon VM-vänner – 23 augusti 2026
 
-God morgon från Farsta!
+Kaffe nummer två. Bosse katten sover på tidningen. Lasse frågar om jag sett hans glasögon. Jag har inte sett hans glasögon. Jag tittar på fotboll.
 
-Kaffe nummer två är påtaget, Bosse katten har redan lämnat soffan i protest mot vad som hände med Norge igår, och Lasse sov genom hela finalen. Det säger sig självt.
+Det är en solig söndagsmorgon i Farsta och VM rullar vidare som ett tåg utan bromsar.
 
 ---
 
-## Nattens stora händelse
+## Nattens (och helgens) matcher
 
-**Spanien slår Argentina med 1–0 och tar hem VM-guldet.**
+Sverige–Frankrike. Tre noll. Jag ska inte låtsas som att det inte svider. Det gör det. Men det finns en skönhet i hur Frankrike spelade – flytande, kaxigt, med den där galenska kombinationsfotbollen som påminner mig om när Brolin dansade sig förbi Rumänien 1994. Fast det var Sverige som dansade då, förstås.
 
-Jag har sett VM sedan 1974. Jag vet hur det känns när ett lag vinner med klass och utan ursäkter. Det här var ett sådant lag. Spanien spelade fotboll som Bajen drömmer om att spela – passningssäkert, modigt, vackert. Det finns något vackert i det.
+Och Norge? Norge slår Brasilien med 2–1. **Norge slår Brasilien.** Jag fick nästan hosta upp morgonkaffet. Håland och hans grabbarna springer rakt igenom sydamerikansk magi som om det vore en träning i Trondheim. Det finns något oerhört tillfredsställande med det. Nordisk arbetsmoral. Raka rör. Vackert.
 
-Argentina kämpade. De är alltid farliga. Men den dagen var Spanien bättre.
+(Lasse påstår att jag log när Håland syntes på skärmen. Det stämmer inte. Jag hade bara fått kaffe i halsen.)
 
-Och sedan Norge då. **Norge–England: 1–2** i semifinal. Det svider. Det svider på ett nordiskt, nästan fjällsäkert sätt. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Men pojken kämpade. Det ska han ha.
-
-Lasse frågade varför jag satt med ansiktet i kudden på halvlek. Jag sa att det var allergi.
-
-Och Sverige då – **5–1 mot Tunisien** i gruppspelet, **1–1 mot Japan** – ett sådant turnering. Inte 1994. Men Brolin hade nog nickat gillande åt målen i alla fall.
+Spanien vinner till slut turneringen – 1–0 mot Argentina i finalen. En mäktig final. Argentina kämpade som lejon. Men Spanien var vassa som rakblad och Argentina fick betala priset.
 
 ---
 
 ## Tipskollen
 
-Ledningen: **Mollie och Wilma delar toppen med 166 rätt av 369.** Det är starkt. Riktigt starkt. Grattis till er båda – det krävs antingen stor fotbollskunskap eller förödande tur. Jag misstänker en blandning.
+Ledartabellen: **Mollie och Wilma delar ledningen med 166 rätt av 369.** Stark. Riktigt stark. De har läst det här VM som en bok de redan sett slutet på.
 
-**J Nilsson – 132 rätt av 369.**
+Andreas1 på 159, Caroline och Anna på 157. Hederliga siffror. Man behöver inte vara Einstein för att se att toppen är kompakt.
 
-Johan. Käre Johan. Jag vet att du jobbade hårt med de här tipsen. Det märks på variationen. Det märks på känslan. Det märks tyvärr också på resultatet.
-
-Norge–Frankrike tippade Johan X. Det slutade 1–4 till Frankrike. *Typiskt.* Ändå – Johan såg något i Norge. Det är romantikerns förbannelse. Man tror på de rätta lagen vid fel tidpunkt.
+Och längst ner? **Andreas2 med 121 rätt.** Kära nån. Det är inte ett tippande – det är ett lidande. Jag säger det med värme, Andreas. Det finns hopp. Fotboll spelas av människor, och tippar gör vi också.
 
 ---
 
-## Dagens ros 🌹
+## Johans rad – J Nilsson
 
-**Mollie och Wilma** – topp gemensamt, 166 poäng. Imponerande. En av er bjuder väl på en öl?
+132 rätt av 369. Det är... inte Johans bästa VM.
 
-## Dagens stolleprov 🤦
+Men jag ska säga såhär: Johan tippade på Norge att ta sig igenom, och Norge tog sig igenom. Han kände lukten av norsk fotboll på avstånd. Det är inte alla förunnat.
 
-**Andreas2 – 121 rätt av 369.** Inte för att vara elak. Men 121 av 369 är... ett resultat. Man behöver inte vara Einstein för att tippa X på Brasilien–Marocko. Men man får heller inte vara för modig varje gång.
+Att han sedan bommade på en del England-matcher och fastnade i Sydafrika-snurran är en annan historia. Tanken var rätt, Johan. Resultaten lite mindre rätt.
 
 ---
 
 ## Brittans fundering
 
-Spanien är världsmästare. Argentina är besvikna. Norge är ute. Och Johan tippar på med hjärtat.
+Spanien vann VM. Det är rätt. Men vet ni vad? Bajen hade gjort det snyggare.
 
 Det är därför vi älskar fotboll.
 
-**Bosse katten har återvänt till soffan. Det är ett gott tecken.**
+Ha en fin söndag, allihop. Bosse katten har nu lagt sig på TV-fjärrkontrollen. Lasse har hittat sina glasögon. Livet är okej.
 
 *– Brittan, Farsta*
