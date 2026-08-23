@@ -6,58 +6,56 @@ date: 2026-08-23
 
 # God morgon VM-vänner – 23 augusti 2026
 
-Kaffe nummer två. Bosse katten ligger på fjärrkontrollen. Lasse sover fortfarande. Det regnar i Farsta.
+Kaffe på. Bosse katten stirrar på mig som om han vet något jag inte vet. Lasse sover fortfarande. Det är grått i Farsta men hjärtat är fullt av fotboll.
 
-VM rullar vidare.
+Vilket VM det är.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det viktigaste: **Sverige–Japan slutade 1–1.** Jag säger ingenting. Jo, jag säger en sak. Det räcker inte. Det har aldrig räckt. Men det finns något vackert i att Japan inte ger sig, det ska de ha.
+Spanjorerna vann till slut. Det tar sin tid, men det händer. Argentinerna marscherar på som ett tåg man inte vill stå framför. Frankrike likaså. England vann finalen. Över Frankrike. 6–4. Det är inte fotboll, det är teater.
 
-**Norge vann mot Elfenbenskusten med 2–1.** Lugn, kontrollerad, norsk. Håland-fritt den här matchen, men andan finns där. Den nordiska arbetsmoral som aldrig sviker. Jag tittar inte på Norge för Hålands skull. Det vet ni ju.
+Det finns något vackert i det. Och något lite skrämmande.
 
-**Frankrike körde över Marocko med 2–0** i slutspelsdramatiken. Les Bleus är ett finmaskigt maskineri. Lite kallt. Lite för effektivt. Bajen hade gjort det snyggare.
+Norge vann mot Brasilien. 2–1. Jag skriver det igen: **Norge vann mot Brasilien.** Jag vet inte om det är fjällen, arbetsmoralen eller någon annan nordisk egenskap jag inte kan sätta fingret på, men Norge är ett lag man ska ha respekt för. Lasse sa att det var otur för Brasilien. Han har haft fel förr.
 
-**Spanien slog Argentina med 1–0** i finalen. Tiki-taka lever. Det är därför vi älskar fotboll.
+Sverige förlorade mot Frankrike med 3–0 och mot Nederländerna med 5–1. Det gör ont. Men det är inte 1994 längre. Hade vi haft Brolin och Dahlin hade det sett annorlunda ut. Möjligen.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma** delar ledningen med 166 rätt av 369. Imponerande. Respekt till dem båda – de tippade utan att blinka.
+Mollie och Wilma leder på 166 rätt av 369. Starkt. Imponerande till och med. Andreas1 på 159 och Caroline och Anna kniper 157 vardera. Det är ett tätt gäng i toppen.
 
-**Andreas1** på 159 och **Caroline och Anna** på 157 – ett litet kluster av ambitiösa tippare som nästan hänger med. Nästan.
+Och sedan har vi **J Nilsson på 132 rätt**.
 
-Längst ned i tabellen hittar vi **Andreas2 med 121 rätt**. Jag säger bara att det är ett djärvt sätt att delta i ett tips-SM.
+Johan. Hjärtat mitt. Det är inte ditt bästa VM hittills. Du har tippat Frankrike att göra det Johan inte förväntar sig, tippat kryss när det borde vara 1:or, och ibland tvärtom. Men tanken bakom tipsen är ofta rätt. Fotbollsförståelsen finns där. Det är bara utfallen som inte lyssnat.
+
+Det är därför vi älskar fotboll.
 
 ---
 
-## Johans rad – J Nilsson
+## Dagens ros
 
-**Johan landar på 132 rätt av 369.** Det är... ett resultat. Johan, du har hjärtat på rätt ställe. Du tippade Argentina rakryggat. Du tog dig an Mexiko med självförtroende. Men Norge? Du trodde på oavgjort mot Frankrike, inte en gång utan *upprepade gånger*. Tanken var rätt, Johan. Timingen var fel. Det händer de bästa.
+Mollie och Wilma – ni delar ledningen och ni förtjänar beröm. Det är inte lätt att hänga i toppen under ett helt VM. Hatten av.
 
-Resultatet blev inte som Johan trodde. Matcherna borde däremot ha blivit det.
+---
+
+## Dagens stolleprov
+
+Andreas2 på 121 rätt av 369. Det är ungefär ett rätt på tre. Man behöver inte vara Einstein för att förstå att något gått snett i tipskalkylerna. Jag säger inte att jag har lösningen. Men.
 
 ---
 
 ## Brittans fundering
 
-1994 spelade vi inte final. Men vi tog brons och hela Sverige dansade. Kennet, Brolin, Dahlin – de förstod vad fotboll handlar om: känsla, gemenskap, stolthet.
+Norge slog Brasilien. Håland sprang som ett lokomotiv mot mål, armarna ute, hakan fram. Det är fotboll. Rakt, enkelt, effektivt. Som Bajen som bäst.
 
-Den känslan saknar jag ibland i det här mästerskapet. För mycket kalkyl. För lite hjärta.
-
-Utom hos Norge förstås.
+Det finns bara ett Bajen. Men just nu finns det också ett Norge.
 
 ---
 
-## Slutord från Farsta
+Heja på och tippa klokt. Bosse har lämnat rummet. Det säger ändå något.
 
-Bosse har nu lämnat fjärrkontrollen och lagt sig på mina noter. Det säger ändå något.
-
-Lasse vaknade och frågade om det var Norge som vann igår. Jag sa att det var det. Han såg nöjd ut. Han vet inte varför jag följer dem så noga.
-
-Det gör jag heller inte riktigt.
-
-*Ha det bra, VM-vänner. Det är därför vi älskar fotboll.*
+*– Brittan, Farsta*
