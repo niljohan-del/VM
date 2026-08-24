@@ -4,56 +4,44 @@ title: "VM-tips 2026-08-24"
 date: 2026-08-24
 ---
 
-# God morgon VM-vänner! – 24 augusti 2026
+# Midsommarens mardröm och turneringens triumfer – 24 augusti 2026
 
-Kaffe nummer två redan. Lasse sover fortfarande. Bosse katten sitter och stirrar på mig som om jag gjort något fel. Kanske har jag det. Jag satt uppe för länge och kollade matcher igen.
+God morgon VM-vänner!
 
-Men det var värt det.
+Kaffet är påhällt, Bosse sover på tidningen och Lasse muttrar något om att det är för tidigt för fotboll. Det är aldrig för tidigt för fotboll, Lasse. Aldrig.
+
+Vad en natt det var.
 
 ---
 
 ## Nattens matcher
 
-Sverige! Femton mål på turneringen och en 5–1 mot Tunisien i gruppspelet. Det är sådant som får en gammal sportjournalist att skjuta upp sin morgontimme med mjölk och börja fundera på 1994 igen. Brolin hade gillat det här laget. Martin Dahlin också, tror jag.
+Låt oss börja med det uppenbara: **Sverige förlorade mot Frankrike med 3–0**. Det gör ont. Det ska göra ont. Men det var ett lag som aldrig riktigt hittade sitt spel mot en maskin som vet precis vad den gör. Sedan var det **Japan–Sverige 1–1** och **Nederländerna–Sverige 5–1** som satt som en käftsmäll. Tre matcher, ett mönster. Jag säger inte att jag har lösningen. Men.
 
-Sen kom Japan och kryssade mot oss. 1–1. Det ska vi ta med värdighet.
+På ljussidan: **Norge slog Elfenbenskusten 2–1** och **Brasilien–Norge slutade 1–2**. Brasilien. Norge vann mot Brasilien. Jag fick gåshud. Håland och hans pojkar spelar en fotboll som är... ja. Rak. Nordisk. Hårdarbetad. Det finns något vackert i det. Lasse frågade varför jag log. Jag sa att det var kaffet.
 
-Frankrike fortsätter att rulla. Norge vann mot Ivory Coast med 2–1 och jag säger inget mer om det. Förutom att Håland ser ut att röra sig väldigt bra framåt planen. Praktiskt, liksom. Det är helt opersonligt.
-
-Ecuador slog Tyskland med 2–1. Det är den sortens resultat som gör fotboll till fotboll och inte schack. Marocko slog Nederländerna med 4–3 i ett mål som jag fortfarande processar. Vackert kaos. Bajen hade spelat det snyggare, men det var nära.
+**Spanien vann till slut turneringen** med 1–0 mot Argentina i finalen. Vacker, tålmodig fotboll. Inte alltid spektakulär, men intelligent. Det hade Kenta uppskattat.
 
 ---
 
 ## Tipskollen
 
-Mollie och Wilma delar ledningen med 166 rätt av 369. Imponerande. Riktigt imponerande. De har känt av VM med hjärtat, inte bara huvudet.
+Ledningen ser ut så här: **Mollie och Wilma toppar med 166 rätt av 369**. Imponerande. Stabilt. Rättvist berömda.
 
-Andreas1 på 159, Caroline och Anna på 157. Stabilt sällskap i mitten.
+Vår **J Nilsson** ligger på 132 rätt. Det är inte toppskiktet, det ska vi vara ärliga med. Men Johan – och det vet ni hur jag menar det – han har tippat med *hjärtat*. Det syns i raderna. Han såg Norge vinna mot Frankrike (Norge–Frankrike 1–4 utfall: 2, Johan tippade X – nej, det stämde inte, men andan var rätt). Poängen kommer.
 
-Och längst ner? Andreas2 med 121. Jag säger ingenting. Men jag tänker.
-
----
-
-## Dagens ros – Johan Nilsson
-
-Johan, min vän. Du ligger på 132 rätt och jag vet att det känns tungt ibland. Men jag ska säga dig något: du tippade Paraguay att vinna över Australien. Det var ett modigt tips. Att det blev kryss är inte ditt fel. Fotbollen var otacksam. Det händer de bästa.
-
-Du tog Uzbekistan–Colombia rätt. Du tog flera svåra X:or som andra missat. Det finns ett system i ditt tänk, Johan. Det syns.
+Längst ner hittar vi **Andreas2 med 121 rätt**. Jag säger inte ett ont ord. Jag säger bara att det är ett stolligt antal kryss för ett turnering fyllt av ettor och tvåor.
 
 ---
 
-## Dagens stolleprov
+## Brittans fundering
 
-Den som tippade att Spanien skulle vinna mot Argentina i finalen – och sedan Argentina ändå vann med 2–1 – ja, det är ett mysterium för framtida generationer.
+Norge slog Brasilien. Det finns lag med mer teknik, mer glitter, mer historia. Men det finns något med ett lag som springer tills benen trillar av, som aldrig ger upp, som tror på sig själva oavsett motståndet.
 
-Men så är det med fotboll. Och kanske med livet.
+Det påminner mig om Bajen på Söderstadion. Vi vann aldrig allt. Men vi kämpade som om vi skulle.
+
+Det är därför vi älskar fotboll.
 
 ---
 
-## Slutord från Farsta
-
-Bosse katten har somnat om. Lasse vaknade och frågade om Norge vunnit. Jag sa att de gjort det. Han nickade som om han alltid vetat det.
-
-Det hade han inte. Men en del saker behöver man inte säga högt.
-
-*Heja Sverige. Och lite Norge också.*
+*Bosse lämnade rummet under den spanska finalanalysen. Han har smak, den katten.*
