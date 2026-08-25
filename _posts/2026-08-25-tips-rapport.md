@@ -4,56 +4,60 @@ title: "VM-tips 2026-08-25"
 date: 2026-08-25
 ---
 
-# God morgon VM-vänner – 25 augusti 2026
+# God morgon VM-vänner – 25 augusti 2026!
 
-Kaffe nummer två är påtaget. Bosse katten sover på Lasses jackfickor. Ute i Farsta är det grått som ett oavgjort resultat.
-
-Det passar egentligen bra, för det var ganska många kryss igår också.
+Kaffet är påsatt, Bosse sover på tidningen och Lasse muttrar något om att det regnade i natt. Farsta vaknar långsamt. Men Brittan sover aldrig under ett VM.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja?
+Sverige mot Japan slutade 1–1. Jag ska inte ljuga – det skaver lite. Vi är inte ute, men vi är inte riktigt inne heller. Det är den sortens kryss som Brolin aldrig hade accepterat. Han hade tagit en klack och avgjort i 88:an. Men fotboll spelas av människor, som jag brukar säga. Och ibland av lite för försiktiga sådana.
 
-**Sverige–Frankrike slutade 0–2.** Det svider. Frankrike var för klassa, för snabba, för allt. Men vi ska inte ge upp. Det är VM. Det händer saker.
+Norge vann mot Frankrike. 4–1. Fyra mål. Mot Frankrike. Jag satt upprätt i soffan halv tre på natten och kände något som jag bara kan beskriva som nordisk stolthet. Håland var naturligtvis inblandad. Pojken har något. Något väldigt... praktiskt. Lasse frågade varför jag log. Jag sa att jag tyckte om passningsspelet.
 
-**Norway–England slutade 1–2.** Jag säger inte att det gör ont. Men det gör lite ont. Håland kämpade. Pojken ger aldrig upp. Det finns något nordiskt och vackert i det, som att klättra ett fjäll i regn och ändå ta en bild från toppen.
-
-**Spanien–Argentina slutade 1–0.** Det var en final värd namnet. Spanskt passningsspel mot argentinskt hunger. Spanien tog det, men Argentina förlorade inte riktigt sin värdighet. Det är inte illa det.
-
-**England–Argentina slutade 1–2.** Det där hade de inte väntat sig på Wembley. Argentina är ett lag som inte ger sig. Det är därför vi älskar fotboll.
-
-**Frankrike–England slutade 4–6.** Förlåt, jag måste läsa om det. **4–6.** Det händer inte ens i gamla derbyn på Söderstadion. Det är galenskap. Det är magi. Det är fotboll.
+Frankrike besegrades alltså av Norge. Och sedan gick Spanien och vann hela turneringen. Slutresultat: Spanien slår Argentina i finalen med 1–0. Argentina som hade slagit England. England som hade slagit Norge. Det är fotboll. Det är livet. Det är därför vi älskar det här.
 
 ---
 
 ## Tipskollen
 
-I topp sitter **Mollie och Wilma** – båda på 166 rätt av 369. Grattis. Det är solida siffror. Välförtjänta.
+I toppen hittar vi **Mollie och Wilma** med 166 rätt av 369. Respekt. Det är stabilt och modigt och de förtjänar varje poäng.
 
-**Johan Nilsson** – käre Johan – sitter på 132 rätt. Det är, hur ska man säga det, inte en topp-placering. Men Johan är inte en statistik. Johan är ett förhållningssätt. Han tippade modigt, han tippade med känsla, och en del av de felaktiga tipsen var egentligen korrekta analyser som bollens gud avgjorde på ett orättvist sätt. Resultaten ljuger ibland. Johan ljuger aldrig.
+Sen kommer **Andreas1 med 159**, **Caroline och Anna med 157** vardera. Fin klass.
 
-**Andreas2 landar på 121 rätt.** Det är sist. Det är bottenstädigt. Jag säger det med kärlek. Men någon måste säga det.
+---
+
+## Dagens ros: Johan Nilsson
+
+**J Nilsson: 132 rätt av 369.**
+
+Jag vet vad ni tänker. Men hör på mig nu.
+
+Johan har kämpat. Johan har tippat med hjärtat. Han tippade Norge rätt i flera avgörande matcher – och det säger mer om fotbollsförstånd än en rad lyckade kryss. Hans rad är inte perfekt, men den är *äkta*. Och det finns något vackert i det.
+
+---
+
+## Dagens stolleprov
+
+**Andreas2: 121 rätt av 369.**
+
+Käraste Andreas. Man behöver inte vara Einstein för att tipa VM. Men man behöver kanske titta på lite mer fotboll och lite mindre annat. Jag säger det med värme. Och lite syrlighet.
 
 ---
 
 ## Brittans fundering
 
-Frankrike–England. 4–6. I 1994 spelade vi vackert, strukturerat, med Brolin som drog igenom som en skarp vind. I dag verkar VM ha glömt att locket kan sitta på.
-
-Jag gillar det. Det är oordning med passion. Bajen hade känt igen sig.
+Norge slog Brasilien under gruppspelet. Norge besegrar Frankrike. Och ändå – Håland lyfter inget VM-guld. Det är tragiskt på ett sätt som bara nordisk litteratur kan rättfärdiga. Ibland räcker det inte med arbetsmoral och vackra ögon. Ögon som skulle passa utmärkt i, säg, ett par riktigt bra infattningar. Jag säger inte mer.
 
 ---
 
 ## Slutord från Farsta
 
-Lasse frågade vad jag tyckte om att Håland inte lyckades avgöra mot England.
+Spanien är världsmästare. Argentina fick se sig besegrade i finalen. Fotbollen är orättvis och fantastisk och jag älskar den obetingat.
 
-Jag sa att det inte spelar någon roll vem som gör mål, det är laget som räknas.
+Bosse har lämnat soffan. Det säger ändå något.
 
-Han såg inte övertygad ut.
-
-Det är därför vi älskar fotboll.
+Bajen hade gjort det hela snyggare.
 
 *– Brittan, Farsta*
