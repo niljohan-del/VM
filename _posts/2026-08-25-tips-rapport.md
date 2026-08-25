@@ -4,60 +4,68 @@ title: "VM-tips 2026-08-25"
 date: 2026-08-25
 ---
 
-# God morgon VM-vänner – 25 augusti 2026!
+# VM-dagbok med Brittan | 25 augusti 2026
 
-Kaffet är påsatt, Bosse sover på tidningen och Lasse muttrar något om att det regnade i natt. Farsta vaknar långsamt. Men Brittan sover aldrig under ett VM.
+*Skrivet vid köksbordet i Farsta, med tredje koppen kaffe och Bosse i knäet*
+
+---
+
+God morgon, VM-vänner!
+
+Jag heter Britt-Marie Andersson – Brittan för de flesta – och det är dags att presentera mig ordentligt. Pensionerad sportreporter. Hammarbyhjärta. Farsta-inbyggd sedan evigheter. Gift med Lasse, som tål det mesta. Katten Bosse, som tål ännu mer.
+
+Jag startade den här bloggen för att någon måste säga som det är. Utan omsvep. Med kärlek till fotbollen och lagom mycket sarkasm mot dem som tror att ett krysstips är ett modigt val.
+
+Välkomna. Nu kör vi.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Japan slutade 1–1. Jag ska inte ljuga – det skaver lite. Vi är inte ute, men vi är inte riktigt inne heller. Det är den sortens kryss som Brolin aldrig hade accepterat. Han hade tagit en klack och avgjort i 88:an. Men fotboll spelas av människor, som jag brukar säga. Och ibland av lite för försiktiga sådana.
+Sverige–Japan slutade 1–1. Jag satt uppe. Lasse sov. Det var rätt beslut av båda.
 
-Norge vann mot Frankrike. 4–1. Fyra mål. Mot Frankrike. Jag satt upprätt i soffan halv tre på natten och kände något som jag bara kan beskriva som nordisk stolthet. Håland var naturligtvis inblandad. Pojken har något. Något väldigt... praktiskt. Lasse frågade varför jag log. Jag sa att jag tyckte om passningsspelet.
+Norge vann mot Ivory Coast med 2–1. Självklart. Det är något med det nordiska – en råhet, en vilja, en... ja. Håland styrde sin sida som en vikingahövding med glasögon som jag förresten kollade upp lite noggrannare igår kväll. Av ren nyfikenhet. Inget annat.
 
-Frankrike besegrades alltså av Norge. Och sedan gick Spanien och vann hela turneringen. Slutresultat: Spanien slår Argentina i finalen med 1–0. Argentina som hade slagit England. England som hade slagit Norge. Det är fotboll. Det är livet. Det är därför vi älskar det här.
+Spanien körde över Frankrike i slutspelet – 2–0 i den stora semifinalen. Elegant och kyligt. Frankrike, som slog ut Norge i sin match, är ändå ute. Det finns en rättvisa i fotboll ibland.
+
+England åkte ut mot Argentina med 1–2. Tre lejon. En kramp. Det där hade aldrig hänt 1994. Eller jo. Men då hade det hänt med bättre frisyrer.
 
 ---
 
 ## Tipskollen
 
-I toppen hittar vi **Mollie och Wilma** med 166 rätt av 369. Respekt. Det är stabilt och modigt och de förtjänar varje poäng.
+Mollie och Wilma leder med 166 rätt av 369. Imponerande. De spelar på magkänsla och det syns. Snyggt gjort, tjejer.
 
-Sen kommer **Andreas1 med 159**, **Caroline och Anna med 157** vardera. Fin klass.
+Andreas1 på tredje plats med 159. Stabilt.
+
+Längst ner sitter **Andreas2 med 121 rätt**. Det är ett lägre antal än vad man bör erkänna offentligt.
 
 ---
 
-## Dagens ros: Johan Nilsson
+## Johans rad – J Nilsson, 132 rätt
 
-**J Nilsson: 132 rätt av 369.**
+Johan. Min Johan. 132 rätt av 369 är inte ett tal man ramar in och hänger på väggen.
 
-Jag vet vad ni tänker. Men hör på mig nu.
+Men jag förstår hans logik. Han tippade Norge rätt i sin grupp, höll fast vid Argentina – och det var rätt tänkt. Problemet är att han konsekvent missar kryssen. I ett VM med kryss som tapeter är det ödesdigert.
 
-Johan har kämpat. Johan har tippat med hjärtat. Han tippade Norge rätt i flera avgörande matcher – och det säger mer om fotbollsförstånd än en rad lyckade kryss. Hans rad är inte perfekt, men den är *äkta*. Och det finns något vackert i det.
+Johan hade fel på ett väldigt genomtänkt sätt.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2: 121 rätt av 369.**
-
-Käraste Andreas. Man behöver inte vara Einstein för att tipa VM. Men man behöver kanske titta på lite mer fotboll och lite mindre annat. Jag säger det med värme. Och lite syrlighet.
+Heimbrand med 130 rätt. Andreas2 med 121. Jag säger inte mer. Jo, ett sak: det finns kryss i världen som är modiga. Dessa verkar inte vara av den sorten.
 
 ---
 
 ## Brittans fundering
 
-Norge slog Brasilien under gruppspelet. Norge besegrar Frankrike. Och ändå – Håland lyfter inget VM-guld. Det är tragiskt på ett sätt som bara nordisk litteratur kan rättfärdiga. Ibland räcker det inte med arbetsmoral och vackra ögon. Ögon som skulle passa utmärkt i, säg, ett par riktigt bra infattningar. Jag säger inte mer.
+Fotboll spelas av människor. Det är det vackra. Spanien–Argentina i final. Det vet vi inte än – men det luktar det. Som en final borde lukta.
+
+Bajen hade gjort det snyggare.
 
 ---
 
-## Slutord från Farsta
+*Lasse frågade varför jag googlade glasögonbågar igen. Jag sa att jag jämförde priser. Han såg inte övertygad ut. Bosse lämnade rummet. Det säger ändå något.*
 
-Spanien är världsmästare. Argentina fick se sig besegrade i finalen. Fotbollen är orättvis och fantastisk och jag älskar den obetingat.
-
-Bosse har lämnat soffan. Det säger ändå något.
-
-Bajen hade gjort det hela snyggare.
-
-*– Brittan, Farsta*
+**Brittan, Farsta**
