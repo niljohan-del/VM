@@ -4,46 +4,52 @@ title: "VM-tips 2026-08-26"
 date: 2026-08-26
 ---
 
-# God morgon VM-vänner – 26 augusti 2026!
+# VM-dagbok med Brittan – 26 augusti 2026
 
-Kaffe på. Bosse katten sitter i fönstret och stirrar på en duva med en intensitet som påminner mig om hur Ravelli brukade hålla koll på straffläget. Lasse sover fortfarande. Han missar alltid det bästa.
+**God morgon VM-vänner!**
+
+Välkomna till min blogg. Jag heter Britt-Marie Andersson, men alla kallar mig Brittan. Pensionerad sportjournalist från Farsta, gift med Lasse, sällskapat av katten Bosse, uppvuxen med Bajens grön-vita färger i hjärtat. Jag har bevakat svensk fotboll i decennier, sett det mesta – och nu när VM är här kan jag inte låta bli att sätta mig vid köksbordet varje morgon, hälla upp kaffet och skriva ner vad jag tänker. Det är det här bloggen är. Ärlig, varm, ibland syrlig. Precis som en bra derby på Söderstadion.
 
 ---
 
 ## Nattens matcher
 
-Herregud, vilket dygn.
+Sverige mot Frankrike. 3–0. Jag säger inte att det var chockerande. Frankrike har klass på klass på klass. Men att se blågult gå ut på det viset gör något med en gammal sportshjärta. 1994 hade det inte slutat så. Då hade Brolin hittat ett hål. Dahlin hade sprungit sig fri. Ravelli hade räddat det omöjliga. Nu var det bara… kallt.
 
-Sverige fick stryk av Frankrike med 3–0. Det gör ont. Det gör ont på ett sätt som bara den som stått på Söderstadion i novemberregn kan förstå. Men det är fotboll. Och fotboll spelas av människor – även om fransmännen just nu spelar som om de är något mer.
+Men se på Norge! Iraq–Norway 1–4. Och sedan Norway–Senegal 3–2. Pojkarna från norr visar framfötterna. Det är rak, nordisk fotboll med muskler och vilja. Inget snicksnack. Det finns något vackert i det. Att Håland dessutom springer som en vikingahövding över planen är ju... irrelevant. Jag kollade på matchen för fotbollens skull.
 
-**Norge–England**: 1–2. Jag ska inte påstå att det inte svider. Pojkarna från fjorden förtjänade mer. Erling spelade... ja. Han spelade. Snygg är han. Jag menar, effektiv. Han är effektiv. Lasse frågade varför jag satt och läste om de där Lindberg-båge glasögonen igen. Jag sa att det handlade om UV-skydd. Han såg inte övertygad ut.
-
-**Spanien–Argentina**: 1–0, final. Där har ni det. Argentina fick smaka på hur det känns att möta ett lag som faktiskt kan fotboll. Det finns något vackert i det. Spansk passningsfotboll på sin bästa dag påminner mig om vad vi hoppades att Sverige skulle göra i Pontiac 1994. Vi hoppades. Martin Dahlin levererade. Resten är historia.
+Spanien mot Argentina i finalen. 1–0. Det är Europa mot Sydamerika. Det är rätt. Det är VM.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma** leder med 166 rätt av 369. Respekt. Verkligen. De har tippat med en konsistens som får mig att undra om de har insiderkontakter eller bara är genuint duktiga på det här. Troligtvis det senare.
+Ledningen delas av **Mollie** och **Wilma** – 166 rätt av 369. Snyggt jobbat, tjejer. Särskilt Wilma, som jag anar har en magkänsla som sitter bättre än de flesta herrars matematiska modeller.
 
-**J Nilsson** – det vill säga Johan – sitter på 132 rätt. Det är inte tabelltoppen, och det vet Johan också. Men jag har följt hans rad noga, och det finns en tanke bakom. En struktur. En logik. Problemet är att fotbollen inte alltid bryr sig om logik. Det visste redan Kennet Andersson.
+Och sedan har vi **J Nilsson** – Johan – med 132 rätt. Sist i ligan. Men jag vägrar skriva av honom. Johan tänker fotboll, det syns i raderna. Att han missade Brazilien–Marocko, Norge–Frankrike och halva slutspelet är mest... otur. Tanken var rätt. Resultaten var inte det. Det har hänt bättre folk.
 
-Johan, du hade rätt om Argentina. Du hade rätt om Spanien. Du hade rätt om Portugal. Att det trillade ur händerna på dig i Norge-matcherna och i gruppspelet – det är inte slarv, det är otur. Det är därför vi älskar fotboll.
+---
+
+## Dagens ros
+
+**Mollie och Wilma** delar äran idag. 166 poäng. Det är ingen slump. Det är läsning av fotboll.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2** på 121 rätt. 121. Av 369. Jag säger inte att jag har lösningen. Men jag vet att man inte behöver vara Einstein för att se att något gick snett redan i gruppspelet.
+**Andreas2** – 121 rätt. Av 369 matcher. Det är inte ett tipsresultat. Det är en performance art-installation om fotbollens oförutsägbarhet. Jag säger det med kärlek.
 
 ---
 
 ## Brittans fundering
 
-Norge åkte ut för tidigt. Sverige åkte ut för tidigt. Men det var ett VM som gav oss matcher att minnas.
+Spanien vann VM. Frankrike gick långt. Norge visade hjärta. Sverige åkte ut för tidigt.
 
 Bajen hade gjort det snyggare.
 
-Ha en fin dag allihopa. Skål för fotbollen – och för dem som fortfarande tror.
+Lasse höll inte med. Han har haft fel förr.
 
-*– Brittan, Farsta*
+Bosse katten lämnade rummet när jag sa det. Det säger ändå något.
+
+*Brittan från Farsta – kaffe, katt och kärlek till fotbollen.*
