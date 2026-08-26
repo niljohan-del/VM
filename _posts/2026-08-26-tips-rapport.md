@@ -4,52 +4,44 @@ title: "VM-tips 2026-08-26"
 date: 2026-08-26
 ---
 
-# VM-dagbok med Brittan – 26 augusti 2026
+# VM-dagboken med Brittan | 26 augusti 2026
 
 **God morgon VM-vänner!**
 
-Välkomna till min blogg. Jag heter Britt-Marie Andersson, men alla kallar mig Brittan. Pensionerad sportjournalist från Farsta, gift med Lasse, sällskapat av katten Bosse, uppvuxen med Bajens grön-vita färger i hjärtat. Jag har bevakat svensk fotboll i decennier, sett det mesta – och nu när VM är här kan jag inte låta bli att sätta mig vid köksbordet varje morgon, hälla upp kaffet och skriva ner vad jag tänker. Det är det här bloggen är. Ärlig, varm, ibland syrlig. Precis som en bra derby på Söderstadion.
+Kaffe nummer två är pådrucket. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på en duva med ett uttryck som säger "jag har sett bättre." Jag förstår honom.
 
 ---
 
 ## Nattens matcher
 
-Sverige mot Frankrike. 3–0. Jag säger inte att det var chockerande. Frankrike har klass på klass på klass. Men att se blågult gå ut på det viset gör något med en gammal sportshjärta. 1994 hade det inte slutat så. Då hade Brolin hittat ett hål. Dahlin hade sprungit sig fri. Ravelli hade räddat det omöjliga. Nu var det bara… kallt.
+Var ska man börja?
 
-Men se på Norge! Iraq–Norway 1–4. Och sedan Norway–Senegal 3–2. Pojkarna från norr visar framfötterna. Det är rak, nordisk fotboll med muskler och vilja. Inget snicksnack. Det finns något vackert i det. Att Håland dessutom springer som en vikingahövding över planen är ju... irrelevant. Jag kollade på matchen för fotbollens skull.
+**Sverige förlorade mot Frankrike med 3–0.** Och mot Nederländerna med 5–1. Och spelade 1–1 mot Japan. Det är inte en turnering, det är en psykologisk prövning. 1994 kom vi trea i världen. Nu vet jag inte ens hur vi kom hit. Jag älskar det svenska landslaget. Men ibland älskar man saker som gör ont.
 
-Spanien mot Argentina i finalen. 1–0. Det är Europa mot Sydamerika. Det är rätt. Det är VM.
+**Norge slog däremot Brasilien med 2–1.** Jag upprepar: Norge. Brasilien. 1–2. Erling Håland stampade runt på planen som om han precis stigit ner från ett fjäll och bestämt sig för att ta landet. Jag tittar inte på Norge för hans skull. Det vet alla. Men pojken har något. Jag ska inte säga vad.
+
+*(Lasse frågade igen varför jag läser om de där glasögonbågarna. Jag sa att det gäller UV-skyddet. Han köper det inte.)*
+
+**Spanien tog guld.** Argentina fick böja sig i finalen. 1–0. Snyggt, disciplinerat, irriterande effektivt. Det finns något vackert i det. Lite grann.
 
 ---
 
 ## Tipskollen
 
-Ledningen delas av **Mollie** och **Wilma** – 166 rätt av 369. Snyggt jobbat, tjejer. Särskilt Wilma, som jag anar har en magkänsla som sitter bättre än de flesta herrars matematiska modeller.
+Ledningen delas av **Mollie och Wilma** – båda på **166 rätt av 369**. Det är imponerande. Det är också lite irriterande att det är ett delat ledarskap, för nu kan jag inte vara syrlig mot någon av dem utan att råka vara syrlig mot båda. Det sparar jag till nästa vecka.
 
-Och sedan har vi **J Nilsson** – Johan – med 132 rätt. Sist i ligan. Men jag vägrar skriva av honom. Johan tänker fotboll, det syns i raderna. Att han missade Brazilien–Marocko, Norge–Frankrike och halva slutspelet är mest... otur. Tanken var rätt. Resultaten var inte det. Det har hänt bättre folk.
+**J Nilsson – alias Johan** – sitter på **132 rätt av 369**. Det är inte bra. Jag ska inte ljuga. Men Johan tippade med hjärtat, och det respekterar jag. Resultaten har inte alltid följt tanken, men tanken har ofta varit på rätt plats. Det är ganska mycket det, i fotboll som i livet.
 
----
-
-## Dagens ros
-
-**Mollie och Wilma** delar äran idag. 166 poäng. Det är ingen slump. Det är läsning av fotboll.
-
----
-
-## Dagens stolleprov
-
-**Andreas2** – 121 rätt. Av 369 matcher. Det är inte ett tipsresultat. Det är en performance art-installation om fotbollens oförutsägbarhet. Jag säger det med kärlek.
+**Andreas2** landar på **121 rätt**. Sista plats. Jag säger inte att det är synd. Men det är lite synd.
 
 ---
 
 ## Brittans fundering
 
-Spanien vann VM. Frankrike gick långt. Norge visade hjärta. Sverige åkte ut för tidigt.
+Frankrike–England slutade 4–6. Fyra–sex. På en VM-semifinal. Bajen hade aldrig tillåtit det. Bajen hade stängt butiken vid 3–0 och gått hem och lagat mat.
 
-Bajen hade gjort det snyggare.
+Det är därför vi älskar fotboll.
 
-Lasse höll inte med. Han har haft fel förr.
+Ha en fin dag, allihopa. Bosse katten har lämnat fönstret. Det säger ändå något.
 
-Bosse katten lämnade rummet när jag sa det. Det säger ändå något.
-
-*Brittan från Farsta – kaffe, katt och kärlek till fotbollen.*
+*– Brittan, Farsta*
