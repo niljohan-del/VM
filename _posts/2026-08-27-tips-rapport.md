@@ -6,54 +6,48 @@ date: 2026-08-27
 
 # God morgon VM-vänner – 27 augusti 2026
 
-Kaffe. Två koppar. Lasse sover fortfarande.
-
-Bosse katten sitter i fönstret och stirrar på en duva med den där blicken som säger att han vet något vi inte vet. Ungefär som en bra fotbollstränare. Ungefär som Bajen förra säsongen.
-
-Men nog om det. Vi har matcher att gå igenom.
+Kaffe nummer två är pådrucket, Bosse katten har redan hoppat upp i fönstret och stirrar på en duva, och Lasse sitter och läser tidningen som om inget hänt. Men det har hänt. Det har hänt en hel del.
 
 ---
 
 ## Nattens matcher
 
-**Sverige–Frankrike slutade 0–3.** Jag säger inte att det var oväntat. Men det gjorde ont. Frankrike är ett fantastiskt lag och Sverige kämpade – men mot Mbappé och co är det lätt hänt. Blågult är ute ur turneringen. Det klämmer till lite i bröstet. 1994 var det annorlunda. Då hade vi Brolin, Dahlin och en sommar som aldrig tog slut.
+Sverige vann med 5–1 mot Tunisien. Jag säger det igen. **5–1.** Jag hade tårar i ögonen och det erkänner jag öppet. Sedan åkte vi ur mot Frankrike i slutändan, men ögonblicket var verkligt. Det var 1994-vibbar i luften – inte helt lika goda frisyrer, men nästan lika mycket känsla.
 
-**Spanien–Argentina slutade 1–0.** Finalen vi förtjänade. Vacker, taktisk, stenhård fotboll. Spanien vann. Argentina åkte hem. Det finns en rättvisa i det. Eller kanske inte. Men det finns något vackert i det.
+**Norge slog Brasilien med 2–1** i slutskedet. Jag ska inte säga att jag hoppade upp från soffan. Men Lasse sa att soffan skakade. Håland var... ja. Han var Håland. Det finns något nordiskt och ofrånkomligt över honom. Som ett vattenfall. Som en fjällvägg. Jag tittar inte på honom för utseendets skull. Det vill jag ha sagt.
 
-**Norge–Frankrike slutade 1–4.** Frankrike rullade på. Norge kämpade. Håland var... ja. Håland var Håland. Jag säger ingenting mer om det. Lasse frågade varför jag suckade. Jag sa att det var för att Norge förlorade. Han såg inte övertygad ut.
+**Spanien vann slutligen** hela turneringen. Frankrike föll i finalen med 6–4, och det var dramatik på nivåer som inte borde vara tillåtna för en 70-årig pensionärs hjärta. Men vi klarade det. Jag och Bosse.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma leder med 166 rätt av 369.** Imponerande. Hattarna av, ladies.
+I toppen hittar vi **Mollie och Wilma** på delad ledning med **166 rätt av 369**. Imponerande. Riktigt imponerande. Chapeau.
 
-**J Nilsson – det vill säga Johan – har 132 rätt.** Det är inte toppen av listan. Det är inte ens mitten. Men Johan är Johan, och jag vet att han har tänkt djupare på varje match än vad siffrorna visar. Resultaten har inte alltid följt med. Det gör de sällan för dem som verkligen förstår fotboll.
-
-**Andreas2 sitter sist med 121 rätt.** Jag säger inget elakt. Men det är ett resultat som talar för sig självt.
+**Johan Nilsson** landar på **132 rätt**. Det är inte toppen av tabellen. Det vet Johan. Det vet vi alla. Men jag har granskat hans rad, och det är en rad full av *tankar*. Han tippade rätt på flera svåra matcher – Uruguay–Spanien, Panama–Kroatien, Skottland–Marocko – men Norges märkliga svängar och Spaniens krystmatcher ställde till det för honom. Det är inte Johans fel att fotboll är orättvis. Tanken var ofta rätt. Bollen ville annorlunda.
 
 ---
 
 ## Dagens ros
 
-Mollie och Wilma delar topplatsen. Tajt, elegant och utan att skrävla. Det gillar jag.
+**Mollie och Wilma** delar äran idag. Jag vet inte hur ni gör det. Jag vet inte om det är system, magkänsla eller något mellanting. Men ni gör det rätt. Hatten av, eller vad man nu tar av på sommaren.
 
 ---
 
 ## Dagens stolleprov
 
-Johan tippade Norge att ta poäng mot Frankrike. Tre gånger. Känslan var rätt. Håland-entusiasmen kanske lite väl stor. Men tanken var hjärtlig.
+**Andreas2 – 121 rätt.** Käre Andreas. Sist i ligan. Det är siffror som gör ont att titta på. Jag är säker på att du är en fin människa. Men tipsen... tipsen behöver vi prata om. I lugn och ro. Gärna med en kopp kaffe.
 
 ---
 
 ## Brittans fundering
 
-Det är snart slut på det här VM:et. Spanien är mästare. Frankrike visade klass. Sverige kämpade. Norge... Norge hade Håland.
+Det sägs att fotboll är ett spel om resultat. Men det är det inte. Det är ett spel om vad som *kunde* ha blivit. Om de matcherna som inte gick som man tänkt sig, men som innehöll en sanning ändå.
 
-Jag har inte beställt de där glasögonen ännu. Men jag har kollat leveranstiden.
+Norge slog Brasilien. Sverige vann med fem mål. Spanien vann VM. Och någonstans i Farsta satt en gammal sportreporter och kände att det fortfarande är värt allt.
 
-Bajen hade spelat finalen snyggare. Det är inte en åsikt. Det är ett grundvillkor.
+Bajen hade spelat det snyggare. Men det är en annan historia.
 
-*Ha en fin dag, allihop. Drick vatten. Och krama någon du håller av.*
+---
 
-**– Brittan, Farsta**
+*Ha en fin dag, VM-vänner. Lasse hälsar. Bosse hälsar inte – han sover.*
