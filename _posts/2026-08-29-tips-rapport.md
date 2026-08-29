@@ -4,50 +4,50 @@ title: "VM-tips 2026-08-29"
 date: 2026-08-29
 ---
 
-# God morgon VM-vänner – 29 augusti 2026
+# God morgon VM-vänner – 29 augusti 2026!
 
-Kaffe nummer två är påtaget, Bosse sover på Lasses tidning och utomhus i Farsta är det höst fast kalendern inte riktigt bestämt sig. Det spelar ingen roll. Det har spelats fotboll i natt och det är allt som räknas.
+Kaffe nummer två är pådrucket, Bosse katten sover på fjärrkontrollen och Lasse påstår att han inte behöver se fler VM-matcher den här veckan. Han har haft fel förr.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det viktigaste: **Sverige–Frankrike slutade 0–3** och det gör ont. Inte förvånande, men ont ändå. Frankrike är ett väloljat maskineri och vi fick lära oss det på hårt sätt. Japan och Sverige spelade 1–1 tidigare i turneringen – det kändes som ett hederligt kryss. Det *är* ett hederligt kryss. Jag håller fast vid det.
+Sverige! Fem–ett mot Tunisien! Jag vet inte om jag ska gråta eller sjunga. Jag gjorde lite av varje, ska jag erkänna. Sen kom smällen: Frankrike körde över oss 3–0. Och Nederländerna? 5–1. Det svider. Men pojkarna gav oss en stund, och det får räcka.
 
-**Norge slog Senegal 3–2.** Jag säger det igen. Norge slog Senegal 3–2. Med hjärta, kämparglöd och – ja, inte ska jag ljuga – förmodligen lite Håland-magi. Pojken levererar. Det är inte därför jag tittar på Norge. Men det hjälper inte direkt att han ser ut som han gör när han jublar. Lasse kommenterade ingenting. Klokt av honom.
+Norge vann mot Elfenbenskusten med 2–1 i en match jag inte alls tittade på för Hålands skull. Jag tittade för fotbollens skull. Att pojken springer som om han just skuttat från en vikingalångbåt är en sak jag inte kan kontrollera.
 
-**Ecuador slog Tyskland 2–1** och det var en av nattens riktiga överraskningar. Tyskland med sju mål mot Curaçao i gruppspelet och sedan åker man ut på det viset. Fotboll spelas av människor, inte av statistik.
-
-**Spanien vann hela VM** – finalen mot Argentina slutade 1–0. Det var en turnering som bjöd på allt: Brasil som föll mot Norge (1–2!), England mot Frankrike i en vild 4–6-historia, och Argentina som ändå inte tog hem det. Vad ett mästerskap.
+Spanien vann till slut hela turneringen. 1–0 mot Argentina i finalen. Jag har sett värre. Men jag har sett bättre. Det finns något vackert i att ett lag kan vinna med ett mål, utan att spela feg fotboll. Det är därför vi älskar fotboll.
 
 ---
 
 ## Tipskollen
 
-I topp sitter **Mollie och Wilma** med 166 rätt av 369. Imponerande, välförtjänt, och jag hissar hatten.
+Mollie och Wilma leder med 166 rätt av 369. Det är imponerande. Tjejer, ni gör gammal dam stolt.
 
-**Johan Nilsson** hittar vi på 132 rätt – och jag ska vara ärlig: det är inte strålande. Men det är heller inte rättvist. Johan har tippat med huvudet, med logiken på sin sida. Det är bara det att fotbollen den här gången inte lyssnat på logiken. Det har hänt bättre människor.
-
-Johan fastnade i ett mönster: han tippade Norge som kryss gång på gång, och Norge vägrade samarbeta. Det är inte Johans fel att Norge blev turneringens gladaste överraskning. Det är Hålands fel. Ungefär.
+Johan Nilsson – min kära Johan – ligger på 132 rätt. Det är inte toppen, det ska jag inte ljuga om. Men om ni tittar på hans rad: han har tippat med hjärtat. Mexiko vinnare, Argentina hela vägen, Norge varje gång. Mannen har principer. Att utfallen ibland blev annorlunda är fotbollens fel, inte Johans.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** delar äran. 166 rätt är riktigt bra tipsat. En av er borde bjuda den andra på en öl.
+Andreas2 med 121 rätt kan se hoppfull ut – men nej, roset går till Mollie och Wilma. Solida, konsekventa, modiga. Hatten av.
 
 ---
 
 ## Dagens stolleprov
 
-Den stackaren som gång efter annan tippade Paraguay att vinna – och fick se dem åka ut tidigt. Jag säger inte vem. Men de vet om det själva.
+Johan tippade Norge att slå Frankrike i gruppen – och fick X. Sen tippade han X igen – och fick 2. Sen tippade han X en tredje gång. Det börjar likna något Bosse katten skulle ha gjort om han gick på tangenterna. Men Johan, jag älskar dig ändå.
 
 ---
 
 ## Brittans fundering
 
-Spanien vann. Med ordning, skicklighet och taktik. Det är rätt. Men hjärtat? Hjärtat var hos Norge som slog Brasilien. Det hade aldrig hänt 1994. Eller – nej, då hade Ravelli räddat straffarna och Brolin sett glad ut. Annorlunda tider.
+Spanien vann VM 2026. Det är inte 1994. Det var ingen Brolin, ingen Dahlin, ingen Kennet som nickade Sverige till brons. Men det var ändå fotboll. På riktigt.
 
-Bajen hade spelat vackrare. Det är inte en åsikt.
+Bajen hade spelat det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
 
-Ha en fin dag, allihop. Lasse vinkar från köket. Bosse bryr sig inte.
+---
+
+*Ha det gott, Farsta. Vi ses imorgon bitti – med kaffe, Bosse och ännu mer åsikter.*
+
+**– Brittan**
