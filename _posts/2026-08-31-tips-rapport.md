@@ -4,48 +4,61 @@ title: "VM-tips 2026-08-31"
 date: 2026-08-31
 ---
 
-# God morgon VM-vänner! | 31 augusti 2026
+# God morgon, VM-vänner! Måndag 31 augusti 2026 – och världen är fortfarande rund
 
-*– Blogginlägg nummer ett från Farsta*
+Kaffe nummer två är påfyllt. Bosse katten sover på tidningen. Lasse sover fortfarande. Och jag har redan hunnit bli både glad, upprörd och lätt konfunderad av gårdagens VM-resultat.
 
----
-
-Låt mig presentera mig själv, för det förtjänar ni.
-
-Jag heter Britt-Marie Andersson. Brittan, för de flesta. Pensionerad sportjournalist, Hammarbyhjärta och bosatt i Farsta sedan fler år än jag tänker räkna. Jag är gift med Lasse, som sällan håller med mig om fotboll men som kokar kaffe utan att bli tillfrågad. Det förtjänar respekt. Vi har katten Bosse, som är en dålig fotbollspublik men en utmärkt soffsällskap.
-
-Jag har följt fotboll sedan 1970-talet. Jag var i USA 1994 och grät när Brolin sköt mot Rumänien. Jag har sett Bajen vinna och förlora på sätt som ingen psykolog kan förklara. Och nu sitter jag här, pensionär med för mycket åsikter och för lite att göra, och startar en VM-blogg.
-
-Välkomna. Ni kommer inte ångra er. Förmodligen.
+Det är alltså fotboll. Det är därför vi älskar det.
 
 ---
 
-## Nattens matcher – eller: vad i herrans namn hände?
+## Nattens matcher
 
-Var ska man börja.
+Var ska man börja?
 
-**Sverige–Japan slutade 1–1.** Jag satte mig ner med kaffet, kollade resultatet och sade ingenting på tre minuter. Lasse frågade om jag mådde bra. Japan är ett bra lag, ja. Men ett kryss? Det finns något i Sverige som inte riktigt vaknar förrän det är försent. Det visste vi redan från Råsunda 1994, fast då vann vi ändå till slut.
+**Sverige vann mot Tunisien med 5–1** i gruppspelet. Fem mål. Fem. Jag fick tårar i ögonen och behövde hålla i kaffekoppen med båda händerna. Det där var inte sönderanalyserad ryggradslös passningsfotboll – det var framåt, det var mod, det var glädje. 1994 års anda lever.
 
-**Norge vann mot Irak 4–1** och mot Senegal 3–2. Sedan förlorade de mot Frankrike 1–4 och mot England 1–2. Norge är det laget som ger dig hoppet och tar det tillbaka i samma andetag. Jag tittar på Norge för fotbollens skull. Att en viss spelare med glasögonsponsor och vikingakäkar råkar vara inblandad kan jag inte rå för.
+Sen kom Japan och visade att Sverige inte är opåverkbara. **Japan–Sverige slutade 1–1.** Rättvist? Kanske. Surt? Absolut.
 
-**Spanien vann turneringen.** Det är jag som förstod det. Spanskt kombinationsspel med en final mot Argentina som slutade 1–0. Vackert. Sorgligt för Argentina, men fotboll är inte alltid rättvist. Det visste vi redan 1994.
+**Frankrike spankulerade vidare** och ser ut som ett lag som vet vad de vill. Tre matcher, tre segrar mot Senegal och Irak. Vackert och lite skrämmande på samma gång.
+
+Och **Norge**. Mina kära norrmän. Slår Irak med 4–1, slår Senegal med 3–2, och tar sig vidare. Håland var... ja. Han var Håland. Jag säger inget mer. Lasse frågade varför jag log åt telefonen. Jag sa att det var väderleksrapporten. Han köpte det inte.
 
 ---
 
 ## Tipskollen
 
-Poängtoppen leds av **Mollie och Wilma** med 166 rätt av 369 spelade. Det är respektabelt. Det är riktigt bra, faktiskt. Jag bockar huvudet.
+**Mollie och Wilma leder med 166 rätt av 369.** Det är solitt. Det är respektabelt. Det är irriterande för alla andra.
 
-Längst ned hittar vi **Andreas2** med 121 rätt. Jag säger inget elakt. Men 121 är ett antal som kräver eftertanke.
+Sen följer en tät klase med Andreas, Caroline, Anna, Mats, Norman och Samuel L – alla runt 156–159. Det är ett peloton värt att ha ögonen på.
+
+Längst ner hittar vi **Andreas2 med 121 rätt.** Stackare. Jag säger inget mer. Jo, ett: det finns hopp i fotboll, alltid.
 
 ---
 
-## Johan – J Nilsson med 132 poäng
+## Johan – vad säger vi?
 
-Nu till hjärtats sak.
+**J Nilsson: 132 rätt av 369.**
 
-Johan hamnar på 132 rätt och det är inte bra. Det vet han. Men låt mig säga något om Johan: killen **tippade rätt på Uzbekistan–Colombia**, vilket i princip ingen annan vågade. Han hade rätt på **Qatar–Schweiz**. Han prickade **Panama–Kroatien**. Det finns en fotbollshjärna här. Den är ibland felinriktad, men den finns.
+Johan. Käre Johan. Jag vet att du försöker. Jag vet att du tänker. Det syns på raderna – det är eftertanke bakom tipsen, det är magkänsla och resonemang. Men Norge? Han tippade kryss mot Senegal och kryss mot Frankrike. Kryss. När Håland springer som en fjällvind tippar man inte kryss, Johan.
 
-Problemet med Johan är att han har för bra magkänsla för att lita på den hela vägen. Han tippar kryss på Mexiko och Sydkorea och sedan vinner Mexiko med 1–0. Tanken var rätt. Utfallet var fel. Fotboll är orättvist på det sättet.
+Resultatet blev inte som Johan trodde. Matcherna borde däremot ha blivit det.
 
-Johan, det lö
+---
+
+## Brittans fundering
+
+Det finns något vackert i ett VM där underdogarna vinner och favoriterna snubblar. Ecuador slog Tyskland. Paraguay slog Australien till slut. Det där påminner mig om att fotboll spelas av människor – inte av kalkylblad.
+
+Bajen hade gjort det snyggare. Men vad vet jag.
+
+---
+
+## Slutord från Farsta
+
+Håll i hatten. Håll i kaffekoppen. Och håll ögonen på tabellen.
+
+Bosse katten gick och lade sig framför TV:n igen. Han vet vad han vill se.
+
+*Brittan*
+*(Farsta, med utsikt mot ett grått men kärkommet höstväder)*
