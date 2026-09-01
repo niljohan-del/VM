@@ -4,52 +4,52 @@ title: "VM-tips 2026-09-01"
 date: 2026-09-01
 ---
 
-# God morgon VM-vänner! Tisdag 1 september 2026 – och det händer saker
+# God morgon VM-vänner! – 1 september 2026
 
-Kaffe nummer två är påtaget. Bosse katten sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Världen är sig lik, men VM är det inte – i natt hände det grejer.
+Kaffe nummer två är påfyllt. Bosse katten sitter i fönstret och stirrar på en duva. Lasse sover fortfarande. Och jag har suttit uppe för länge och kollat resultat.
+
+Det är därför vi älskar fotboll.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja?
+Sverige–Tunisien slutade 5–1. Fem mål. Jag satt uppe och skrek så att Bosse hoppade av stolen. Det är inte 1994 – Brolin och Dahlin är inte i laget – men det finns något vackert i en seger som den. Rakt, hårt, ärligt. Bajens anda, om man vill vara sentimental. Det vill jag.
 
-**Sverige–Japan slutade 1–1.** Jag har sett det förut. Vi är bra nog att inte förlora, och inte bra nog att vinna när det väl gäller. Det finns något tragiskt vackert i det. Brolin hade aldrig accepterat det. Men det var 1994, och världen var en annan plats.
+Norge slog Irak 4–1. Norge–Senegal 3–2. Jag säger inte att jag följer Norge för någon speciell spelares skull. Jag följer dem för fotbollens skull. Att laget råkar innehålla en viss norrlänning med imponerande fysik och glasögon som ser ut att vara gjorda för en person med mycket god ansiktsform... det är en detalj.
 
-**Norge slog Frankrike 1–2.** Ja, ni läste rätt. Norge. Vann. Mot Frankrike. Jag säger ingenting om Håland. Ingenting alls. Jag tittar på fotboll för fotbollens skull. Att det råkar se ut som en vikingahövding springer runt och gör mål kan jag inte hjälpa.
+Lasse frågade varför jag läste om de där bågreklamen igen. Jag sa att jag jämförde material. Han såg inte övertygad ut.
 
-**Spanien vann finalen mot Argentina 1–0.** En hel turnering. En mästare. Vacker, kontrollerad, ibland irriterande effektiv fotboll. Bajen hade spelat det snyggare, men Bajen är inte med i VM. Det är ett annat problem.
+Spanien–Argentina slutade 1–0 i finalen. Spanjorerna vann. Frankrike–England 4–6 i semifinal. Sjutton mål på två matcher under slutskedet. Fotboll spelas av människor, och ibland av väldigt trötta sådana.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma leder** med 166 rätt av 369. Det är imponerande. Det är också lite irriterande när man inte vet vilka de är. Bra magkänsla, det kan man inte ta ifrån dem.
+Mollie och Wilma delar toppen med **166 rätt av 369**. Häpnadsväckande. Imponerande. Lite irriterande, ärligt talat, men det ska de ha.
 
-**Johan Nilsson – J Nilsson på listan – har 132 rätt.** Det är inte toppen, det ska jag inte ljuga om. Men jag har följt Johans rad och jag vet vad jag ser: en man som tänker på rätt sätt. Han tippade korrekt på Paraguay–Australien, på Uzbekistan–Colombia, på Panama–Kroatien. Det är inte slentrian. Det är fotbollskänsla. Att utfallen ibland gick åt ett annat håll är inte Johans fel. Det är fotbollens fel.
+Andreas1 på 159, Caroline och Anna på 157. Det är en tät mittfåra och den rör sig.
 
-**Andreas2 ligger sist med 121 rätt.** Det är modigt att ens lämna in en rad. Jag respekterar det. Lite.
+Vår Johan Nilsson? Han sitter på **132 rätt**, lite längre ner i tabellen än jag önskat. Men jag ska säga detta om Johan: han har haft *rätt tankar*. Norge–Senegal som ettan – han var inne på det men tippade kryss. Matchen borde ha slutat annorlunda. Ibland straffar fotbollen de kloka.
+
+---
+
+## Dagens ros
+
+Mollie och Wilma – ni ska ha en stor applåd från Farsta. Det är modiga, träffsäkra rader och ni hänger med trots ett turbulent VM. Hatten av.
+
+---
+
+## Dagens stolleprov
+
+Andreas2 på **121 rätt**. Kära Andreas2. Det finns ingen skam i att ha dålig magkänsla. Men 121 av 369 är... ja. Jag säger inte att jag har lösningen. Men.
 
 ---
 
 ## Brittans fundering
 
-Norge slog alltså Brasilien 2–1 i gruppspelet. Sedan Frankrike. Det är inte en slump. Det är nordisk karaktär. Arbetsmoral. Och möjligen glasögon med rätt bågar.
+Sverige gör 5–1 och Norge går vidare. Bajen hade spelat ännu vackrare. Det är inte en åsikt, det är ett grundvillkor.
 
-Lasse frågade varför jag googlade "Håland Specsavers rabattkod" igår kväll.
-
-Jag sa att jag hade dammigt i ögonen.
-
-Han såg inte övertygad ut.
-
----
-
-## Slutord från Farsta
-
-Det är VM. Det är september. Det är fotboll.
-
-Och Bajen är fortfarande bäst – oavsett vad tabellen säger om någonting annat.
-
-Ha en fin tisdag, allihopa. 🖤💚
+Ha en fin tisdag, allihop. Även ni göteborgare.
 
 *– Brittan, Farsta*
