@@ -6,42 +6,62 @@ date: 2026-09-02
 
 # God morgon VM-vänner – 2 september 2026
 
-Kaffe. Halvt uppätet knäckebröd. Bosse katten stirrar på mig som om jag gjort något fel. Det kanske jag har. Det är 06:13 och jag har redan hunnit bli både glad och förtvivlad – det är vad VM gör med en.
+Kaffe på. Bosse katten sitter i fönstret och stirrar misstänksamt på grannen. Lasse sover fortfarande. Det regnar i Farsta.
+
+Alltså: perfekt VM-morgon.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det viktigaste: **Sverige mot Japan slutade 1–1**. Jag säger inte att jag är besviken. Men Lasse säger att jag grymtade i sömnen. Det säger ändå något.
+Sverige. Mina nära och kära. Ni slog Tunisien med 5–1 och fick sedan stryk av Nederländerna med 1–5. Det är lite som ett derby mot Djurgården – man hinner känna hopp precis länge nog för att det ska göra extra ont.
 
-Annars var kvällen full av dramatik. **Norge besegrade Frankrike 4–1** i gruppspelet och jag ska inte ljuga – jag jublade högt nog att Bosse flydde till sovrummet. Det är nordisk fotboll på sitt bästa. Rakt, hårt och vackert. Att Håland såg... koncentrerad ut däruppe är en helt annan sak.
+Japan–Sverige slutade 1–1. Okej. Jag har sett värre.
 
-**Spanien vann VM-finalen mot Argentina 1–0.** En turnering full av pärlor. Argentina, Frankrike och England har alla stundtals spelat fotboll som hade fått även Tomas Brolin att stanna upp. Men till slut vann spanjorerna med sin tiki-taka-ättling. Vackert. Syrligt. Som en god Rioja.
+Norge besegrade Senegal 3–2 och Irak med hela 1–4. Sedan förlorade man mot Frankrike 1–4. Det är som Håland – storslaget och sårbart på samma gång. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att han ser ut som om han mejslade sig själv ur en bergsvägg i Jotunheimen kan jag inte hjälpa.
+
+Ecuador slog ut Tyskland 2–1. Det där hade aldrig hänt 1994. Eller jo. Men Brolin hade säkert haft åsikter.
+
+Frankrike vann slutligen turneringen och slog England i finalen med 4–6. En final med tio mål. Det är inte fotboll. Det är teater. Vacker, kaotisk, strålande teater.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma** delar ledningen med 166 rätt av 369. Två damer i toppen. Det är inte en slump – det är fotbollskänsla.
+Mollie och Wilma delar ledningen med 166 rätt av 369. Välförtjänt. De har sett det mesta – och tippat det mesta rätt.
 
-**J Nilsson** – det vill säga Johan – ligger på 132 rätt. Det är sista fjärdedelen av tabellen. Jag vet. Men jag har tittat på hans rad och det är en rad full av *karaktär*. Han tippade Norge att ta sig förbi Frankrike i gruppspelet och fick rätt. Han såg Uzbekistans motstånd mot Colombia. Mannen tänker fotboll. Att resultaten ibland springer iväg åt fel håll är fotbollens grymhet, inte Johans fel.
+Andreas1 på 159, Caroline och Anna på 157. Bra sällskap, men inte tillräckligt bra för att slippa stå kvar i skuggan av topptjejerna.
 
-**Andreas2** landar på 121 rätt och är sist i tabellen. Jag säger ingenting. Men det är en poängsumma som får en att fundera på om man kanske tippade med stängt öga. Eller öppen Göteborgsposten.
+Andreas2 på 121. Det är... modigt att ens räkna.
+
+---
+
+## Johans rad – J Nilsson: 132 rätt av 369
+
+Johan. Käre Johan. Jag försvarar dig till sista andetaget.
+
+Men 132 rätt av 369 är inte ett tippresultat. Det är ett levnadsöde. Johan hade rätt om Argentina genomgående. Han såg England. Han kände Norge. Men sedan – och det är typiskt – tippade han fel om rätt lag vid fel tillfälle, och rätt om fel lag vid rätt tillfälle. Det är inte inkompetens. Det är fotbollsromantik. Jag vet det för att jag känner igen det.
+
+Resultatet blev inte som Johan trodde. Matcherna borde däremot ha blivit det.
 
 ---
 
 ## Brittans fundering
 
-Det finns något i det här VM som påminner mig om 1994. Inte i stil – då hade vi Brolin, Dahlin och frisyrer som ingen borde be om ursäkt för. Men i känslan. Att allt kan hända. Att fotboll spelas av människor.
-
-Bajen hade förstås gjort det snyggare.
+Spanien vann. Argentina kom nära. Frankrike scorade som om poängen inte räknades. Det påminner mig om 1994 – inte resultaten, men känslan. Den där känslan av att fotboll är för stort för att rymmas i ett tipp.
 
 ---
 
 ## Slutord från Farsta
 
-Lasse frågar varför jag fortfarande har Hålands Instagram uppe på telefonen. Jag sa att jag kollar inlägget om glasögonen igen. Han sa ingenting. Det var klokt av honom.
+Bosse katten har lagt sig på fjärrkontrollen igen. Lasse vaknade och frågade vem som vann VM.
 
-Ha en fin dag, allihopa. Japan–Sverige var inte sista ordet. Det är det aldrig.
+"Spanien", sa jag.
 
-*// Brittan, Farsta*
+"Vad tippade du?" frågade han.
+
+Jag svarade inte.
+
+Det finns något vackert i det.
+
+*// Brittan*
