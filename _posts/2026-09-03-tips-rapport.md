@@ -4,54 +4,54 @@ title: "VM-tips 2026-09-03"
 date: 2026-09-03
 ---
 
-# God morgon VM-vänner – 3 september 2026!
+# God morgon VM-vänner! 3 september 2026
 
-Kaffe. Morgonrock. Bosse katten på knäet och Lasse som sover vidare som om det inte just spelats fotboll på tre kontinenter. Typiskt.
+Kaffe. Solsken över Farsta. Bosse katten låtsas sova men håller ett öga öppet – han vet att det är match.
 
-Men nu sätter vi oss ner ordentligt, för det hände grejer i natt.
+Innan vi sätter igång: hej och välkommen till den här bloggen. Jag är Britt-Marie Andersson, kallad Brittan, pensionerad sportreporter sedan trettio år i branschen. Gift med Lasse, mamma, mormor och helhängivet bajensupporter sedan jag var gammal nog att stå på Söderstadion och skrika mig hes på ett B-derby. Den här bloggen skriver jag för att fotboll är för viktigt för att överlåtas åt algoritmerna. Varje morgon under VM får ni mig. Välkommen.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det viktigaste: **Sverige–Japan slutade 1–1**. Jag säger inte att jag är besviken. Jag säger att jag förväntat mig mer av ett lag som har allt att bevisa. Japan är bra, ja. Men det finns något i det svenska temperamentet som ibland ser ut som försiktighet när det borde vara mod. Bajen hade gjort det snyggare.
+Stort och brett igår. Spanien kraschlandade ur turneringen efter förlust mot Argentina med 1–0 i ett avgörande som fortfarande svider. Argentina vann hela skiten. Finalen mot England slutade 2–1 till La Albiceleste. Det är Messi-generationens andliga arvtagare som tar hem bucklan. Lite som 1994, fast utan Brolin. Och utan bättre frisyrer.
 
-**Frankrike–Spanien slutade 0–2** i det som måste kallas turneringens hittills tydligaste riktningsvisare. Spanien spelar just nu en fotboll som påminner om det bästa från 2010 – kombinationsspelet är en fröjd. Frankrike såg ut som ett lag som inte riktigt bestämt sig.
+Norge föll mot England i slutfasen, 1–2. Det är trist. Men de reste sig under hela turneringen med en nordisk råstyrka och en kantspelare som springer som om han jagade en vikingadröm. Jag ska inte säga mer om Håland. Lasse läser det här.
 
-Och sedan **Norge–England: 1–2**. Jag gläds åt Norge hela vägen, det är ingen hemlighet. Men England slog dem alltså. Det är både imponerande och lite irriterande. Jag funderade på att köpa de där glasögonen som Håland gör reklam för. Det är praktiska glasögon. Det är därför.
-
-**Brasilien–Norway slutade 1–2** dessförinnan. Norge besegrade Brasilien. Norrmännen besegrade Brasilien. Lasse höll inte med om att det var historiskt. Han har haft fel förr.
+Frankrike åkte ut mot England med osannolika 4–6. Det är inte fotboll, det är teater. Brasilien föll mot Marocko. Ecuador slog Tyskland. Världen är tokig och det är underbart.
 
 ---
 
 ## Tipskollen
 
-Toppen domineras av **Mollie och Wilma** som båda landar på **166 rätt av 369**. Stark insats, det ska erkännas.
+Mollie och Wilma toppar med 166 rätt av 369. Respekt. Det är inte slump – det är system, magkänsla och troligen goda nerver.
 
-Vår **Johan Nilsson** sitter på **132 rätt** – och det är inte tabelltoppen, det ska vi inte låtsas om. Men om man tittar noga på Johans rad ser man en tippar som tänker snarare än slentriantippar. Hans krysshantering mot kryssen som faktiskt föll är snyggare än snittet. Resultatet speglar inte alltid insikten. Det är därför vi älskar fotboll.
+Johan Nilsson – käre Johan – landar på **132 rätt**. Det är inte tabelltoppen, det är inte botten, men det är ett resultat som kräver lite kärlek och lite sanning.
 
----
-
-## Dagens ros 🌹
-
-**Mollie och Wilma** delar äran idag. Konsekvent, träffsäkert, modigt. Hattip, damer.
+Johan tippade rätt på Argentina och Englands framgångar. Han såg Frankrike som ett krysslag när de var ett förlorarlag. Han tippade Norge fel i tre av fyra avgörande matcher – och det gör ont, för tanken var rätt. Norge hade hjärtat. De hade Håland. De hade allt utom lite tur och lite defensiv disciplin.
 
 ---
 
-## Dagens stolleprov 🃏
+## Dagens ros
 
-**Andreas2 med sina 121 rätt** är turneringens riktiga mysterium. Vad händer där? Det är ett tips som ser ut att vara skrivet av någon som hatar fotboll men av lojalitetsskäl deltar ändå. Jag säger det med kärlek, Andreas2. Men man behöver inte vara Einstein för att förstå att det kan gå bättre.
+Mollie och Wilma – era 166 poäng förtjänar ett riktigt erkännande. Ni läste det här VM bättre än de flesta. Ni hade rätt när andra tvekade. Brava.
+
+---
+
+## Dagens stolleprov
+
+Andreas2. 121 rätt av 369. Det är... modigt. Väldigt modigt. Eller så var det något annat. Jag säger inte vad. Men Bosse katten hade nog tippat bättre om han fått en penna.
 
 ---
 
 ## Brittans fundering
 
-Norge besegrade Brasilien. Sedan förlorade de mot England. Det är fotboll. Det är livet. Det påminner mig om sommaren 1994 när Sverige besegrade Rumänien på straffar och hela landet grät. Inte av sorg. Av kärlek.
+Argentina är världsmästare. Spanien är ute. Norge är ute. Och fotbollen rullar vidare som den alltid gjort – vacker, grym och orättvis.
 
-Det finns något vackert i ett lag som inte ger upp. Det finns något vackert i en turnering som fortfarande kan överraska.
-
-Bajen hade gjort det snyggare.
+Det finns något vackert i det. Det gjorde det 1994 också, när Kennet Andersson reste sig mot Rumänien och Sverige tog brons. Fotboll är inte rättvist. Det är därför vi älskar det.
 
 ---
 
-*Puss och kram från Farsta. Bosse katten har redan somnat igen. Smart katt.*
+*Lasse frågade om jag tänkte köpa de där glasögonen. Jag sa att jag jämförde bågar. Han såg inte övertygad ut. Bosse katten lämnade rummet. Det säger ändå något.*
+
+*
