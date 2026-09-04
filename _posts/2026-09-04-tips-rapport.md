@@ -4,70 +4,52 @@ title: "VM-tips 2026-09-04"
 date: 2026-09-04
 ---
 
-# God morgon VM-vänner – 4 september 2026!
+# God morgon VM-vänner! 4 september 2026 – och fotbollen slutar aldrig ge
 
-Kaffe nummer två. Lasse sover fortfarande. Bosse katten stirrar på mig som om jag har gjort något fel. Det har jag inte. Ännu.
+Kaffe på. Bosse katten sover fortfarande på Lasses tidning. Solen sticker in genom köksfönstret i Farsta och jag sitter här med resultatlistan och känner det där välbekanta pirret i magen.
 
-Men vi har matcher att gå igenom.
+Det är därför vi älskar fotboll.
 
 ---
 
 ## Nattens matcher
 
-Låt oss börja med det enda som egentligen spelar roll för en kvinna från Farsta: **Sverige föll mot Frankrike med 3–0**. Hjärtat gråter. Men Japan tippade 1–1 mot oss, så det fanns värst ute i världen också.
+Var ska man börja? Spanien vann turneringen med 1–0 mot Argentina i finalen. Elegant, disciplinerat, lite tråkigt på ett vackert sätt. Argentina kämpade som alltid men det räckte inte. Frankrike åkte ut mot England i semifinal – 4–6, säger ni? Det är inte fotboll, det är pingis. Jag har sett värre. Men inte ofta.
 
-Det stora snacket är annars **Norge som slog England med 1–2** i slutskedet av turneringen. Självklart. Norge spelar rak, ärlig fotboll. Det beror inte alls på att Erling Håland springer fortare än tankarna. Inte alls. Jag läser om de där glasögonbågarna av helt andra skäl.
+Och så Norge. Mina kära norrmän tog sig förbi Brasilien med 2–1 i åttondelen, vilket är det vackraste som hänt sedan Brolin dansade sig fram mot Rumänien. Håland satte förstås ett av målen. Han ser alltid ut som om han precis klev ner från ett norskt fjäll. Jag nämner det bara för att det är fotbollsmässigt relevant.
 
-**Spanien vann finalen mot Argentina med 1–0.** Vackert, kompakt, kliniskt. Det där hade Kenta gillat. Nästan.
+Lasse frågade varför jag googlade "Håland glasögon" igen. Jag sa att det handlar om bågar. Han såg inte övertygad ut.
 
-Tyskland åkte ut mot Ecuador i en match som slutade 2–1. Det där hade aldrig hänt 1994. Eller jo – men då hade det åtminstone sett bättre ut på vägen dit.
+Sverige? Vi åkte ut mot Frankrike med 0–3. Det gör ont. Men vi var med. Det räcker inte – men det är något.
 
 ---
 
 ## Tipskollen
 
-I täten kämpar **Mollie och Wilma** om tronen med 166 rätt vardera. Stark prestation. Jag vet inte vad de gör rätt, men de gör det konsekvent.
+Mollie och Wilma leder med 166 rätt av 369 spelade. Starkt. Riktigt starkt. De har haft koll när andra gissat vilt.
 
-**Andreas1** hänger på med 159. Stabil karl.
-
-Och sen har vi **Johan Nilsson** med 132 rätt av 369.
-
-Kära Johan. Snälla, hjärtliga, välmenande Johan.
-
-Pojken tippade Jordanien att slå Argentina – tre gånger i olika omgångar – och fick fel varje gång. Han tippade kryss på Norge–Frankrike, igen och igen, trots att Norge körde över dem som en älg på E4. Det finns en envishet i Johans radande som jag respekterar djupt. Det är fel sorts envishet, men ändå.
+Johan Nilsson? 132 rätt av 369, näst sist. Jag skulle ljuga om jag sa att det ser bra ut. Men man behöver inte vara Einstein för att förstå att Johan tippat med hjärtat snarare än huvudet. Han tippade Norge att slå Frankrike – det vore ju härlighet om det stämt. Tanken var rätt. Fotbollen var bara elak mot honom.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma.** Delade ledningen. Det är inte en slump. Det är fotbollsförstånd.
+Mollie och Wilma delar segern. Imponerande precision. De har sett matcherna med öppna ögon.
 
 ---
 
 ## Dagens stolleprov
 
-Johan Nilsson, kärleksfullt men bestämt. 132 poäng i ett VM med 369 matcher kräver en viss talang för att konsekvent hamna snett. Tanken är alltid rätt. Utfallet sällan.
+Andreas2 med 121 rätt. Lägst i hela sällskapet. Det är modigt att tippa – men kanske dags att börja titta på matcher också?
 
 ---
 
 ## Brittans fundering
 
-Det finns något vackert i att följa ett VM hela vägen. Att se lag man aldrig trott på resa sig. Att se favoriter falla. Att Norge går långt.
+Det här VM:et gav oss mycket. Överraskningar, drama, Nigeria... förlåt, jag menar Norge. Fotboll spelas av människor, och ibland är det precis vad som syns.
 
-Bajen hade spelat det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
+Bajen hade gjort det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
 
----
+Ha en fin dag, VM-vänner. Vi ses imorgon.
 
-## Slutord från Farsta
-
-Lasse vaknade och frågade om Norge vann.
-
-Jag sa ja.
-
-Han frågade varför jag log.
-
-Jag sa att det var kaffet.
-
-Han såg inte övertygad ut.
-
-Ha en fin dag, allihopa. 🟢⚽
+*– Brittan, Farsta*
