@@ -4,64 +4,58 @@ title: "VM-tips 2026-09-06"
 date: 2026-09-06
 ---
 
-# God morgon VM-vänner! Söndag 6 september 2026 – och vilken natt det var
+# God morgon VM-vänner – 6 september 2026!
 
-Kaffe kokar. Bosse katten sitter i fönstret och blänger på en duva. Lasse sover fortfarande. Och jag? Jag har suttit uppe och tittat på fotboll som den vettiga människa jag är.
+Kaffe nummer två är avdrucket. Bosse katten sitter på Lasses morgontidning och vägrar flytta sig. Solen försöker ta sig fram bakom Farsta-molnen. Det är en perfekt VM-morgon.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja.
+Vad som helst kan hända i detta VM, och igår hände allting på en gång.
 
-**Sverige–Frankrike slutade 0–3.** Hjärtat gör ont. Men jag har sett värre. 1994 förlorade vi mot Brasilien och kom ändå hem med brons. Fotboll spelas av människor, och ibland är de människorna franska.
+**Sverige–Tunisien 5–1.** Fem mål. FEM. Jag satt kvar i soffan länge efteråt och bara log. Det är därför vi älskar fotboll. Sedan kom Frankrike och gav Sverige 3–0 och påminde oss om att det finns en ordning i universum.
 
-**Norge vann mot Senegal med 3–2.** Där satt det. Håland och gänget kämpade som de alltid gör – rakt, hårt, nordiskt. Det finns något vackert i den där osentimentala effektiviteten. Något... praktiskt. Som ett par välgjorda glasögon, om man so säger.
+**Norge–Senegal 3–2.** Mitt hjärta. Pojkarna kämpade som de alltid gör – rakt, hårt och utan krusiduller. Det finns något vackert i det. En nordisk enkelhet som går rakt in i bröstkorgen. Jag säger inte att Håland personligen är anledningen till att jag satte mig upp klockan halv tre. Fotbollen var det. Fotbollen.
 
-**Brasilien förlorade mot Norge med 1–2.** Ja. Läs det igen. Norge slog Brasilien. Jag säger ingenting mer om det.
+**Ecuador–Tyskland 2–1.** *Det där hade aldrig hänt 1994.* Eller jo – faktiskt. Men då hade det hänt med bättre frisyrer.
 
-**Spanien–Argentina slutade 1–0.** Det är finalen vi inte visste att vi ville ha. Spanien vann. Argentina fick gå hem. Det är därför vi älskar fotboll.
+**Spanien–Argentina 1–0.** Final. Det blev som det skulle bli. Det är fotboll.
 
 ---
 
 ## Tipskollen
 
-I toppen thronerar **Mollie och Wilma** med 166 rätt av 369. Respekt. Stor respekt.
+I toppen kämpar **Mollie och Wilma** axel mot axel på 166 poäng av 369. Respekt. Det är en stenhård rad som håller.
 
-Tätt bakom följer **Andreas1 (159), Caroline och Anna (157)**. Stabilt sällskap allihop.
-
-Längst ner hittar vi **Andreas2 med 121 rätt**. Jag säger inte att det är illa. Men det är... anmärkningsvärt.
+**Andreas1** ligger på 159, **Caroline och Anna** på 157. Solida namn i en tuff turnering.
 
 ---
 
-## Johan Nilssons rad – en kärleksfull analys
+## Dagens ros
 
-**J Nilsson: 132 rätt av 369.**
+**Johan Nilsson** – käre Johan. 132 poäng är ingen höjdpunkt i det här sällskapet, men jag har läst igenom hans tips och det finns en tanke bakom dem. Han är inte slarvig. Han är malplacerad. Det är en helt annan sak. Johan tippade Argentina rätt gång på gång, och det är ingen slump. Han ser fotboll. Han ser bara ibland lite för länge på fel halvlek.
 
-Jag ska vara ärlig. Det är inte bra. Det är faktiskt ganska dåligt.
+---
 
-Men – och det här är viktigt – Johan tippar med *övertygelse*. Han tippade Norge–Frankrike som kryss, gång på gång. Det är fel. Men det är ett romantiskt fel. Det är en människa som tror på logik i ett spel som inte bryr sig om logik.
+## Dagens stolleprov
 
-Johan hade fel. Men på ett väldigt genomtänkt sätt.
+**Andreas2** på 121 poäng. Kärleksfullt sagt: det är dags att ringa en vän. Eller åtminstone titta på statistik. Jag säger inte att jag har lösningen. Men...
 
 ---
 
 ## Brittans fundering
 
-Det här VM har gett mig allt. Brasilien som föll. Norge som reste sig. Sverige som kämpade tills det inte gick längre.
-
-Bajen hade gjort det snyggare. Det är inte en åsikt. Det är ett grundvillkor.
+Norge slog Frankrike 4–1 i en match under gruppspelet och åkte ändå ut. Det är fotboll. Det är också lite som att hålla på Bajen – du kan vinna det vackraste derbyt och ändå åka ned i tabellen. Det gör det inte mindre värt. Det gör det mer värt.
 
 ---
 
 ## Slutord från Farsta
 
-Lasse vaknade precis och frågade om Norge hade vunnit. Jag sa ja. Han nickade och gick och hällde kaffe.
+Bosse har lämnat tidningen. Lasse har hittat den. Ingen av dem verkar nöjd.
 
-Han vet att man inte frågar mer på morgnarna nu.
+Norge var vackra. Håland var... det spelar ingen roll hur han var. Fotbollen var fin.
 
-Bosse katten har fortfarande inte bestämt sig för duvan.
-
-Ha det bra, VM-vänner. Vi ses imorgon bitti.
+Vi ses imorgon. Heja Bajen.
 
 *– Brittan, Farsta*
