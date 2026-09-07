@@ -6,46 +6,44 @@ date: 2026-09-07
 
 # God morgon VM-vänner – 7 september 2026
 
-Kaffe nummer två är pådraget. Bosse katten sitter i fönstret och stirrar på en duva med den koncentration som jag önskar att vissa tippare hade lagt på sina kuponger. Lasse sov redan när finalen smällde in. Han missar mycket, han Lasse.
+Kaffe är påsatt. Bosse katten sitter i fönstret och stirrar på en duva med den koncentration som bara katter och riktigt bra mittfältare besitter. Lasse sover fortfarande. Han missade halvt Frankrike–England igår kväll och jag har inte hjärtat att väcka honom med nyheterna.
 
 ---
 
-## Nattens matcher
+## Nattens matcher – vad hände egentligen?
 
-Stort och smått och allt däremellan igår. Spanien besegrade Argentina med 1–0 i det som ser ut att bli turneringens allra finaste match. Taktiskt, stolt, vackert. Det påminde mig om när Brolin styrde bollen i luften mot Rumänien 1994 – den känslan att fotboll faktiskt kan vara konst.
+Spanien vann till slut hela skiten. Spanien–Argentina 1–0 i finalen. Tighit, nervöst och vackert på ett sätt som påminde mig om att fotboll ibland är grym konst. Argentina kämpade som alltid, men Spanien hade mer boll, mer tålamod och mer system.
 
-Norge föll mot England med 1–2. Det gör ont. Pojken Håland kämpade som alltid – det syns att han bär hela lagets hjärta på sina breda axlar. Jag köper de där glasögonen ändå. De verkar praktiska.
+Frankrike åkte ut mot England i semifinalen – 4–6, ja ni läste rätt – i ett mål-orgiastiskt kaos som jag inte sett maken till sedan... nähä, inte ens 1994 hade den där energin. Tomas Brolin hade förmodligen sprungit av ren glädje.
 
-Sverige åkte ut ur gruppspelet efter 1–1 mot Japan. Det är klart det svider. Men vi var där. Vi spelade. Det finns något vackert i det, om man anstränger sig lite.
-
-Frankrike vann över England med 4–6, ja ni läste rätt, en thriller som fick Bosse att lämna rummet i protest.
+Norge slog England i kvartsfinalen med 1–2. Jag säger ingenting. Jag noterar bara att Håland och grabbarna levererade när det gällde. Det finns något rakt och pålitligt med norsk fotboll. Lite som fjällen. Stabilt. Oförstörbart. Snyggt.
 
 ---
 
-## Tipskollen
+## Tipskollen – hur gick det för gänget?
 
-Mollie och Wilma leder med 166 rätt av 369. Snyggt jobbat, tjejer – det är disciplin och magkänsla i kombination.
+I toppen: **Mollie och Wilma** delar ledarplatsen med 166 rätt av 369. Imponerande. Modigt. Välförtjänt.
 
-Johan – vår Johan – ligger på 132 rätt. Det är inte tabelltoppen, det vet vi båda. Men jag har följt hans rad och det är inte brist på fotbollsförstånd det handlar om. Det är kurragömma med slumpen. Han ser matcherna rätt, det är utfallen som beter sig illa. Norge–Frankrike tippade han X. Tanken var god. Frankrike bara vägrade samarbeta.
+**Andreas1** på 159 följer tätt efter. Solitt.
 
----
-
-## Dagens ros
-
-Mollie och Wilma delar topplatsen och det med råge. Välförtjänt. Håll i det, så ska vi se vem som håller huvudet kallt i slutspelet.
+Och sen har vi **J Nilsson** på 132 och **Heimbrand** på 130. Det är... en tabell man inte vill befinna sig i. Andreas2 på 121 är den som fått lida mest. Jag hoppas han har ett mjukt knä att falla ner på.
 
 ---
 
-## Dagens stolleprov
+## Johans rad – J Nilsson
 
-Andreas2 med 121 rätt av 369 får äran idag. Det är modigt att tippa så friskt, men det krävs lite mer träffsäkerhet också. Jag säger inte att jag har lösningen. Men.
+Johan, Johan, Johan. 132 rätt är inte ett resultat som sjunger. Men jag har sett Johans tipsrader och det finns *logik* där. Han tippade Paraguay att slå Australien. Det är ett djärvt drag. Det är bara synd att fotboll ibland vägrar lyssna på logik.
+
+Tanken var rätt, Johan. Matchen var fel. Det är inte samma sak som att du hade fel.
 
 ---
 
 ## Brittans fundering
 
-Fotboll är det enda spelet där du kan ha fel om allting och ändå ha rätt om det viktigaste. Det är därför vi älskar det. Det är därför Bajen är bäst. Det är därför jag är uppe vid halv sju med kaffe och Bosse och en känsla i magen som aldrig riktigt går över.
+Spanien är mästare. Argentinarna gråter. Fransmännen undrar vad som hände. Och norrmännen – med sin rak-i-ryggen-fotboll – kom längre än de flesta trodde.
 
-Tills imorgon, VM-vänner.
+Lasse höll inte med om att Norge var ett av turneringens bästa lag. Han har haft fel förr.
 
-*Brittan från Farsta*
+Bajen hade spelat vackrare. Men det är ett grundvillkor, inte en åsikt.
+
+*Ha en fin dag, VM-vänner. Det var ett bra VM.*
