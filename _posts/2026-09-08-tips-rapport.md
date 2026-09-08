@@ -6,54 +6,54 @@ date: 2026-09-08
 
 # God morgon VM-vänner – 8 september 2026!
 
-Kaffe nummer två är påslaget. Bosse katten ligger på tidningen. Lasse sover fortfarande. Det är 8 september 2026 och fotbolls-VM rullar vidare som en yster älv i maj.
+Kaffe nummer två står på bordet. Lasse sover fortfarande. Bosse katten sitter i fönstret och stirrar på en duva med den där blicken som säger *jag har sett värre*. Det har jag också, Bosse. Det har jag också.
 
 ---
 
-## Nattens matcher – vad hände egentligen?
+## Nattens matcher – och vad sjutton hände egentligen?
 
-Sverige! SVERIGE! 5–1 mot Tunisien och fotbollen flödar som den borde. Det finns något vackert i det. Jag satt ensam i soffan och kände sommaren 1994 rinna tillbaka in i kroppen. Brolin. Dahlin. Den där känslan av att Sverige faktiskt *kan*.
+Låt oss börja med det roliga: **Sverige slog Tunisien 5–1** i gruppspelet. Fem mål. Fem! Jag är inte alls partisk, men det finns något vackert i det. Sedan åkte vi ut mot Nederländerna (5–1, åt fel håll), Japan spelade 1–1 med oss, och Frankrike körde över oss 3–0. Det räcker om det.
 
-Och sedan kom Frankrike och mötte oss med 3–0. Ja. Fotboll spelas av människor, och ibland är de människorna franska.
+Norge – mina kära norrmän – slog Irak 4–1 och sedan Senegal 3–2 i en match som fick mig att luta mig framåt i soffan. Håland... ja. Jag tittar inte på Norge för hans skull. Jag tittar för fotbollens skull. Att pojken råkar röra sig som en naturkraft kan jag inte hjälpa. Sedan förlorade Norge mot Frankrike och sen mot England. Men det är inte skamligt att förlora mot England när de faktiskt spelar på riktigt.
 
-Norge slängde in fyra mot Irak. Fyra. Jag säger inte att jag stirrade på Håland längre än nödvändigt. Jag jämförde bara löpstilen. Det är helt annat. Lasse höll inte med. Han har haft fel förr.
-
-Ecuador slog Tyskland med 2–1. Det var modigt. Det var vackert. Det var lite som ett derbyresultat man inte väntat sig. Bajen hade satt dit det 3–1, men vi behöver inte gå in på det nu.
+**Spanien vann till slut hela turneringen** – 1–0 mot Argentina i finalen. Argentina som körde över nästan alla andra. Det var ett finalmöte värt namnet. 1994 hade det förstås sett annorlunda ut, men då hade vi haft Brolin på banen.
 
 ---
 
 ## Tipskollen
 
-Toppen styrs av **Mollie och Wilma** som delar ledningen med 166 rätt av 369. Starkt. Riktigt starkt. De ser fotboll med klara ögon och utan sentimentalitet. Respekt.
+I topp: **Mollie och Wilma delar ledningen med 166 rätt av 369**. Imponerande damer. Respekt.
 
-**J Nilsson – det vill säga Johan** – landar på 132 rätt. Det är inte tabelltoppen, och det ska vi inte låtsas om. Men Johan har ett öga för detaljer som inte alltid ger omedelbar utdelning. Att tippa Norge–Frankrike som X när Frankrike vann med 4–1 är optimistiskt. Det gillar jag. Hjärtat på rätt ställe, Johan. Resultaten kommer.
+Botten: **Andreas2 på 121 poäng**. Det är inte lätt att säga, men det syns att man inte alltid kan sin fotboll. Jag säger inte att jag har lösningen. Men...
 
----
-
-## Dagens ros
-
-**Mollie och Wilma** delar äran idag. Gemensam ledning, genomtänkta tips och en träffsäkerhet som faktiskt imponerar på en gammal sportreporter från Farsta.
+**Johan Nilsson** – min käre Johan – landar på 132 rätt. Det är inte tabelltopp, det ska vi vara ärliga med. Men jag har följt Johans rad och det är en man som *tänker*. Han tippade X mot Norge–Frankrike när andra var fega. Han tog modiga kryss. Han hade rätt om Egypten–Iran. Resultaten gick emot honom, men tanken var rätt. Fotboll spelas av människor, Johan. Inte av tipsrader.
 
 ---
 
-## Dagens stolleprov
+## Dagens ros 🌹
 
-**Andreas2** med sina 121 rätt av 369 börjar klia sig i huvudet. Det är lägst i gruppen och inte lite. Djärvt? Nej. Otur? Möjligen. Men man behöver inte vara Einstein för att se att något systematiskt har gått snett. Jag säger inte att jag har lösningen. Men...
+**Mollie och Wilma** – toppa ligan och göra det med stil. Det är därför vi älskar fotboll.
+
+---
+
+## Dagens stolleprov 🃏
+
+Den som tippade Paraguay att slå Australien **och** USA i samma turnering. Du vet vilka ni är. Jag säger inget mer.
 
 ---
 
 ## Brittans fundering
 
-Frankrike slår ut Norge ur turneringen. Det gör ont. Det är som att förlora ett derby i övertid. Men Norge kämpade, Norge satte tre mål mot Senegal och visade karaktär. Det är nordisk pålitlighet. Det finns inget fult i det.
+Spanien är världsmästare. Det är snyggt. Det är taktiskt. Det är nästan som att titta på Bajen när allt klaffar – passningstempot, rörligheten, glädjen.
 
-Och Håland? Han spelade. Det räcker.
+*Nästan.*
 
 ---
 
-## Slutord från Farsta
+**Lasse vaknade precis och frågade om jag hållit på hela natten.**
 
-Bosse katten lämnade rummet när jag satte på reprisen av Frankrike–Norge. Det säger ändå något.
+Jag sa att jag jämförde taktiska system.
 
-Kom igen Johan. Vi tror på dig.
+Han såg inte övertygad ut.
 
-*– Brittan, Farsta*
+Ha en fin dag, VM-vänner. 🍀
