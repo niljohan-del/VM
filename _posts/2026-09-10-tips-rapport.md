@@ -4,60 +4,56 @@ title: "VM-tips 2026-09-10"
 date: 2026-09-10
 ---
 
-# God morgon VM-vänner – 10 september 2026
+# God morgon VM-vänner! 10 september 2026 – och Spanien vann alltihop
 
-Kaffe. Två koppar. Bosse katten sover på min sportjacka från -94 och Lasse skruvar på kaffemaskinen som alltid.
-
-Det är VM-morgon i Farsta. Det bästa som finns.
+Kaffe nummer två är avklarat. Bosse katten sitter och stirrar på fågelmataren. Lasse sover fortfarande. Det är som skapt för en bloggpost.
 
 ---
 
-## Nattens matcher
+## Nattens matcher – vad hände egentligen?
 
-Vad var det som hände egentligen?
+Herregud, vad det var ett VM vi fick se.
 
-**Sverige–Frankrike slutade 0–2.** Jag ska inte låtsas att det inte svider. Det svider. Men Sverige är fortfarande kvar i turneringen och det räcker just nu. Frankrike var bra. Riktigt bra. Den sortens fotboll som påminner dig om varför du began med det här.
+**Spanien vann alltihop.** Spanien–Argentina 1–0 i finalen. En mållös thriller som avgjordes av ett enda mål. Det är den typen av fotboll som antingen gör dig galen eller gör dig till poet. Jag vet inte vilket jag blev. Fråga Lasse.
 
-**Norge slog Frankrike 1–4 i ett annat skede.** Vänta nu. Jag menar – Norge slog Frankrike. Jag kanske borde läsa om det där tills det sjunker in. Håland och grabbarna levererade. Jag tittar inte på Norge för Hålands skull, det vet ni. Men pojken är ju... han är ju *väldigt bra på fotboll*. Bara det.
+Dessförinnan körde **England over Frankrike med 6–4** i en semifinal som fick mitt hjärta att sluta tre gånger. Seriöst. Det där hade de inte ens mäktat med 1994. Fast Brolin hade gett allt för att försöka.
 
-**Brasilien förlorade mot Norge med 1–2** i ett annat gruppspel. Samba mötte fjäll. Fjället vann. Det finns något vackert i det.
-
-**Ecuador slog Tyskland med 2–1.** Det hade aldrig hänt 1994. Eller jo. Men 1994 hade det åtminstone skett med bättre frisyrer.
-
-**Spanien vann slutligen turneringen** mot Argentina med 1–0 i finalen. Tiki-taka vann. Lasse sa att det var vackert. Han har haft rätt förr, men sällan om fotboll.
+**Norge**, mina kära – ni slog Brasilien! 2–1! **Håland och gänget** körde över samba-fotbollen som om det var en tirsdagskväll i Molde. Jag sa till Lasse att det var för norsk arbetsmoral och nordisk pålitlighet. Han frågade varför jag log så brett. Jag sa att det inte handlade om något speciellt. Det stämde inte.
 
 ---
 
-## Tipskollen
+## Tipskollen – vem har koll och vem har inte det?
 
-I toppen thronerar **Mollie och Wilma** med 166 rätt av 369. Imponerande. Riktigt imponerande. Jag hatten av, ladies.
+I toppen hittar vi **Mollie och Wilma** – båda på 166 rätt av 369. Imponerande. Modigt. Respekt.
 
-Och sedan har vi **J Nilsson** – Johan – med 132 rätt. Det är inte topplistan, det kan vi konstatera lugnt och kärleksfullt. Men det är Johan. Han tippade Uzbekistan–Colombia rätt när det gällde. Han kände något där. Det är den sortens magkänsla som tar tid att odla. Johan har anlag.
+Men vi måste prata om **J Nilsson** – Johan – som sitter på 132 rätt. Det är inte toppen av tabellen, det ska jag vara ärlig med.
 
-Att han sedan konsekvent tippat kryss och ettor i fel ordning är en annan sak. Resultaten blev inte som han trodde. Matcherna borde däremot ha blivit det.
-
----
-
-## Dagens ros 🌹
-
-**Mollie och Wilma** delar topplatsen med rakrygg och stil. En av dem är säkert från Söder. Den andre borde flytta dit.
+Johan har tippat med hjärtat hela turneringen. Problemet är att hjärtat ibland tar en annan väg än bollen. Han missade Norge–Frankrike, han missade Spanien i finalen, han missade en del däremellan också. Men – och det här är viktigt – **tanken var rätt varje gång**. Det är en man som ser fotboll. Han är bara olycklig just nu. Det vänder.
 
 ---
 
-## Dagens stolleprov 🃏
+## Dagens ros
 
-**Andreas2** – 121 rätt av 369. Sist i listan. Det är coolt att vara annorlunda, men det är inte *det* här Johan menar med fotbollsromantik. Jag säger inte att jag har lösningen. Men.
+**Mollie och Wilma** delar på äran. Toppa en tävling med 369 matcher kräver antingen fingertoppskänsla eller ett serietippningsprogram. Jag tror på det förstnämnda.
+
+---
+
+## Dagens stolleprov
+
+**Andreas2 – 121 rätt av 369.** Käre Andreas. Det är under 33 procent träffsäkerhet. Slumpen hade gett dig fler rätt. Jag säger inte att du ansträngt dig för lite. Men jag säger inte att du ansträngt dig för mycket heller.
 
 ---
 
 ## Brittans fundering
 
-Det är VM. Sverige är med. Norge vinner matcher. Håland existerar.
+Spanien vann VM. Argentina kom tvåa. Norge slog Brasilien. Fotboll är konstigt, vackert och ibland orättvist.
 
-Det är tillräckligt för en torsdagsmorgon i Farsta.
+Men det finns något vackert i det. Det är därför vi älskar fotboll.
 
-Bosse katten gick precis ut ur rummet. Det säger ändå något.
+Bajen hade spelat det snyggare. Det är bara sant.
 
-**Bajen hade gjort det snyggare.**
+---
 
-*Ses imorgon, VM-vänner.* ☕
+**Lasse säger hej. Bosse katten bryr sig inte. Och jag funderar fortfarande på de där glasögonen.**
+
+*// Brittan från Farsta*
