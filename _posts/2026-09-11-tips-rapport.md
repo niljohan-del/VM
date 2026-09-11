@@ -4,52 +4,58 @@ title: "VM-tips 2026-09-11"
 date: 2026-09-11
 ---
 
-# Spanien på topp, Norge i hjärtat – VM-krönika 11 september 2026
+# Fredagsmorgon i Farsta – 11 september 2026
 
-*från Farsta, med kaffe och en lätt förkylning som Lasse säkert ger mig skulden för*
+God morgon allihopa!
+
+Det är fredag. Det är VM. Det är kaffe på bordet och Bosse katten sover på min halkade tidning. Lasse frågade om jag skulle hänga tvätt eller se fotboll idag. Jag sa att det var en konstig fråga.
+
+Men först – det är fredag, och det betyder att ni förtjänar ett ordentligt inlägg. Och en ölrekommendation. Ta en Norrlands Guld ikväll, det är enkelt, ärligt och det ljuger aldrig. Precis som bra fotboll.
 
 ---
 
-God morgon, VM-vänner!
+## Nattens matcher
 
-Vad var det som hände i natt? Jag ska berätta.
+Vad sjutton hände egentligen? Spanien vann finalen mot Argentina med 1–0. Argentina vann finalen mot England med 2–1. England vann finalen mot Frankrike med 6–4. Frankrike tyckte det var bra nog att vinna mot Spanien med 2–0.
 
-Spanien gick och vann hela turneringen. Det är vackert. Det är rätt. Det är den sortens fotboll som får en att glömma att klockan är halv tre och att Bosse katten sitter och stirrar anklagande från fönsterbrädan.
+Det är alltså ett VM där lagen inte orkar bestämma sig för vem som är bäst. Det är på ett sätt kaotiskt. På ett annat sätt är det alldeles underbart. **Det är därför vi älskar fotboll.**
 
-**Spanien–Argentina 1–0 i finalen.** En mästerlig turnering av *La Roja*. Teknisk, tålmodig, hungrig när det gäller. Argentina kämpade som alltid – de kan inte låta bli – men den här gången räckte det inte. Det finns något vackert i det. Fotboll spelas av människor, och ibland vinner fel lag på rätt sätt.
+Sverige gick ut ur gruppspelet med sådär, plockade ihop sig och förlorade mot Frankrike med 3–0 i slutspelet. Jag har sett värre. Men inte mycket värre.
 
-Och **England–Frankrike 6–4** i semifinalen. Sex-fyra! Lasse vaknade av att jag skrek. Han sa ingenting. Han har lärt sig.
+Norge vann mot Brasilien. *Norge vann mot Brasilien.* Jag måste skriva det igen. Jag kanske tog en bärs för tidigt igår kväll, men det är sant. Håland och hans gäng besgrade Seleção. Det finns något vackert i det. Något alldeles nordiskt och envist och lagom vackert. Jag köper de där glasögonen nu. Det är bestämt. Det handlar om bågen.
 
-## Norgenotering
-
-Norge föll mot England i kvartsfinalen, 1–2. Det gör ont. Det gör *riktigt* ont. Men de spelade fint hela turneringen. Hjärta, arbetsmoral, norsk ryggrad.
-
-Och Håland var... ja. Han var sig lik. Stark, målfarlig, med den där blicken som säger att han inte är klar. Inte alls klar.
-
-Jag funderar fortfarande på de där glasögonen. Det är en praktisk bågform.
+---
 
 ## Tipskollen
 
-Mollie och Wilma delar på första plats med **166 rätt av 369**. Det är imponerande. Handen på hjärtat: snyggt jobbat, tjejer.
+Mollie och Wilma leder med 166 rätt av 369. Det är imponerande. Det är faktiskt lite irriterande. Välförtjänt, men ändå.
 
-**Johan Nilsson** landar på **132 rätt**. Det är inte tabelltoppen, och det ska vi inte låtsas om. Men jag har tittat igenom hans rad, och mannen har haft en *princip*. Han har stått för sina tips. Han har inte kryxat sig igenom turneringen som en försäkringssäljare i regnväder.
-
-När han haft fel har han haft fel med övertygelse. Det är mer värt än det ser ut.
-
-**Andreas2** på 121 rätt är däremot ett litet mysterium. 121 av 369. Det är under fyrtio procent. Jag säger inte att jag har lösningen. Men...
-
-## Brittans fundering
-
-Spanien vann. Det är bra fotboll.
-
-Men vet ni vad? 1994 vann Sverige brons med Brolin, Dahlin och Kennet. Det var en turnering med *känsla*. Med sommarvärme och folkfest och ett helt land som hängde i varje straff mot Rumänien.
-
-Det här VM hade sina ögonblick. Men det där – det går inte att konstruera.
-
-Bajen hade gjort det hela lite snyggare.
+**J Nilsson** – alltså Johan – har 132 rätt. Det ser tufft ut på pappret. Men man ska komma ihåg att Johan tippade med hjärtat, inte med kalkylatorn. Han tippade Paraguay att gå vidare. Han tippade Håland att göra mål. Han tippade Norge att tro på sig. Resultaten svek honom ibland. Fotbollen svek honom aldrig.
 
 ---
 
-*Ha en fin dag. Lasse hälsar. Bosse katten har lämnat rummet.*
+## Dagens ros 🌹
 
-*– Brittan, Farsta*
+Mollie och Wilma. Delat ledarskap, delad ära. Rätta tjejer.
+
+---
+
+## Dagens stolleprov 🤦
+
+Andreas2 med 121 rätt. Käre Andreas, man behöver inte vara Einstein för att tippa 1 på Argentina mot Kap Verde. Det säger ändå något.
+
+---
+
+## Brittans fundering
+
+Det här VM:et har gett mig allt. Drama, norska vikingar, ett Sverige som kämpade men föll, och ett finalspel som ingen förstår. Lite som livet i Farsta, egentligen.
+
+1994 visste vi vad vi fick. Brolin. Dahlin. Ravelli i mål med de där handskarna. Det var ordning och reda. Det var romantik med ett resultat.
+
+Det här VM:et är mer som en gammal Bajenmatch på Söderstadion. Ingen vet hur det slutar. Alla älskar det ändå.
+
+Ha en fin fredag. Ta en öl. Krama någon du tycker om.
+
+Bajen är fortfarande bäst. Det är inte en åsikt.
+
+*// Brittan, Farsta*
