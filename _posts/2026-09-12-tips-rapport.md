@@ -6,56 +6,50 @@ date: 2026-09-12
 
 # God morgon VM-vänner – 12 september 2026!
 
-Kaffe nummer två är påfyllt. Bosse katten ligger på mina papper och Lasse sover fortfarande. Det passar bra. Då kan jag skriva vad jag vill.
+Kaffe nummer två är påslaget. Lasse sover fortfarande. Bosse katten sitter på fjärrkontrollerna och vägrar flytta på sig. Solen verkar tveksam. Jag är inte det.
+
+Det hände en del i natt.
 
 ---
 
 ## Nattens matcher
 
-Låt mig börja med det viktigaste: **Sverige 5–1 mot Tunisien.** Ja, ni hörde rätt. Fem mål. Jag satt med handen på hjärtat och kände något som liknade 1994. Inte lika vackert, inte lika Brolin, men ja – det finns något vackert i det.
+Sverige slog Tunisien med 5–1 i gruppspelet, vilket är ett resultat som värmer en gammal Bajentjej i hjärtat. Det är inte 1994 – det blir aldrig 1994 igen – men det finns något bekant och ljuvligt i att se blågult dundra fram. Tomas Brolin hade gillat det.
 
-Sen körde **Frankrike över Spanien med 4–6** i det som måste vara kvällens gallamatch, och **Argentina vann finalen mot Spanien**. Det är fotboll, mina vänner. Det är därför vi älskar det.
+Sen åkte de ut mot Frankrike med 0–3 och Nederländerna tog 5–1 på oss. Ja. Japan gick vidare. Fotboll är orättvist och härligt på samma gång. Det är därför vi älskar det.
 
-Norge vann mot Senegal. **3–2.** Kämpigt, rakt och nordiskt till fingerspetsarna. Håland satte nog ett par av dem med den där blicken som... ja. Det är rak fotboll. Det är det jag tittar på. Ingenting annat.
+Norge? Norge gick ut ur turneringen med förlusterna mot Frankrike och England. Det gör ont. Jag tittar inte på Norge för Hålands skull, det vet ni. Men det är svårt att se pojken försvinna från mästerskapet. Glasögonreklamen kör fortfarande på min mobil. Jag jämför fortfarande bågar. Det är allt.
+
+Spanien vann hela turneringen. Klassigt, kompetent, lite själlöst tidvis – men vinnare är vinnare. England föll i final mot Frankrike som föll mot Spanien. Det är den sortens VM som får en att vilja ringa Kennet Andersson och prata om gamla tider.
 
 ---
 
 ## Tipskollen
 
-**Mollie och Wilma** delar täten med 166 rätt av 369. Välförtjänt. De har hängt med och gjort jobbet.
+Mollie och Wilma delar ledningen med **166 rätt av 369**. Imponerande. Respekt till båda, även om jag inte vet vem de håller på i fotboll, vilket är en brist.
 
-Sedan kommer **Andreas1 med 159** – stark placering. Caroline och Anna på 157. Solida namn.
+Andreas1 ligger trea med **159**. Bra jobbat.
 
-Och sen har vi **J Nilsson med 132 rätt.** Det är alltså Johan. Min Johan. 
-
-Jag ska inte vara elak. Jag ska bara säga att Johans tippsrad ser ut som en väderprognos från SMHI i mars – ibland rätt, ofta fel, men alltid med en viss självsäker charm. Han har tippat Norge och Frankrike till att gå långt, och det var inte dumt. Matchbilden var rätt. Det var detaljerna som svek.
-
-Som när han tippade X på Norge–Frankrike. Norge vann inte, Frankrike vann. Men *tanken* att det skulle vara jämnt – det är fotbollskänsla det. Johan tänker rätt. Siffrorna håller inte med.
+Längst ner hittar vi Andreas2 med **121 rätt**. Det är modigt att delta. Det är det.
 
 ---
 
-## Dagens ros 🌹
+## Johan Nilsson – vår man
 
-**Mollie och Wilma** – håll i hatten. Ni är turneringens piggaste tipspennor just nu.
+J Nilsson: **132 rätt av 369**.
 
----
+Nu ska jag vara ärlig med er, för det är det minsta Johan förtjänar. Han hade fel på en hel del. Men – och det här är viktigt – han hade ofta fel på ett genomtänkt sätt. Norge–Frankrike tippade han X. Det var fel. Men det var ett hederligt X. Fotbollsromantiskt till och med.
 
-## Dagens stolleprov 🤦
-
-**Andreas2 med 121 rätt av 369.** Det är under ett tredjedel av matcherna. Jag säger inte att jag har lösningen. Men kanske börja med att titta på matcherna?
+Johan, du såg saker som ingen annan såg. De hände bara inte alltid på planen.
 
 ---
 
 ## Brittans fundering
 
-Argentina är mästare. Spanien föll i finalen. Norge åkte ut mot England. Det är en turnering fylld av hjärtesorger och överraskningar. Som Bajen på 90-talet. Man vet aldrig, men man älskar ändå.
+Det bästa med ett VM är inte vinnaren. Det är allt det där däremellan. Sent på kvällen när Lasse somnat och man sitter ensam med en halvkall kopp och plötsligt gråter lite för att Ecuador slog Tyskland.
+
+Bajen hade spelat det annorlunda. Mer hjärta. Men det är en annan bloggserie.
 
 ---
 
-## Slutord från Farsta
-
-Bosse katten gäspade under Spanien–Argentina. Det säger ändå något. Lasse höll på Argentina. Han har haft fel förr – men den gången hade han rätt.
-
-Ha en fin lördag, allihop. Och ni som håller på att köpa glasögon på nätet – ni vet vilka ni är. Jag jämför bara bågar.
-
-*// Brittan, Farsta*
+*Ses imorgon, fotbollsvänner. Bosse katten har gått och lagt sig. Det är ett gott tecken.*
