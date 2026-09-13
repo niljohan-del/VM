@@ -6,54 +6,62 @@ date: 2026-09-13
 
 # God morgon VM-vänner – 13 september 2026
 
-Kaffe är påsatt. Bosse sitter i fönstret och stirrar på en duva med den sortens koncentration jag önskar att fler tippare hade. Lasse sover fortfarande. Det regnar i Farsta.
+Kaffe. Morgonrock. Bosse katten på knät och en hög med matchresultat som fått Lasse att undra om jag sov alls i natt.
 
-Och det var en natt värd att vakna till.
+Svaret är nej. Men det var värt det.
 
 ---
 
 ## Nattens matcher
 
-**Sverige–Frankrike slutade 0–2.** Jag ska inte ljuga – det svider. Men Frankrike är Frankrike, och vi ska vara stolta över att vi tog oss dit. 1994 brann det ordentligt den sommaren. Det gör det fortfarande, på ett annat sätt.
+Var ska man börja?
 
-**Norge slog England med 1–2.** Ja, ni hörde rätt. Norge. Besegrade England. Erling var... ja. Han var sig lik. Stark, bestämd, rak som en fjällbjörk. Jag tittar inte för hans skull. Jag tittar för fotbollens skull. Men det skadar ju inte.
+**Sverige–Japan slutade 1–1.** Jag vet inte om jag ska gråta eller applådera. Vi höll oss kvar, vi kämpade, men Japan är precis det laget som gör att man biter sig i läppen under hela andra halvlek. Det finns något vackert i den japanska fotbollen. Men just nu vill jag ha mer. Sverige kan mer.
 
-**Spanien slog Argentina i finalen med 1–0.** En tight final. Lite feg i perioder om man frågar mig – och det gör ni alltid. Bajen hade gjort det snyggare. Men Spanien förtjänade det. Det finns något vackert i disciplinerad fotboll när den väl lossnar.
+**Norge slog Elfenbenskusten 2–1.** Självklart gjorde de det. Nordisk ordning, rakryggad fotboll och en viss lång blond pojke som jag inte ska nämna vid namn. Lasse sa att jag log lite väl brett när målet kom. Jag log åt *spelet*. Det är *fotboll* jag reagerar på.
+
+**Frankrike–England slutade 4–6.** Jag läste det tre gånger. Sex mål för England. I en match mot Frankrike. Det är antingen mästerligt eller kaotiskt – troligtvis båda. Det där hade aldrig hänt 1994. Eller jo, fast med bättre frisyrer.
+
+**Spanien vann finalen mot Argentina 1–0.** Kallt. Kontrollerat. Lite för snyggt för att vara riktigt mänskligt. Bajen hade gjort det snyggare, men med mer hjärta.
 
 ---
 
 ## Tipskollen
 
-I topp sitter **Mollie och Wilma** med 166 rätt av 369. Grattis, tjejer – det är imponerande. Snyggt jobbat.
+Mollie och Wilma leder med 166 poäng vardera. Starkt. Imponerande, faktiskt. De har hållit i det länge och förtjänar sin plats i toppen.
 
-**Andreas2** ligger sist med 121 rätt. Jag säger ingenting. Men Bosse katten har haft bättre träffsäkerhet, och han sover 18 timmar om dygnet.
+Längst ner finner vi **Andreas2 med 121 rätt av 369**. Det är... modigt att fortsätta. Och det ska man inte ta ifrån honom.
 
 ---
 
 ## Johan Nilssons rad
 
-Låt oss prata om **J Nilsson** – 132 rätt av 369. Det ser inte roligt ut på pappret. Men jag har följt Johans resonemang och det finns en logik där som många missar. Han tippade modet, inte bara resultatet. Fotboll spelas av människor, och ibland straffar spelet de som tänker rätt.
+**J Nilsson: 132 rätt av 369.**
 
-Johan hade fel. Men på ett väldigt genomtänkt sätt.
+Jag ska inte slå på Johan. Det gör jag aldrig. Men det är klart att hans rad liknar lite grann Tunisiens turnering – lovande i teorin, krokig i praktiken. Johan tippade Norge–Senegal som kryss. Norge vann. Johan tippade Frankrike–England på Frankrike. England vann med sex mål.
+
+Det är inte fel tänkt, Johan. Det är fel resultat. Fotbollen är ibland orättvis mot dem som tänker rätt.
 
 ---
 
 ## Brittans fundering
 
-Norge slog England. Sverige åkte ut mot Frankrike. Argentina förlorade finalen. Det är därför vi älskar fotboll – det gör ont, det förvånar, det lyfter.
+Det finns matcher som påminner dig om varför du älskar det här spelet. Och det finns resultat som påminner dig om varför tipset aldrig är säkert.
 
-Sommaren 1994 grät jag när Brolin satte 2–1 mot Rumänien. Den känslan har jag burit med mig sedan dess. Den får man aldrig tillbaka exakt. Men man letar.
+Norge slår Brasilien 2–1 i gruppspelet. Brasilien, älskad, självklar, evig favorit. Och ändå.
+
+Det är därför vi älskar fotboll.
 
 ---
 
 ## Slutord från Farsta
 
-Mollie och Wilma – välförtjänt. Andreas2 – nästa turnering är en ny chans.
+Bosse katten gäspade åt halvtidsanalyserna i natt. Han har smak.
 
-Johan – du har hjärtat på rätt ställe. Det räcker långt.
+Lasse sa att Norge inte kan slå Brasilien "på riktigt". Lasse har haft fel förr.
 
-Lasse vaknade precis och frågade vem som vann VM. Jag sa Spanien. Han nickade och gick och satte på mer kaffe.
+Och Håland? Han spelade. Det var bra. Glasögonen han gör reklam för verkar dessutom ha bra bågar. Det är allt jag har att säga om den saken.
 
-Och Norway–England? Det är därför vi älskar fotboll.
+Ha en fin söndag, VM-vänner. Fotbollen väntar inte på någon.
 
-*– Brittan, Farsta*
+**// Brittan, Farsta**
