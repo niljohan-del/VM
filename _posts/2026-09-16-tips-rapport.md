@@ -6,52 +6,54 @@ date: 2026-09-16
 
 # God morgon VM-vänner – 16 september 2026
 
-Kaffet är på, Bosse katten sitter på fönsterbrädan och stirrar på en duva, och Lasse sover fortfarande. Det är just lagom för mig att sätta mig ner och gå igenom nattens VM-kaos.
+Kaffe. Morgonrock. Bosse katten ligger på fjärrkontrollen och Lasse sover fortfarande. Perfekt läge att sätta sig ner och göra upp räkningen från nattens matcher.
 
-Och kaos är ordet.
+Det var mycket fotboll. Kanske lite för mycket fotboll för en människa i min ålder. Men det är därför vi älskar fotboll.
 
 ---
 
 ## Nattens matcher
 
-Sverige–Japan slutade 1–1. Jag säger ingenting. Jo, ett: det där hade aldrig hänt 1994. Brolin hade fixat det i tilläggstid med vänsterfoten och ett leende.
+Låt oss börja med det viktigaste: **Sverige–Japan slutade 1–1**. Krysset är inte en katastrof, men det är inte heller vackert. Jag har sett bättre svenska insatser. Jag tänker på sommaren 1994, Brolin mot Rumänien, och suckar lite.
 
-Norge vann mot Elfenbenskusten. 2–1. Håland & co rullar på med den där nordiska envishet som jag av rent fotbollsmässiga skäl beundrar enormt. Att pojken dessutom springer som en stormvind kan jag inte hjälpa. Lasse frågade varför jag applåderade mot TV:n klockan ett på natten. Jag sa att det var för speluppbyggnadens skull.
+**Norge slog Senegal 3–2.** Dramatik in i det sista. Håland klev upp och levererade som han brukar. Jag tittar inte på Norge för Hålands skull – jag tittar för fotbollens skull. Att pojken råkar springa som en lokomotiv med perfekt hårfäste kan jag inte hjälpa.
 
-Spanien är vidare. Argentina med. Frankrike vann finalen med 6–4 mot England i ett mål som ingen förstod sig på att räkna. Det är därför vi älskar fotboll.
+**Spanien finalbesegrade Argentina 1–0** och tar hem hela turneringen. Det var vacker, kontrollerad fotboll. Bra. Bajen hade ändå gjort det snyggare.
 
-Brasilien förlorade mot Norge i utslagsskedet. Det finns något vackert i det. Och något konstigt. Men mest vackert.
+**Frankrike–England** avgjordes 6–4 till England i det som sannolikt var turneringens galnaste match. Fotboll spelas av människor, och ibland av tokiga sådana. Jag har sett värre.
 
 ---
 
 ## Tipskollen
 
-I toppen hittar vi **Mollie och Wilma** på 166 rätt vardera. Imponerande. Stabilt. Respekt.
+I toppen tronar **Mollie och Wilma** på 166 poäng vardera. Välförtjänt. De har läst fotbollen rätt när andra gissat.
 
-**Johan Nilsson** – min J Nilsson – sitter på 132 rätt av 369. Det ser tufft ut på pappret. Men jag har granskat hans rad, och Johan har haft rätt i *princip* vid upprepade tillfällen. Han tippade X på Norge–Frankrike. Norge förlorade. Han tippade 1 på Marocko–Haiti. Marocko vann. Se där. Tanken var rätt. Verkligheten var bara lite besvärlig.
-
-Johan hade fel på ett väldigt genomtänkt sätt.
+**J Nilsson – det vill säga Johan** – sitter på 132 poäng av 369. Det är inte lysande, det ska jag inte låtsas om. Men jag har sett Johans tankegång, och det finns en röd tråd där som de flesta saknar. Otur spelar in. Framtiden tillhör dem som tänker rätt, inte alltid dem som får rätt.
 
 ---
 
 ## Dagens ros
 
-**Mollie och Wilma** delar på topplatsen och förtjänar en gemensam hyllning. Det är sällan man ser sådan precision. Välförtjänt, båda två.
+**Mollie och Wilma** delar äran. Två damer i täten – det finns något vackert i det.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2** på 121 rätt. Jag säger inget mer. Jo, ett: 121 av 369 är ett statistiskt konststycke i fel riktning. Det krävs nästan talang.
+**Andreas2** på 121 poäng av 369. Det är en imponerande samling felaktiga tips. Man behöver inte vara Einstein, men man behöver kanske kolla lite mer än ett halvt öga på matcherna. Jag säger inte att jag har lösningen. Men...
 
 ---
 
 ## Brittans fundering
 
-Norge är kvar i turneringen. Sverige är ute. Bajen hade spelat med mer hjärta. Det är inte en analys. Det är ett grundvillkor.
+Norge besegrades av Frankrike, sedan slog de Elfenbenskusten och Senegal. Det är nordisk karaktär det. Man faller, man reser sig. Precis som Bajen gjort i alla derby vi förlorat mot Djurgården genom åren. Smärtan är riktig. Återkomsten är äkta.
 
-Lasse höll inte med om Norges spel igår. Han har haft fel förr.
+---
 
-Ha en fin dag, VM-vänner. Bosse katten godkänner inte Ecuadors insats mot Tyskland. Det säger ändå något.
+## Slutord från Farsta
 
-*– Brittan, Farsta*
+Bosse katten har gett upp fjärrkontrollen. Lasse vaknar snart och frågar vem som vann. Jag ska säga England och se om han bryr sig.
+
+Norge är ute. Det gör lite ont. Men Håland finns kvar i världen, och de där glasögonen han gör reklam för verkar faktiskt väldigt praktiska. Jag jämför bara bågar.
+
+Ha en fin dag, allihopa. Och kom ihåg – det finns större turneringar. Det finns rikare lag. Men det finns bara ett Bajen. 🟢
