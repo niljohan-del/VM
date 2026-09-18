@@ -4,52 +4,50 @@ title: "VM-tips 2026-09-18"
 date: 2026-09-18
 ---
 
-# God morgon VM-vänner! 18 september 2026 – och kvällens stora fråga är: varför sover ingen?
+# God morgon VM-vänner – 18 september 2026
 
-Kaffe nummer två. Bosse katten har redan bestämt sig för att ligga mitt på tangentbordet. Lasse sover fortfarande. Han missade Brasilien–Norge i natt och det är hans eget problem.
+Kaffe på bordet, Bosse katten på stolen och Lasse fortfarande i sängen. Det är morgon i Farsta, och jag har redan gått igenom resultaten tre gånger. Det var en natt. En riktig natt.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja?
+Låt oss börja med det viktigaste: **Sverige–Japan slutade 1–1**. Jag har sett värre. Men jag har också sett bättre. Japan är ett bra lag som spelar organiserat och snabbt – och vi fick kämpa för varje centimeter. Det är fotboll. Fotboll spelas av människor.
 
-**Sverige–Tunisien 5–1.** Det kändes skönt i hela kroppen. Tomas Brolin hade gråtit av glädje. Sedan förlorade vi mot Nederländerna med 1–5, och det var lite mer Brolin fast omvänt. Sen kryssade vi mot Japan. Det är VM. Det är karusell.
+**Norge vann mot Ivory Coast med 2–1.** Självklart. Det är därför vi älskar fotboll. Håland – och nu pratar jag om honom rent analytiskt, ingenting annat – var i särklass. Han rör sig som om planen är lite för liten för honom. Lasse frågade varför jag stannade kvar framför TV:n så länge efter matchen. Jag sa att jag väntade på skadestatistiken.
 
-**Brasilien–Norge.** Norge vann med 2–1. Jag tittar inte för Hålands skull. Det är nordisk arbetsmoral och rak fotboll jag värdesätter. Att pojken springer som en lokomotiv och ser ut som om han precis klev ut ur en sagabok är helt irrelevant. Lasse frågade varför jag hade satt på matchen om och om igen. Jag sa att jag studerade presspelet.
+**Ecuador slog Tyskland med 2–1** – det var årets överraskning om du frågar mig. Bajen hade gjort det snyggare, men poängen är densamma.
 
-**Spanien–Argentina** avgjorde allt i finalen: 1–0. Vackert och brutalt på samma gång. Det är därför vi älskar fotboll.
-
-**Ecuador–Tyskland 2–1** var nattens största chock. Bajen hade spelat modigare. Men det finns något vackert i underdog-känslan.
+**Frankrike rullar vidare.** Spanien likaså. Argentina likaså. Det är VM-slutskedet nu – inga misstag, ingen nåd.
 
 ---
 
 ## Tipskollen
 
-Ledartabellen är tight som ett Söderstadion-derby på 90-talet.
+**Mollie och Wilma leder med 166 rätt på 369 matcher.** Imponerande. Två tjejer i toppen – det är precis som det ska vara. Hattarna av, damer.
 
-**Mollie och Wilma** delar täten med 166 rätt av 369. Imponerande. Modigt. Rättvist berömda.
+**Andreas1** ligger på tredje plats med 159. Solitt. Inte glamoröst, men solitt.
 
-**J Nilsson** ligger på 132 rätt. Det är Johan. Min Johan. Och jag vet vad ni tänker.
-
----
-
-## Dagens ros
-
-Johan tippade **Norge att slå Frankrike** – och fick rätt. Han såg det ingen annan vågade se. Det är inte tur. Det är fotbollsblick. Att resten av raden ser ut som ett lapptäcke sytt av någon som aldrig sett en fotbollsmatch, det är en annan sak. Tanken var rätt. Resultatet var ibland rätt. Det räcker för mig.
+Och sedan har vi **J Nilsson – 132 rätt.** Johan, älskling. Du är min favorit, det vet du. Men 132 är… lite magert. Tanken bakom dina tips brukar vara god. Det är utfallen som strular till det. Fotboll är orättvis så. Det är därför vi håller på.
 
 ---
 
 ## Dagens stolleprov
 
-**Andreas2** med sina 121 rätt. Älskling. Det är ett VM med 369 matcher. Man behöver inte ha rätt på alla, men man behöver ha rätt på *fler*. Jag säger inte att jag har lösningen. Men.
+**Andreas2 – 121 rätt.** Lägst i tabellen. Jag ska inte vara elak. Men det finns ett mönster här som antyder att antingen tippar man med ögonen stängda, eller så är man göteborgare. Jag vet inte vilket det är. Ingen vet.
 
 ---
 
 ## Brittans fundering
 
-Norge vann mot Brasilien. Norge! I ett VM! Det är det nordiska projektet vi alla drömde om. Jag köpte förresten inte de där glasögonen. Än.
+Det finns något vackert i hur Norge kämpar sig igenom det här turneringen. Rak, ärlig fotboll. Precis som jag gillar det. 1994 hade vi Brolin och Dahlin – den sommaren var magisk. Nu får vi leva med minnet och hoppas att Norge bär facklan norrut.
+
+Och Sverige? Vi är kvar. Det räcker tills imorgon.
 
 ---
 
-*Puss från Farsta. Bosse katten sover. Lasse också. Bara jag och fotbollen.*
+Bosse katten nickar gillande. Eller sover. Svårt att säga.
+
+Ha en fin dag, VM-vänner. *Bajen är fortfarande bäst – det har ingenting med saken att göra, men det ska sägas.*
+
+– Brittan, Farsta
