@@ -4,60 +4,60 @@ title: "VM-tips 2026-09-19"
 date: 2026-09-19
 ---
 
-# VM-dagbok från Farsta | 19 september 2026
+# God morgon VM-vänner! 19 september 2026 – och fotbollen gör vad den vill
 
-*av Britt-Marie "Brittan" Andersson*
+Kaffe är drucket. Bosse katten sitter i fönstret och stirrar på duvor. Lasse sover fortfarande. Och jag har redan hunnit bli arg, glad, förbannad och rörd – i den ordningen.
 
----
-
-God morgon, VM-vänner!
-
-Kaffe nummer två är pådrucket, Bosse katten ligger och värmer fötterna och Lasse sover fortfarande. Det är tyst i Farsta. Men det är det inte i mina anteckningsblock.
-
-Det har spelats **fotboll**. Mycket fotboll. Nästan för mycket fotboll.
+Det är VM. Självklart är det så.
 
 ---
 
-## Nattens matcher
+## Nattens matcher – vad hände egentligen?
 
-Vi börjar med det viktigaste: **Sverige–Frankrike slutade 0–3**. Frankrike tog det lugnt, Sverige sprang hårt men inte tillräckligt snabbt. Det finns något hedrande i det, men inte tillräckligt hedrande för att kallas upplyftande. Japan höll Sverige till 1–1 tidigare i turneringen. Nederländerna vann med 5–1 mot oss. Det gnager.
+Låt oss börja med det uppenbara: **Sverige vann med 5–1 mot Tunisien**. Fem mål. Fem stycken. Jag fick nästan skriva om mig själv i tredje person av stolthet. Det är inte 1994 – men det börjar lukta lite Brolin i luften ändå.
 
-Men vi var i VM. Det glömmer jag inte. 1994 var vi i semifinal. Brolin. Dahlin. Kennet. Ravelli med handskar som verkade gjorda av trolleri. Det var andra tider.
+Sedan förlorade vi mot **Nederländerna med 1–5**. Och mot **Frankrike med 0–3**. Och kryssade mot **Japan**. VM är en berg-och-dalbana, och Sverige åker utan säkerhetsbälte.
 
-På den ljusa sidan: **Norge slängde ut Brasilien med 2–1** i åttondelen. Jag läser den meningen igen. Norge. Slog. Brasilien. Jag satt upp till midnatt för det och det var värt varenda minut. Det är nordisk arbetsmoral, det är fjäll i ryggraden, det är... ja. Det är Norge. Håland spelade förstås. Han springer som om marken är rädd för honom. Jag säger ingenting mer om det.
+**Norge besegrade Irak 4–1** i gruppspelet. Lugnt, metodiskt, vackert. Som en fjällvandring med mål i slutet. Att Håland såg ut som en vikingagud däruppe på planen kan jag inte hjälpa. Jag tittar på fotbollen. Enbart fotbollen.
 
-**Spanien** vann hela sin grupp och verkar mena allvar. Argentina rullar på. England vann till slut mot Mexiko. Tysklands 7–1 mot Curaçao var det enda sättet att spela mot Curaçao.
+**Tyskland åkte ur** mot Ecuador. 2–1 förlorat, trots att de vann mot Curaçao med 7–1. Det är football. Det är orättvist. Det är perfekt.
+
+Finalen? **Spanien–Argentina: 1–0**. Klassisk. Tät. Vacker på ett sätt som Söderstadion under ett derby är vacker – varje centimeter fylld med känsla.
 
 ---
 
 ## Tipskollen
 
-I toppen hittar vi **Mollie och Wilma** som delar ledningen med 166 rätt av 369 spelade. Det är respektingivande. Grattis till er båda – och jag kan inte hitta ett enda fel att pirra på. Det sticker i ögonen lite.
+I toppen jublar **Mollie och Wilma** – delade på 166 rätt. Grattis, tjejer. Imponerande. Rättvist.
 
-**Johan Nilsson** ligger på 132 rätt. Det är inte toppen, det ska vi inte låtsas om. Men jag har granskat hans rad och det är en rad full av *övertygelse*. Han tippade Norge att vinna mot Senegal – rätt. Han tippade Argentina rätt gång på gång. Problemet är att han ibland haft för stor tilltro till X när fotbollen bestämt sig för att vilja ha 1 eller 2. Det är ett ärorikt fel. Johan ser matchbilden. Kulorna ramlar bara fel.
+Men vi måste prata om **J Nilsson** – 132 rätt av 369. Kär Johan. Min favoritamateur. Han tippade Australien att slå Turkiet med tvåa. Turkiet vann. Han tippade Norge att kryssat mot Frankrike – Norge förlorade. Han tippade Paraguay i flera omgångar. Paraguay var... Paraguay.
 
-Det händer de bästa.
+Men Johan hade rätt om Uzbekistan–Colombia. Han såg tvåan när andra tvekade. Det är det där. Den blicken. Den lilla gnistan.
 
-Längst ner hittar vi **Andreas2 med 121 rätt**. Andreas, gubben. Jag vet inte vad du tittade på, men det verkar inte alltid ha varit fotboll.
+---
+
+## Dagens ros 🌹
+
+**Mollie och Wilma** delar äran idag. 166 rätt är inte slump. Det är fotbollskänsla.
+
+---
+
+## Dagens stolleprov 🃏
+
+**Andreas2 – 121 rätt av 369**. Jag säger inte att det är katastrof. Men Bosse katten gick ut ur rummet när jag läste siffrorna. Det säger ändå något.
 
 ---
 
 ## Brittans fundering
 
-Marocko slog Nederländerna i åttondelen. 4–3. Nederländerna som hade 5–1 mot Sverige och ändå åkte ut. Det är därför vi älskar fotboll. Det finns ingen rättvisa. Det finns bara nästa match.
+Norge möter Frankrike. Förlorar 4–1. Det gör ont. Men de vann mot Senegal 3–2 dessförinnan. Det finns mod i det. Nordiskt mod.
 
-Bajen hade hanterat det med mer värdighet. Det är bara vad jag tror.
+Och Spanien vann VM. Som de skulle. Med stil. Utan bråk.
+
+Bajen hade tagit en riktig lucka i det här laget. Det är inte en åsikt. Det är ett grundvillkor.
 
 ---
 
-## Slutord från Farsta
+*Puss på er från Farsta. Lasse vaknade. Bosse katten hoppade ner. Och VM rullar vidare.*
 
-Ta hand om er. Drick vatten. Sov ibland.
-
-Och Johan – du är inne på rätt spår. Bara lite rakare den.
-
-Lasse vaknade precis och frågade om Norge vann. Han visste svaret. Han såg på mig och log.
-
-Han har haft fel förr. Men inte i dag.
-
-🟢⚪🟢
+**– Brittan**
