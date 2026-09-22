@@ -4,64 +4,52 @@ title: "VM-tips 2026-09-22"
 date: 2026-09-22
 ---
 
-# God morgon VM-vänner – 22 september 2026!
+# God morgon VM-vänner! | 22 september 2026
 
-Kaffet ryker. Bosse sitter i fönstret och stirrar på en duva med den där blicken som säger *jag vet exakt vad jag håller på med*. Lasse sover fortfarande. Och jag sitter här med tretton matcher i magen och en hel del att säga.
+Kaffe. Grått väder utanför fönstret i Farsta. Bosse katten sitter och stirrar på mig som om han vet något jag inte vet. Lasse sover fortfarande. Det är tisdag och VM rullar på som ett tåg utan bromsar.
+
+Satte mig ner med mugg nummer två och gick igenom nattens resultat. Det blev en lång sits.
 
 ---
 
 ## Nattens matcher
 
-Sverige vann mot Tunisien med 5–1 i gruppspelet. Femmal. Det är ett resultat som värmer en gammal Bajen-hjärta, även om det inte är Brolin 1994 vi pratar om. Det var han som hade känslan. Men vi tar det vi får.
+Sverige mot Japan slutade 1–1. Jag säger ingenting. Jo, en sak: 1994 hade Brolin löst det där på övertid med ett leende och lite frisyr. Nu fick vi ett kryss. Det finns något vackert i att hålla ut. Men inte alltid.
 
-Norge slog Senegal med 3–2. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar leverera som en vikingahövding med örnblick kan jag inte hjälpa. Lasse frågade varför jag hade norsk tröja på mig. Jag sa att det var kallt.
+**Norge** slår Frankrike 1–2 som gäst i ett sent gruppspel och jag... ja. Håland är Håland. Det finns något i det nordiska, den där stenhårda viljan. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken ser ut som en vikingahövding med perfekt ansiktsstruktur kan jag inte hjälpa. Lasse frågade ingenting. Klokt av honom.
 
-Frankrike–England slutade 4–6. Fyra-sex. I en VM-final, vad det nu var. Det är det där som är fotboll. Brolin hade älskat det. Det finns något vackert i det.
-
-Spanien vann turneringen med 1–0 mot Argentina i den avgörande matchen. Ordning och reda. Man behöver inte vara Einstein för att gilla spanskt spel, men det hjälper att ha sett lite fotboll.
+Spanien vinner turneringen. Det är inte en spådom. Det är ett konstaterande.
 
 ---
 
 ## Tipskollen
 
-Mollie och Wilma leder med 166 rätt av 369 omgångar. Stark prestation. De har tippat som folk med koll.
+I toppen tronar **Mollie och Wilma** med 166 rätt av 369. Respekt. Genuint. Det är inte tur i den storleksordningen – det är fotbollsförstånd.
 
-Sedan kommer Andreas1 med 159, Caroline och Anna med 157. Hederliga siffror allihop.
+**Johan Nilsson** ligger på 132 rätt. Det ser ut som det ser ut. Men jag har följt hans rad och mannen tänker rätt. Han tippade X på Nederlänerna–Japan, och det stämde. Han såg att Argentina inte är opåverkbara. Det är bara det att fotbollen inte alltid belönar rätt tänkande. Det är därför vi älskar den.
 
-Och Johan Nilsson? **132 rätt av 369.**
-
-Jag ska vara ärlig med er. Det är inte Johans bästa mästerskap sett till siffrorna. Men Johan tänker rätt. Han tippade 1 på USA–Paraguay, 1 på Mexiko–Sydafrika, 1 på Argentina. Grundmotorn är fin. Det är träffen som strular.
-
-Det är som när Bajen spelar snyggt men förlorar. Tanken var rätt. Resultatet blev det inte.
+Johan hade fel på en del. Men på ett genomtänkt sätt.
 
 ---
 
 ## Dagens ros
 
-Mollie och Wilma. Ni har koll. Ni tippade när det gällde. Hatten av.
+**Mollie och Wilma** delar på buckeln idag. Gemensamt ledarskap. Det är nästan vackert. Som ett bra mittfältspar.
 
 ---
 
 ## Dagens stolleprov
 
-Andreas2 med 121 rätt. Kära vän. Det är ett mod att lämna in ett tips. Men ibland är modet lite för eget.
+**Andreas2** på 121 rätt. Av 369 spelade matcher. Det är under en tredjedel. Jag säger inte att man behöver vara Einstein. Men man behöver inte vara det för att det ändå ska gå bättre än så här. Kärleksfullt sagt, Andreas.
 
 ---
 
 ## Brittans fundering
 
-Norge slog alltså Brasilien med 2–1. Brasilien. Samba-nationen. Det nordiska mot det passionerade. Jag tror att Håland äter havregrynsgröt till frukost och ändå ser ut som han just sångat en björn. Det finns ett slags rättfärdighet i det.
+Norge slår Brasilien 2–1. Låt det sjunka in. Det gamla fotbollslandet Brasilien, med samba och pärlor och Pelés arv – förlorar mot Norge. Något håller på att hända med fotbollen. Underdogarna biter ifrån. Det påminner mig om att Bajen en gång slog IFK Göteborg på Söderstadion när ingen trodde på oss. Känslan i stan den kvällen. Gemenskap. Lidande omvandlat till jubel.
 
-Bajen hade spelat det vackrare. Men inte nödvändigtvis bättre.
+Det är det fotboll är.
 
----
+Bosse katten nickar. Eller sover. Det är svårt att säga.
 
-## Slutord från Farsta
-
-Bosse lämnade fönstret. Duvan flög iväg. Lasse vaknade och frågade vem som vunnit VM. Jag sa Spanien.
-
-Han nickade och somnade om.
-
-Fotboll spelas av människor. Det är därför vi älskar det.
-
-*– Brittan, Farsta*
+**Heja Bajen. Ha en fin tisdag.**
