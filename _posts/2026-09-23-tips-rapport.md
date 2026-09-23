@@ -4,54 +4,62 @@ title: "VM-tips 2026-09-23"
 date: 2026-09-23
 ---
 
-# God morgon VM-vänner – 23 september 2026
+# God morgon VM-vänner! – 23 september 2026
 
-Kaffe nummer två är i koppen, Bosse katten sitter och fixerar mig med den där blicken han har när han vet att jag sovit för lite. Han har rätt. Det var en kväll det.
+Kaffe. Duggregn. Bosse katten sitter i fönstret och stirrar på något som inte finns.
+
+Typisk septembermorgon i Farsta. Och ändå – hjärtat slår lite fortare. Det är VM. Det är alltid VM.
 
 ---
 
 ## Nattens matcher
 
-Var ska man börja?
+Låt oss börja med det viktigaste: **Sverige förlorade mot Nederländerna med 5–1**. Jag säger inget mer om det. Jo, ett sak – 1994 hade det aldrig sett ut så. Brolin hade aldrig tillåtit det. Men Japan och Sverige slutade sedan 1–1, vilket känns som ett plåster på ett ganska stort sår.
 
-**Sverige–Frankrike slutade 0–2.** Frankrike vann, klart och tydligt. Gult och blått kämpade, men det räckte inte. Jag tänkte på 1994 när Brolin dansade på gräset i Pontiac. Nu dansade fransmännen. Det svider. Lasse sa "det var bra jobbat ändå". Jag sa ingenting.
+**Norge slog Senegal med 3–2.** Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken tar mål som om han har ett privat avtal med nätet kan jag inte hjälpa.
 
-**Norge slog Brasilien med 2–1.** Läste om det tre gånger. Norge. Slår. Brasilien. Det finns ett ord för det och det heter magi. Nordisk, rak, arbetsam magi. Jag ska inte säga att det handlade om en lång blond anfallare med glasögon i reklamen. Det handlade om laganda. Men pojken var nog inblandad någonstans.
+**Spanien kryssade mot Kap Verde** och **Brasilien mot Marocko**. Brasilien som inte vinner mot Marocko. Det finns något djupt melankoliskt i det.
 
-**Spanien slog Argentina med 1–0** i det som redan kallas turneringens bästa match. Vacker fotboll. Plågsamt vacker. Bajen hade gillat det. Vi som älskar fotboll just nu – vi levde.
+**Ecuador slog ut Tyskland** med 2–1. Sju mål i ena matchen, åka ut i nästa. Fotboll är grym. Det är därför vi älskar det.
 
-**Ecuador slog Tyskland med 2–1.** Ja. Ecuador. Stor dag för underdogen, svart dag för de tyska maschinerna. Jag har sett värre. Men sällan mer förvånande.
+**England–Argentina** slutade 1–2. Argentinien vann VM till slut. Lasse höll inte med om att det var rättvist. Han har haft fel förr.
 
 ---
 
 ## Tipskollen
 
-I toppen kämpar **Mollie och Wilma** axel mot axel på 166 rätt av 369. Det är imponerande. Kloka damer båda två.
+I toppen tronar **Mollie och Wilma**, båda på **166 rätt av 369**. Grattis, damer. Det är ett solitt hantverk.
 
-**Andreas1** ligger trea med 159. Stabilt.
+**Andreas1 på 159**, **Caroline och Anna på 157** – respektabelt sällskap.
 
-Och så har vi **J Nilsson – alltså Johan** – på 132 rätt. Inte tabelltopp, det är sant. Men Johan tippade rätt på Norge–Brasilien. Det kräver antingen djup analys eller hjärta. Troligen båda.
-
-Johan har också en tendens att tro på kryss lite väl flitigt. Qatar–Schweiz? Rätt. Men sedan får det inte bli ett system, Johan. Fotboll spelas av människor, inte av kalkylark.
+Och sen har vi **J Nilsson på 132** och **Heimbrand på 130**, som verkar ha tippat med stängt öga. **Andreas2 på 121** är ett eget kapitel. Jag säger bara: det krävs en viss talang att hamna så långt ner.
 
 ---
 
-## Dagens ros
+## Johans rad
 
-**Mollie och Wilma** delar segern idag. Gemensamt i toppen. Det är vackert. Som ett riktigt derby fast utan bråk.
+**Johan** – min Johan – har en rad som är, hur ska jag säga det, *karaktärsfull*. Han har träffat rätt på matcher som Qatar–Schweiz, Brasilien–Marocko, Elfenbenskusten–Ecuador och Uzbekistan–Colombia. Det är kloka val. Mannen läser fotboll.
 
----
+Att han sedan tippat fel på hälften av alla övriga saker beror, som jag förstår det, på att det händer *för mycket* i det här VM. Det är inte Johans fel att fotboll är kaotisk. Det är fotbollens fel.
 
-## Dagens stolleprov
-
-**Andreas2 på 121 rätt.** Kärleksfullt sagt: det är modigt att fortsätta. Det säger ändå något om karaktär.
+Tanken bakom tipsen var rätt. Utfallen var fel. Det är skillnad.
 
 ---
 
 ## Brittans fundering
 
-Norge slog Brasilien. Johan tippade det inte – men han borde ha gjort det. Ingen av oss är riktigt redo för vad det innebär när Norden vinner mot samba. Det finns något vackert i det. Och något som påminner mig om varför jag älskar den här sporten.
+Jag tänkte på Kenta häromsistens. På Söderstadion. På hur det kändes att stå i bruset och veta att man hörde hemma någonstans. VM är stort och fint, men det är aldrig riktigt *det där*.
 
-Bosse katten har somnat om. Lasse har fortfarande fel om Frankrike.
+Det finns större klubbar. Det finns rikare klubbar. Men det finns bara ett Bajen.
 
-**Heja Bajen. Och heja Norge.**
+---
+
+## Slutord från Farsta
+
+Mollie och Wilma leder. Norge lever. Håland gör mål. Jag tittar på glasögon på nätet – för att de verkar praktiska.
+
+Lasse frågade vad jag höll på med. Jag sa: forskning.
+
+Han såg inte övertygad ut.
+
+Ha en fin dag, VM-vänner. 🖤💚
