@@ -4,57 +4,59 @@ title: "VM-tips 2026-09-24"
 date: 2026-09-24
 ---
 
-# VM-dagbok från Farsta | 24 september 2026
+# God morgon VM-vänner – 24 september 2026!
 
-*av Britt-Marie "Brittan" Andersson*
+Kaffe är bryggd, Bosse katten ligger och stirrar på mig som om han visste något jag inte vet, och Lasse sov igenom hela slutspelet igår. Det säger ändå något.
 
----
-
-God morgon, fotbollsvänner!
-
-Kaffe nummer två är påtaget, Bosse katten ligger på kvällstidningen och Lasse sover fortfarande. Det är onsdag. Eller torsdag. Jag har tappat lite greppet om veckodagarna när matcherna avlöser varandra som de gör. Det spelar ingen roll. Det är VM. Tid är relativ.
+Det har spelats fotboll, mina vänner. Massor av fotboll.
 
 ---
 
-## Nattens matcher
+## Nattens matcher – vad hände egentligen?
 
-Spanjorerna tar turneringen med storm. Frankrike ser ut som Frankrike – det vill säga farliga, vackra och lite arroganta. England–Argentina slutade som det slutade, och jag säger inte att det var vackert, men det var åtminstone dramatiskt. Det är därför vi älskar fotboll.
+Låt oss börja med det viktigaste: **Sverige förlorade mot Frankrike med 3–0**. Jag ska inte ljuga och säga att det förvånade mig. Men det sved. Och Japan–Sverige slutade 1–1 i gruppen. Man tar vad man får.
 
-Och så Norge, mina vänner. **Brasilien–Norge 1–2.** Jag läste resultatet tre gånger. Lasse sa att det är ett bra lag. Jag sa att det är mer än ett bra lag. Det är fotboll spelad med ryggrad. Det finns något vackert i det. Att Håland och grabbarna går in mot Seleção och vinner – det hade Tomas Brolin antagligen applåderat. Det hade jag också gjort, om jag inte redan gjort det.
+Sedan var det **Norge som slog Brasilien med 2–1** i slutspelet. Jag upprepar: Norge slog Brasilien. Med 2–1. Jag stod upp från soffan. Lasse frågade vad som hänt. Jag hade inte ord. Det finns något vackert i nordisk envishet som påminner mig om ett Bajenderby i november – dumt väder, ingen förväntar sig något, men du ger allt.
 
----
+Att Håland burade mot Brasilien... ja. Det är praktisk fotboll. Effektiv. Nordisk. Och pojken ser ut som om han klev rakt ur en isländsk saga. Men det är ett sidospår.
 
-## Tipskollen
-
-Mollie och Wilma toppar ligan med 166 rätt av 369. Respekt. Det är ett bra facit och ingen slump.
-
-Johan Nilsson – käre Johan – ligger på 132 rätt. Det är inte tabelltoppen, och det vet han lika väl som jag. Men jag har följt hans rad och jag ser vad han försöker göra. Han försöker läsa fotboll, inte bara fylla i kryss för säkerhets skull. Det är ett hedervärt hantverk, även när det går åt skogen.
-
-Johan hade rätt på att Norge skulle slå Frankrike. Det är inte litet. Det kräver övertygelse.
+**Spanien vann VM** genom att besegra Argentina i finalen med 1–0. En matchbild som fick mig att tänka på 1994 – taktik, klass och ett mål som avgjorde allt. Brolin hade gillat det. Kanske inte Ravelli.
 
 ---
 
-## Dagens ros 🌹
+## Tipskollen – hur gick det?
 
-**Mollie och Wilma** delar topplatsen och de har förtjänat varenda poäng. Skärpa, mod och träffsäkerhet. Hatten av.
+Poängtoppen ser ut såhär:
+
+**Mollie och Wilma delar ledningen med 166 rätt av 369.** Imponerande. Jag vet inte vem de är, men de har uppenbarligen tittat på fotboll med öppna ögon.
+
+**J Nilsson (dvs Johan)** landar på 132 rätt av 369. Det är... tålamodskrävande läsning. Men jag har följt Johans tänk genom hela turneringen, och problemet är inte analysen. Problemet är att fotboll ibland är totalt ologisk. Johan hade rätt i tanken. Resultaten höll inte med. Det är därför vi älskar fotboll.
 
 ---
 
-## Dagens stolleprov 🤦
+## Dagens ros
 
-**Andreas2** med sina 121 rätt. Jag säger ingenting. Jag antyder bara att det finns en gräns för hur många gånger man kan tippa 1 mot ett minilag och bli förvånad när det inte håller.
+**Mollie och Wilma** – ni får dela blomsterkvasten. Ni tippade med mod och precision. Hattifnatt för er.
+
+---
+
+## Dagens stolleprov
+
+Den som tippade **Paraguay att slå Tyskland med 4–5** och sedan fick rätt... det var inte ett tips. Det var ett diktverk. Jag säger inte att jag är avundsjuk. Men jag är avundsjuk.
 
 ---
 
 ## Brittans fundering
 
-Norge slår Brasilien. Spanien vinner finalen. Håland springer som en lokomotiv med glasögon.
+VM är slut. Spanien är världsmästare. Norge slog Brasilien. Och Sverige hängde med tillräckligt länge för att ge mig hopp, och sedan tog Frankrike hand om det hoppet på det sätt Frankrike brukar göra.
 
-Jag ska inte säga att jag funderat på de där glasögonen igen. Men jag har gjort det.
+Men det var ett bra VM. Jag har sett värre.
 
-Lasse höll inte med om Norges chanser. Han har haft fel förr.
+Bajen hade spelat det snyggare. Det är inte en åsikt – det är ett grundvillkor.
 
 ---
 
-*Ses imorgon, Farsta ut.*
-**– Brittan**
+*Ha en fin dag, Farsta. Krama era nära och kära. Och Johan – du är fortfarande min favorit, oavsett vad tabellen säger.*
+
+**// Brittan**
+*Farsta, med kaffet kallt och Bosse katten fortfarande misstänksam*
