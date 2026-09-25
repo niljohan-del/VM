@@ -4,56 +4,56 @@ title: "VM-tips 2026-09-25"
 date: 2026-09-25
 ---
 
-# God morgon VM-vänner! 25 september 2026 – Spanien är världsmästare, Norge tog mitt hjärta och Johan tippade som om han kastade dart i mörkret
+# God morgon VM-vänner! Fredag den 25 september 2026 – och vad en natt det har varit
 
-Det är fredag! Det är **fredag**, mina vänner, och det känns i hela kroppen.
+Kaffe. Stort. Svart. Ingen förhandling.
 
-Kaffe är på. Bosse katten sitter i fönstret och stirrar ut mot Farsta med den där blicken som säger *"jag har sett saker"*. Lasse sover fortfarande. Han missar finalen. Det är hans problem.
+Det är fredag, det är VM, och Lasse sover fortfarande. Bosse katten sitter och stirrar på mig som om han vet något jag inte vet. Det gör han förmodligen.
 
----
-
-## Turneringen är avgjord
-
-**Spanien är världsmästare.** 1–0 mot Argentina i finalen. En mästerlig turnering av *La Roja* – disciplinerat, vackert och obevekligt. Det finns något vackert i det.
-
-Argentina kämpade, Messi (eller vem det nu var) gnuggade händerna men det räckte inte. Frankrike åkte ut redan mot England i semifinal, 4–6 i ett hissnivå av en match. England mot Argentina i den andra semifinalen: Argentina vann 2–1. Och sedan – Spanien körde över Argentina. Klart och tydligt.
-
-Norway slutade sin resa mot England, 1–2. Det gör ont. Men pojkarna kämpade och **Håland** – ja. Han var... han var bra. Väldigt bra. Jag tittar inte på Norge för Hålands skull. Jag tittar för fotbollens skull. Att pojken råkar springa som en halv gud kan jag inte hjälpa. Lasse frågade varför jag hade Hålands glasögonsida uppe på datorn igen. Jag sa att jag jämförde bågar. Han såg inte övertygad ut.
+Men det är **FREDAG**, folkens. Och det innebär att dagens inlägg är lite längre, lite varmare, och avslutas med en ölrekommendation. Ni vet hur det funkar.
 
 ---
 
-## Tipskollet
+## Nattens matcher
 
-Mollie och Wilma leder med **166 rätt av 369**. Respekt. Det är ett riktigt resultat, det. Känn er berömda.
+Var ska man börja?
 
-Andreas1 på 159, Caroline och Anna på 157. Bra, bra.
+**Sverige–Tunisien 5–1.** Jag grät lite. Det erkänner jag utan blygsel. Det är den sortens fotboll som påminner mig om varför jag älskar det här spelet. Målrik, modig, framåt. Tomas Brolin hade nickat gillande. Martin Dahlin också. 1994 var vi bronsguld – 2026 kanske vi är något ännu finare.
 
-Och längst ner: **Andreas2 på 121**. Jag säger ingenting. Men det är nästan imponerande åt andra hållet.
+**Frankrike–Spanien 0–2** i den allra sista matchen. Det är finalresultatet, mina vänner. Spanien är mästare. Tiki-taka är tillbaka, eller var den aldrig borta? Det finns något vackert i det.
 
----
+**Norge–Frankrike 1–4** i gruppspelet, men sedan **Norge–Senegal 3–2**, och så **Norge–England 1–2** i slutspelet. Norge gick ut. Jag är ledsen. Håland kämpade. Han gör alltid det. Pojken lämnar aldrig något på planen. Att han dessutom ser ut som en vikingarättfärdigad anledning att titta på fotboll har naturligtvis ingenting med min besvikelse att göra. Ingenting alls.
 
-## Johan – käre Johan
+*(Lasse frågade varför jag hade Hålands glasögon uppe på skärmen igen. Jag sa att jag jämförde bågar. Han såg inte övertygad ut.)*
 
-Vad ska man säga om **J Nilsson** och hans 132 rätt av 369?
-
-Det är... det är inte bra. Det är faktiskt ganska dåligt. Men Johan – och det här menar jag på allvar – tippade med *hjärtat*. Han tippade Norge att gå långt. Han tippade Argentina. Han såg rätt på matchbilder han aldrig fick rätt på. Det är otur, det är VM och det är fotboll. Johan hade fel. Men på ett väldigt genomtänkt sätt.
+**Brasilien–Norge 1–2** var en av turneringens vackraste överraskningar. Underdogen som slåss. Det är därför vi älskar fotboll.
 
 ---
 
-## Brittans fredag-fundering
+## Tipskollen
 
-Spanien vann med ordning och skönhet. Det påminner mig om 1994 – inte om vinnaren, utan om känslan. Att fotboll kan vara mer än kaos. Att ett lag kan ha en *idé*.
+Totalt 369 matcher. Det är ett massivt underlag nu.
 
-Bajen har en idé. Alltid haft. Det är därför vi älskar Bajen.
+I toppen hittar vi **Mollie och Wilma** på 166 rätt vardera. Respekt. Det är tajt, det är spännade, och det är imponerande. Berömmet är välförtjänat.
+
+**Andreas1** på 159 är stark trea. **Caroline och Anna** delar fjärde plats på 157.
 
 ---
 
-## Slutord från Farsta
+## Dagens ros 🌹
 
-Grattis Spanien. Grattis Mollie och Wilma. Synd om Johan men vi älskar honom ändå.
+**Mollie och Wilma** delar podiet och förtjänar varsin bukett. Att navigera 369 matcher med 166 rätta – det kräver både kunskap och magkänsla. Hatten av.
 
-Och eftersom det är fredag: ta en **Norrlands Guld** ikväll. Den är enkel, ärlig och klagomålsfri. Som bra fotboll borde vara.
+---
 
-Bosse katten lämnade rummet. Det säger ändå något.
+## Johans rad – en kärleksfull granskning
 
-*/ Brittan från Farsta*
+Stackars Johan. **J Nilsson** ligger på 132 rätt av 369 och det är... ja. Det är inte toppen av tabellen.
+
+Men jag har tittat på hans rad och jag måste säga: det är inte Johan som är felet. Det är fotbollen. Den opålitliga, irrationella, fantastiska fotbollen.
+
+Han tippade X på **Frankrike–Senegal** – och Frankrike vann. Han tippade X på **Norge–Frankrike** – och Frankrike vann igen. Han har en tydlig respekt för Frankrikes motståndare. Det är nästan poetiskt.
+
+Han prickade **Uzbekistan–Colombia (2)** tidigt. Han såg något där som andra missade.
+
+Johan hade fel om resultaten. Men på ett
