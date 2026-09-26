@@ -4,52 +4,46 @@ title: "VM-tips 2026-09-26"
 date: 2026-09-26
 ---
 
-# God morgon VM-vänner – 26 september 2026
+# VM-blogg: 26 september 2026 — Norges dag, Spaniens triumf och en tipstabell som mår hyfsat
 
-Kaffe nummer två är pågjutet. Bosse katten ligger på fjärrkontrollen igen. Lasse påstår att det är måndag som bär skulden till hans humör, men jag misstänker att det är Ecuador–Tyskland som fortfarande spökar.
-
-Ja, ni hörde rätt. **Ecuador slog Tyskland med 2–1.** Jag har sett mycket i mitt liv. Jag var i studio när Brolin dansade förbi halva Rumänien 1994. Men Ecuador och Tyskland – det var en ny sorts chock. Det finns något vackert i det. Och något förfärligt. Beroende på vilket tippkupong du hade framför dig.
+*av Britt-Marie "Brittan" Andersson, Farsta*
 
 ---
 
-## Nattens matcher – kort och smärtsamt
+God morgon allihopa!
 
-Sverige fick **5–1 mot Frankrike** i gruppspelet. Det svider. Men vi visste det redan när gruppen drogs. Det skäms inte för det.
+Kaffe är påsatt. Bosse katten sover på Lasses tidning. Ute regnar det som om himlen bestämt sig för att sörja Frankrikes semifinalslut. Det finns en poesi i det, på något sätt.
 
-**Norge slog Brasilien med 2–1.** Jag upprepar: Norge. Slog. Brasilien. Jag säger inte att det har med Håland att göra. Jag säger bara att när en pojke med den där käken och den där löpningen är på banan, händer saker. Lasse frågade varför jag repade om den matchen tre gånger. Jag sa att jag studerade presspelet.
+## Nattens matcher – och kvällens
 
-**Spanien–Argentina** slutade 1–0. Finalen var värdig. Det är därför vi älskar fotboll.
+Vad har vi inte sett den här turneringen. **Spanien vann till slut hela skiten** – 1–0 mot Argentina i finalen – och det är alldeles förtjänat. En turnering med kontroll, stil och den rätta sortens arrogans. Inte den fula sorten. Den vackra.
 
----
+Men låt mig säga något om **Norge**. Herregud, vad de kämpade. De tog sig hela vägen till slutspel, slog Brasilien – ja, ni läste rätt, *Brasilien* – och föll sedan för England. Aldrig utan stolthet. Aldrig utan hjärta.
+
+Jag tittar inte på Norge för Hålands skull. Det är fotbollen. Att pojken spelar som en forntida naturkraft kan jag inte hjälpa.
+
+*Lasse frågade varför jag googlade de där glasögonbågarna igen. Jag sa att jag jämförde priser. Han gick och la sig.*
+
+**Sverige** hängde med hyggligt ett tag. Japan–Sverige slutade 1–1 vilket känns okej, och vi vann 5–1 mot Tunisien. Men Frankrike knäckte oss 3–0 och Nederländerna 5–1. Det är fotboll. Det gör ont. Bajen hade spelat med mer stolthet i det sista skedet, men det är en annan historia.
 
 ## Tipskollen
 
-I toppen huserar **Mollie och Wilma** med 166 rätt av 369. Skarpt. Riktigt skarpt. De har läst spelet bättre än de flesta och de förtjänar sitt ledarskap.
+Mollie och Wilma leder med **166 rätt av 369** och det är imponerande. Stark känsla, båda två.
 
-Sedan kommer **Andreas1** på 159, **Caroline och Anna** på 157. Fint sällskap.
+Nu till **Johan Nilsson** – mannen med 132 rätt och ett hjärta på rätt plats. Det ser dystert ut på pappret, men titta på raden: han tippade Uzbekistan–Colombia rätt. Han tippade Qatar–Schweiz rätt. Flera av hans kryss var faktiskt genomtänkta. Problemet var inte tanken. Det var verkligheten. Och den är sällan lika logisk som Johan.
 
-Längst ner hittar vi **Andreas2 på 121 rätt.** Jag säger ingenting. Men det är ett tal som säger en hel del självt.
-
----
-
-## Johan Nilsson – dagens fokus
-
-**J Nilsson: 132 rätt av 369.**
-
-Ja. Det är inte bra. Men jag har följt Johans tänk under turneringen och jag kan konstatera: pojken *ser* fotboll. Han tippade Norge med hjärta och övertygelse – det är mer värt än hundra säkra kryss.
-
-Resultaten kom inte. Men tanken? Den var ofta rätt. Otur är inte samma sak som fel.
-
----
+**Heimbrand** med 130 och **Andreas2** med 121 får stå ut med att ligga sist. Jag säger ingenting elakt. Men jag säger att det kräver talang att tippa så konsekvent fel. Det är nästan konstnärligt.
 
 ## Brittans fundering
 
-Det här VM:et påminner mig om 1994 fast utan frisyrerna. Underdogarna slår fortfarande. Hjärtat slår fortfarande snabbare än logiken.
+Spanien vann. Norge föll med heder. Frankrike imponerade och England tog sin pokal till slut.
 
-Bajen hade gjort det snyggare. Det är inte en åsikt. Det är ett faktum.
+Det påminner mig om sommaren 1994. Vi satt i Farsta och skrek när Kennet Andersson nickade. Folk grät på gatan. Fotboll kan göra det med en. Det är därför vi älskar det.
 
----
+## Slutord
 
-Ha en fin dag allihop. Drick vatten. Stretcha. Och heja på Norge.
+Tabellen tickar. Johan kämpar på. Bosse katten accepterar VM-läget.
 
-*– Brittan, Farsta*
+Bajen är fortfarande bäst. Det är inte en åsikt.
+
+*Puss och kram från Farsta. Brittan.*
